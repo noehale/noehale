@@ -28,15 +28,22 @@
 ### Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [thatweirdferretlady:
+
+robotsandfrippary:
+
+i-amneveralone:
+
+papi-chulo-seb:
+
+As someone that has...](https://come-forth-into-the-light.tumblr.com/post/638220484134256640)
+- [Mamas(yuki) fell asleep in the drawer with her purple dinosaur...](https://come-forth-into-the-light.tumblr.com/post/638216143625175040)
+- [thenatsdorf:
+
+Traferret jam.](https://come-forth-into-the-light.tumblr.com/post/638214695501889536)
+- [thelifeofmyferrets:
+
+thelifeofmyferrets:
+This is bittersweet. I...](https://come-forth-into-the-light.tumblr.com/post/638209033381314560)
 - [lurker-lenore:dairyisntscary:](https://come-forth-into-the-light.tumblr.com/post/638203370694492160)
-- [How is she this adorable?! Tilly, my snuggly work from home...](https://come-forth-into-the-light.tumblr.com/post/638203153792286720)
-- [tantric-shamanic-pranhic:
-
-teejssx16:
-
-It is indeed.
-
-yaaaas](https://come-forth-into-the-light.tumblr.com/post/638197708439601152)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638192046726922240)
-- [Vicious danger noodle : ferrets](https://come-forth-into-the-light.tumblr.com/post/638190229598175232)
 <!-- BLOG-POST-LIST:END -->
