@@ -1,22 +1,13 @@
-### Hi there 👋
-
-<!--
-**noehale/noehale** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 ### Hi there, I'm Noe Hale
 
 - 🔭 I’m currently working on BHW
 - 🌱 I’m currently learning Python
-- 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-- I’m currently learning everything
-- I’m looking to collaborate with other content creators
-- 2021 Goals: Contribute more to Open Source projects
-- Fun fact: I love to draw and play guitar / drums
+- 💬 Ask me about Ferret anything
+- 📫 I’m currently learning everything
+- 🔭 I’m looking to collaborate with other content creators
+- 😄 2021 Goals: Contribute more to Open Source projects
+- ⚡ Fun fact: I love to draw and play guitar / drums
 
 ### Connect with me:
 
