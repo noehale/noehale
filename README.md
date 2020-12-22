@@ -28,6 +28,23 @@
 ### Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638237597534191616)
+- [i-am-fert:
+
+den-father:
+fawkes-y:
+
+ferretsoftiktok:
+
+
+
+@clockworkapostle 
+
+
+
+Someone who knows...](https://come-forth-into-the-light.tumblr.com/post/638231809282408448)
+- [alright fine, just a little more.](https://come-forth-into-the-light.tumblr.com/post/638229067910512640)
+- [Cheer Up Post #1261 - Ferret Edition](https://come-forth-into-the-light.tumblr.com/post/638226146315681792)
 - [thatweirdferretlady:
 
 robotsandfrippary:
@@ -37,13 +54,4 @@ i-amneveralone:
 papi-chulo-seb:
 
 As someone that has...](https://come-forth-into-the-light.tumblr.com/post/638220484134256640)
-- [Mamas(yuki) fell asleep in the drawer with her purple dinosaur...](https://come-forth-into-the-light.tumblr.com/post/638216143625175040)
-- [thenatsdorf:
-
-Traferret jam.](https://come-forth-into-the-light.tumblr.com/post/638214695501889536)
-- [thelifeofmyferrets:
-
-thelifeofmyferrets:
-This is bittersweet. I...](https://come-forth-into-the-light.tumblr.com/post/638209033381314560)
-- [lurker-lenore:dairyisntscary:](https://come-forth-into-the-light.tumblr.com/post/638203370694492160)
 <!-- BLOG-POST-LIST:END -->
