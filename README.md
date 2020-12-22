@@ -2,7 +2,6 @@
 
 - 🔭 I’m currently working on BHW
 - 🌱 I’m currently learning Python
-- 🤔 I’m looking for help with ...
 - 💬 Ask me about Ferret anything
 - 📫 I’m currently learning everything
 - 🔭 I’m looking to collaborate with other content creators
@@ -21,3 +20,7 @@
 ---
 
 ---
+### Latest Blog Posts
+
+<!-- BLOG-POST-LIST:START -->
+<!-- BLOG-POST-LIST:END -->
