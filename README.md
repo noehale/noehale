@@ -23,4 +23,25 @@
 ### Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [wearestillflying:
+
+lastgunfighterballad:
+
+revawo:
+
+pisswolf:
+
+
+ultrabeast05:
+
+OK EVERYBODY SHUT UP...](https://come-forth-into-the-light.tumblr.com/post/638186259707297792)
+- [nathsketch:
+What can I say? I really really love...](https://come-forth-into-the-light.tumblr.com/post/638180469869101056)
+- [nunyabizni:
+
+siryouarebeingmocked:turtleduck-inc:siryouarebeingmo...](https://come-forth-into-the-light.tumblr.com/post/638174683291926528)
+- [coolthingoftheday:
+
+Cool thing of the day: Angora...](https://come-forth-into-the-light.tumblr.com/post/638169020972056576)
+- [My sweet little girl.](https://come-forth-into-the-light.tumblr.com/post/638164281779798016)
 <!-- BLOG-POST-LIST:END -->
