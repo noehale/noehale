@@ -21,9 +21,25 @@
 ### Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [I love how in sync the last bit is to the audio😂](https://www.youtube.com/watch?v=WHBeGHwSlGY)
-- [What are good ferret toys?](https://www.youtube.com/watch?v=tPxRilBzc0s)
-- [What kind of cage do ferrets need?](https://www.youtube.com/watch?v=xzz6hC3sR5A)
-- [40+ Best Ferret Tattoo Idea](https://www.youtube.com/watch?v=KIKqduR6Xcs)
-- [How To Give Ferrets A Bath](https://www.youtube.com/watch?v=A0nwywkhTSg)
+- [wearestillflying:
+
+lastgunfighterballad:
+
+revawo:
+
+pisswolf:
+
+
+ultrabeast05:
+
+OK EVERYBODY SHUT UP...](https://come-forth-into-the-light.tumblr.com/post/638186259707297792)
+- [nathsketch:
+What can I say? I really really love...](https://come-forth-into-the-light.tumblr.com/post/638180469869101056)
+- [nunyabizni:
+
+siryouarebeingmocked:turtleduck-inc:siryouarebeingmo...](https://come-forth-into-the-light.tumblr.com/post/638174683291926528)
+- [coolthingoftheday:
+
+Cool thing of the day: Angora...](https://come-forth-into-the-light.tumblr.com/post/638169020972056576)
+- [My sweet little girl.](https://come-forth-into-the-light.tumblr.com/post/638164281779798016)
 <!-- BLOG-POST-LIST:END -->
