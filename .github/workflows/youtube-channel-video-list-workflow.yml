@@ -7,6 +7,7 @@ jobs:
   update-readme-with-blog:
     name: Update this repo's README with latest youtube videos
     runs-on: ubuntu-latest
+    max_post_count: 10
     steps:
       - uses: actions/checkout@v2
       - uses: gautamkrishnar/blog-post-workflow@master
