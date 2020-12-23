@@ -21,11 +21,11 @@
 
 ### Latest YouTube Videos
 
-<!-- YOUTUBEOVERFLO:START -->
-<!-- YOUTUBEOVERFLO:END -->
+<!-- YOUTUBE:START -->
+<!-- YOUTUBE:END -->
 
 ---
-### Latest Blog Posts
+### Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
 - [Sleepy ferret](https://come-forth-into-the-light.tumblr.com/post/638254876604989440)
