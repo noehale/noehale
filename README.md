@@ -33,13 +33,16 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [tumblagay:
+haphazardhappenstance:
+
+possessedcreampuff:
+
+sizvideos...](https://come-forth-into-the-light.tumblr.com/post/638271822268399616)
+- [reblog if the person you reblogged this from deserves to be happy this 2017 (or forever)](https://come-forth-into-the-light.tumblr.com/post/638266034008342528)
+- [theferrets:
+
+You spin me right round baby right round 🎶](https://come-forth-into-the-light.tumblr.com/post/638260371936935936)
 - [Sleepy ferret](https://come-forth-into-the-light.tumblr.com/post/638254876604989440)
 - [everythingfox:The puppy cart(via)](https://come-forth-into-the-light.tumblr.com/post/638254709440970752)
-- [Why raccoons? ](https://come-forth-into-the-light.tumblr.com/post/638248922643660800)
-- [vermofftiss:
-
-notesfrombakerst:
-
-I JUST LEARNED THAT A GROUP OF FERRETS IS CALLED A ‘BUSINESS’A...](https://come-forth-into-the-light.tumblr.com/post/638243260466413568)
-- [Hey you! Happy Holidays you!](https://come-forth-into-the-light.tumblr.com/post/638242061083164672)
 <!-- TUMBLR:END -->
