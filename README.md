@@ -41,20 +41,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [The signs as ferret gifs](https://come-forth-into-the-light.tumblr.com/post/638283146666917888)
-- [We’ve all been there, little buddy](https://come-forth-into-the-light.tumblr.com/post/638280783184986112)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638305921838301184)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638300259763798016)
 - [thelifeofmyferrets:
 
-cosrnos:monobeartheater:
+thecutestofthecute:
 
-absorr:
+jaclcfrost:
 
-ultrafact...](https://come-forth-into-the-light.tumblr.com/post/638277484049203200)
-- [tumblagay:
-haphazardhappenstance:
+i hope that, wherever my hair ties go,...](https://come-forth-into-the-light.tumblr.com/post/638294471132512256)
+- [Hi I’m Elfo!](https://come-forth-into-the-light.tumblr.com/post/638293761290633216)
+- [babyanimalgifs:
 
-possessedcreampuff:
-
-sizvideos...](https://come-forth-into-the-light.tumblr.com/post/638271822268399616)
-- [reblog if the person you reblogged this from deserves to be happy this 2017 (or forever)](https://come-forth-into-the-light.tumblr.com/post/638266034008342528)
+I sincerely hope that this video of an otter...](https://come-forth-into-the-light.tumblr.com/post/638288809411411968)
 <!-- TUMBLR:END -->
