@@ -33,6 +33,15 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [The signs as ferret gifs](https://come-forth-into-the-light.tumblr.com/post/638283146666917888)
+- [We’ve all been there, little buddy](https://come-forth-into-the-light.tumblr.com/post/638280783184986112)
+- [thelifeofmyferrets:
+
+cosrnos:monobeartheater:
+
+absorr:
+
+ultrafact...](https://come-forth-into-the-light.tumblr.com/post/638277484049203200)
 - [tumblagay:
 haphazardhappenstance:
 
@@ -40,9 +49,4 @@ possessedcreampuff:
 
 sizvideos...](https://come-forth-into-the-light.tumblr.com/post/638271822268399616)
 - [reblog if the person you reblogged this from deserves to be happy this 2017 (or forever)](https://come-forth-into-the-light.tumblr.com/post/638266034008342528)
-- [theferrets:
-
-You spin me right round baby right round 🎶](https://come-forth-into-the-light.tumblr.com/post/638260371936935936)
-- [Sleepy ferret](https://come-forth-into-the-light.tumblr.com/post/638254876604989440)
-- [everythingfox:The puppy cart(via)](https://come-forth-into-the-light.tumblr.com/post/638254709440970752)
 <!-- TUMBLR:END -->
