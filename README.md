@@ -19,23 +19,18 @@
 
 ---
 
-### Latest YouTube Videos
+### 📫Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
-- [I love how in sync the last bit is to the audio😂](https://www.youtube.com/watch?v=WHBeGHwSlGY)
-- [What are good ferret toys?](https://www.youtube.com/watch?v=tPxRilBzc0s)
-- [What kind of cage do ferrets need?](https://www.youtube.com/watch?v=xzz6hC3sR5A)
-- [40+ Best Ferret Tattoo Idea](https://www.youtube.com/watch?v=KIKqduR6Xcs)
-- [How To Give Ferrets A Bath](https://www.youtube.com/watch?v=A0nwywkhTSg)
 <!-- YOUTUBE:END -->
 
 ---
-### Latest Tumblr Posts
+### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
 - [Sleepy ferret](https://come-forth-into-the-light.tumblr.com/post/638254876604989440)
 - [everythingfox:The puppy cart(via)](https://come-forth-into-the-light.tumblr.com/post/638254709440970752)
-- [Why raccoons? ](https://come-forth-into-the-light.tumblr.com/post/638248922643660800)
+- [Why raccoons?](https://come-forth-into-the-light.tumblr.com/post/638248922643660800)
 - [vermofftiss:
 
 notesfrombakerst:
