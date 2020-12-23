@@ -28,30 +28,13 @@
 ### Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638237597534191616)
-- [i-am-fert:
+- [Sleepy ferret](https://come-forth-into-the-light.tumblr.com/post/638254876604989440)
+- [everythingfox:The puppy cart(via)](https://come-forth-into-the-light.tumblr.com/post/638254709440970752)
+- [Why raccoons?](https://come-forth-into-the-light.tumblr.com/post/638248922643660800)
+- [vermofftiss:
 
-den-father:
-fawkes-y:
+notesfrombakerst:
 
-ferretsoftiktok:
-
-
-
-@clockworkapostle 
-
-
-
-Someone who knows...](https://come-forth-into-the-light.tumblr.com/post/638231809282408448)
-- [alright fine, just a little more.](https://come-forth-into-the-light.tumblr.com/post/638229067910512640)
-- [Cheer Up Post #1261 - Ferret Edition](https://come-forth-into-the-light.tumblr.com/post/638226146315681792)
-- [thatweirdferretlady:
-
-robotsandfrippary:
-
-i-amneveralone:
-
-papi-chulo-seb:
-
-As someone that has...](https://come-forth-into-the-light.tumblr.com/post/638220484134256640)
+I JUST LEARNED THAT A GROUP OF FERRETS IS CALLED A ‘BUSINESS’A...](https://come-forth-into-the-light.tumblr.com/post/638243260466413568)
+- [Hey you! Happy Holidays you!](https://come-forth-into-the-light.tumblr.com/post/638242061083164672)
 <!-- BLOG-POST-LIST:END -->
