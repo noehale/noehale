@@ -15,4 +15,8 @@ jobs:
           comment_tag_name: TUMBLR
           feed_list: "https://come-forth-into-the-light.tumblr.com/rss"
 
+        with:
+          comment_tag_name: YOUTUBE
+          feed_list: "https://www.youtube.com/feeds/videos.xml?channel_id=UCk665XTfaMLVwFVWUmgnDiwr"
+
 
