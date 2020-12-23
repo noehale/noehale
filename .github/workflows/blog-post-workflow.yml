@@ -13,6 +13,7 @@ jobs:
         with:
           comment_tag_name: TUMBLR
           feed_list: "https://come-forth-into-the-light.tumblr.com/rss"
+      - uses: actions/checkout@v2
       - uses: gautamkrishnar/blog-post-workflow@master
         with:
           comment_tag_name: YOUTUBE
