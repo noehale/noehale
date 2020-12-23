@@ -20,6 +20,11 @@
 ---
 ### 🔭Latest Github Blog Posts
 <!-- GITHUB:START -->
+- [Things to Know Before Adopting a Pet As Pet](http://noehale.github.io/things-to-know-before-adopting-a-pet-as-pet/)
+- [Ferret Quiz and Name Game](http://noehale.github.io/ferret-quiz/)
+- [Fun Ferret Games](http://noehale.github.io/fun-ferret-games/)
+- [Best Ferret Food - A Guide To Choosing the Best For Your Pet](http://noehale.github.io/best-ferret-food/)
+- [How much does a ferret cage cost](http://noehale.github.io/how-much-does-a-ferret-cage-cost/)
 <!-- GITHUB:END -->
 ---
 ### 📫Latest YouTube Videos
