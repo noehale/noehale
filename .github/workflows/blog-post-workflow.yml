@@ -9,7 +9,7 @@ jobs:
     runs-on: ubuntu-latest
     steps:
       - uses: actions/checkout@v2
-      - uses: gautamkrishnar/blog-post-workflow@master
+      - uses: khaosdoctor/blog-post-workflow@master
         with:
           comment_tag_name: Tumblr
           feed_list: "https://come-forth-into-the-light.tumblr.com/rss"
