@@ -27,7 +27,7 @@
 ---
 ### Latest Blog Posts
 
-<!-- BLOG-POST-LIST:START -->
+<!-- TUMBLR:START -->
 - [Sleepy ferret](https://come-forth-into-the-light.tumblr.com/post/638254876604989440)
 - [everythingfox:The puppy cart(via)](https://come-forth-into-the-light.tumblr.com/post/638254709440970752)
 - [Why raccoons?](https://come-forth-into-the-light.tumblr.com/post/638248922643660800)
@@ -63,4 +63,4 @@ i-amneveralone:
 papi-chulo-seb:
 
 As someone that has...](https://come-forth-into-the-light.tumblr.com/post/638220484134256640)
-<!-- BLOG-POST-LIST:END -->
+<!-- TUMBLR:END -->
