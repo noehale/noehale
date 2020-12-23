@@ -41,17 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [He waits until you take off clothes and curls up because they...](https://come-forth-into-the-light.tumblr.com/post/638319679121784832)
+- [theferrets:
+
+I don’t normally reblog other photos, but this…...](https://come-forth-into-the-light.tumblr.com/post/638317372684533760)
+- [misioandkinga:
+
+🐍 🐍 🐍](https://come-forth-into-the-light.tumblr.com/post/638311584773603328)
+- [My 10 y/o brother made this box for them and they LOVE it](https://come-forth-into-the-light.tumblr.com/post/638306827625480192)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/638305921838301184)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638300259763798016)
-- [thelifeofmyferrets:
-
-thecutestofthecute:
-
-jaclcfrost:
-
-i hope that, wherever my hair ties go,...](https://come-forth-into-the-light.tumblr.com/post/638294471132512256)
-- [Hi I’m Elfo!](https://come-forth-into-the-light.tumblr.com/post/638293761290633216)
-- [babyanimalgifs:
-
-I sincerely hope that this video of an otter...](https://come-forth-into-the-light.tumblr.com/post/638288809411411968)
 <!-- TUMBLR:END -->
