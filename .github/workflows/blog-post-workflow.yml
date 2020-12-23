@@ -12,7 +12,7 @@ jobs:
       - uses: gautamkrishnar/blog-post-workflow@master
         
         with:
-          comment_tag_name: Tumblr
+          comment_tag_name: TUMBLR
           feed_list: "https://come-forth-into-the-light.tumblr.com/rss"
 
 
