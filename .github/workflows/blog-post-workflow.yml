@@ -18,3 +18,4 @@ jobs:
           comment_tag_name: Youtube
           feed_list: "https://www.youtube.com/feeds/videos.xml?channel_id=UCk665XTfaMLVwFVWUmgnDiw"
           max_post_count: 10
+      - uses: gautamkrishnar/blog-post-workflow@master
