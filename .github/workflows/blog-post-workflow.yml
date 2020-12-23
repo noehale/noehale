@@ -14,6 +14,7 @@ jobs:
           comment_tag_name: Tumblr
           feed_list: "https://come-forth-into-the-light.tumblr.com/rss"
           max_post_count: 10
+      - uses: gautamkrishnar/blog-post-workflow@master
         with:
           comment_tag_name: Youtube
           feed_list: "https://www.youtube.com/feeds/videos.xml?channel_id=UCk665XTfaMLVwFVWUmgnDiw"
