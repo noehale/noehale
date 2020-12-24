@@ -41,21 +41,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [<3](https://come-forth-into-the-light.tumblr.com/post/638410270926110720)
+- [thatweirdferretlady:
+
+shaynethechangingman:
+
+@thatweirdferretlady...](https://come-forth-into-the-light.tumblr.com/post/638406711700553728)
+- [thelifeofmyferrets:
+
+I love otters!](https://come-forth-into-the-light.tumblr.com/post/638399162610843648)
+- [A little Christmas stuffing.](https://come-forth-into-the-light.tumblr.com/post/638397314487156736)
 - [thelifeofmyferrets:
 
 STOP SCROLLING.I love you and I hope your day is going well.OKAY....](https://come-forth-into-the-light.tumblr.com/post/638391611838038016)
-- [theferrets:
-
-unorthodox-views:
-ckascade:
-
-rotg-fan-page:
-
-xaramizomai:
-hope your pets stay healthy...](https://come-forth-into-the-light.tumblr.com/post/638385949401841664)
-- [Mayhem and Ruin taking naps. That’s all.](https://come-forth-into-the-light.tumblr.com/post/638384348677144576)
-- [awake-society:By: Good News Movement, Source By: Majically News, Source By: Crystal Marie, SourceBy:...](https://come-forth-into-the-light.tumblr.com/post/638380287366168576)
-- [ferretfarts:
-
-PSA](https://come-forth-into-the-light.tumblr.com/post/638374624107905024)
 <!-- TUMBLR:END -->
