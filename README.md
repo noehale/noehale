@@ -41,13 +41,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [He waits until you take off clothes and curls up because they...](https://come-forth-into-the-light.tumblr.com/post/638319679121784832)
-- [theferrets:
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638340524070354945)
+- [xaramizomai:
+hope your pets stay healthy in 2017](https://come-forth-into-the-light.tumblr.com/post/638334737323327488)
+- [Somehow got 3 looking at the camera!](https://come-forth-into-the-light.tumblr.com/post/638332626141396992)
+- [dankmemermaid:junevevo:
 
-I don’t normally reblog other photos, but this…...](https://come-forth-into-the-light.tumblr.com/post/638317372684533760)
-- [misioandkinga:
+dankmemermaid:
 
-🐍 🐍 🐍](https://come-forth-into-the-light.tumblr.com/post/638311584773603328)
-- [My 10 y/o brother made this box for them and they LOVE it](https://come-forth-into-the-light.tumblr.com/post/638306827625480192)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638305921838301184)
+when theres about to be drama in the group chat
+
+
+Who the...](https://come-forth-into-the-light.tumblr.com/post/638328949739536384)
+- [              reblog with a gif of the animal your muse would be.              ](https://come-forth-into-the-light.tumblr.com/post/638323161396576256)
 <!-- TUMBLR:END -->
