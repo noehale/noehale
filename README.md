@@ -41,20 +41,19 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [ferretfarts:
+
+PSA](https://come-forth-into-the-light.tumblr.com/post/638374624107905024)
+- [Meet Olive ! My new girly](https://come-forth-into-the-light.tumblr.com/post/638371389997563904)
+- [theferrets:
+
+theferrets:
+
+TheFerrets all sporting their least...](https://come-forth-into-the-light.tumblr.com/post/638368962391015424)
+- [nunyabizni:
+
+cookingwithroxy:silverscreenx:rudecanadian:
+
+buckyay...](https://come-forth-into-the-light.tumblr.com/post/638363300266131456)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/638357637915869184)
-- [itsalburton:
-
-dogpawsswapgod:
-
-rnarianhawkes:
-so we got more...](https://come-forth-into-the-light.tumblr.com/post/638351849692577792)
-- [thelifeofmyferrets:
-
-cheetahswolf:
-
-sizvideos:
-
-Watch the video...](https://come-forth-into-the-light.tumblr.com/post/638346186490773504)
-- [Have a ferret Christmas : ferrets](https://come-forth-into-the-light.tumblr.com/post/638345484859260928)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638340524070354945)
 <!-- TUMBLR:END -->
