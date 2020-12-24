@@ -41,17 +41,20 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638357637915869184)
+- [itsalburton:
+
+dogpawsswapgod:
+
+rnarianhawkes:
+so we got more...](https://come-forth-into-the-light.tumblr.com/post/638351849692577792)
+- [thelifeofmyferrets:
+
+cheetahswolf:
+
+sizvideos:
+
+Watch the video...](https://come-forth-into-the-light.tumblr.com/post/638346186490773504)
+- [Have a ferret Christmas : ferrets](https://come-forth-into-the-light.tumblr.com/post/638345484859260928)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/638340524070354945)
-- [xaramizomai:
-hope your pets stay healthy in 2017](https://come-forth-into-the-light.tumblr.com/post/638334737323327488)
-- [Somehow got 3 looking at the camera!](https://come-forth-into-the-light.tumblr.com/post/638332626141396992)
-- [dankmemermaid:junevevo:
-
-dankmemermaid:
-
-when theres about to be drama in the group chat
-
-
-Who the...](https://come-forth-into-the-light.tumblr.com/post/638328949739536384)
-- [              reblog with a gif of the animal your muse would be.              ](https://come-forth-into-the-light.tumblr.com/post/638323161396576256)
 <!-- TUMBLR:END -->
