@@ -41,17 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Petblr Questionare](https://come-forth-into-the-light.tumblr.com/post/638429485602127873)
+- [Mornings are hard.](https://come-forth-into-the-light.tumblr.com/post/638423240791982080)
+- [thelifeofmyferrets:
+
+Remember when I was planting ferrets well,...](https://come-forth-into-the-light.tumblr.com/post/638421936274276352)
+- [everythingfox:Mr. Pokee](https://come-forth-into-the-light.tumblr.com/post/638414261615509504)
 - [<3](https://come-forth-into-the-light.tumblr.com/post/638410270926110720)
-- [thatweirdferretlady:
-
-shaynethechangingman:
-
-@thatweirdferretlady...](https://come-forth-into-the-light.tumblr.com/post/638406711700553728)
-- [thelifeofmyferrets:
-
-I love otters!](https://come-forth-into-the-light.tumblr.com/post/638399162610843648)
-- [A little Christmas stuffing.](https://come-forth-into-the-light.tumblr.com/post/638397314487156736)
-- [thelifeofmyferrets:
-
-STOP SCROLLING.I love you and I hope your day is going well.OKAY....](https://come-forth-into-the-light.tumblr.com/post/638391611838038016)
 <!-- TUMBLR:END -->
