@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [bambuzl:ferrets for character design class](https://come-forth-into-the-light.tumblr.com/post/638482711455088640)
-- [thelifeofmyferrets:
+- [i think it’s safe to say they like their new bed](https://come-forth-into-the-light.tumblr.com/post/638500865891827712)
+- [ferret-flops:
 
-I keep seeing this ferret stuck in a paper...](https://come-forth-into-the-light.tumblr.com/post/638475161510756352)
-- [Oh iOS – birds, cats, felines, dogs… What else?](https://come-forth-into-the-light.tumblr.com/post/638474942362566656)
-- [Video](https://come-forth-into-the-light.tumblr.com/post/638467612674867200)
-- [Broken noodle?](https://come-forth-into-the-light.tumblr.com/post/638461977523634176)
+Sorry for potato quality but I put this tshirt on...](https://come-forth-into-the-light.tumblr.com/post/638497936455712768)
+- [Why Crediting is Important](https://come-forth-into-the-light.tumblr.com/post/638490262271934465)
+- [pov: cuddles](https://come-forth-into-the-light.tumblr.com/post/638487897337643008)
+- [bambuzl:ferrets for character design class](https://come-forth-into-the-light.tumblr.com/post/638482711455088640)
 <!-- TUMBLR:END -->
