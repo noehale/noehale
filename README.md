@@ -41,14 +41,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Can someone please let me know if this is good playing and...](https://come-forth-into-the-light.tumblr.com/post/638591460714872833)
+- [misioandkinga:
+
+all the sweet and warm comments on this video is...](https://come-forth-into-the-light.tumblr.com/post/638589037327826944)
+- [Zootopia was so good!](https://come-forth-into-the-light.tumblr.com/post/638581487621537792)
+- [Flynn is the only one who will take selfies with me](https://come-forth-into-the-light.tumblr.com/post/638578502051971072)
 - [flovvright:
 me trying to comprehend anything anyone says to me](https://come-forth-into-the-light.tumblr.com/post/638573937718181890)
-- [Life as a Ferret Owner](https://come-forth-into-the-light.tumblr.com/post/638566387859767296)
-- [I think they need a bigger bed 😅](https://come-forth-into-the-light.tumblr.com/post/638565535473385472)
-- [It was my first Christmas without him. Missing him more than...](https://come-forth-into-the-light.tumblr.com/post/638561974573219840)
-- [thelifeofmyferrets:
-
-thelifeofmyferrets:
-
-Thanksgiving is coming...](https://come-forth-into-the-light.tumblr.com/post/638558713340477440)
 <!-- TUMBLR:END -->
