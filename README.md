@@ -41,25 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [flovvright:
+me trying to comprehend anything anyone says to me](https://come-forth-into-the-light.tumblr.com/post/638573937718181890)
+- [Life as a Ferret Owner](https://come-forth-into-the-light.tumblr.com/post/638566387859767296)
+- [I think they need a bigger bed 😅](https://come-forth-into-the-light.tumblr.com/post/638565535473385472)
+- [It was my first Christmas without him. Missing him more than...](https://come-forth-into-the-light.tumblr.com/post/638561974573219840)
 - [thelifeofmyferrets:
 
 thelifeofmyferrets:
 
 Thanksgiving is coming...](https://come-forth-into-the-light.tumblr.com/post/638558713340477440)
-- [Sleepy bois 🎄🍜](https://come-forth-into-the-light.tumblr.com/post/638552573887102976)
-- [thatweirdferretlady:
-
-esamistletoe:
-
-esamistletoe:
-
-unstable-viol...](https://come-forth-into-the-light.tumblr.com/post/638551037416013824)
-- [The pet owners dilemma](https://come-forth-into-the-light.tumblr.com/post/638543487491555328)
-- [thelifeofmyferrets:
-
-fuckyeahferrets:
-
-Never not reblog.
-
-I love...](https://come-forth-into-the-light.tumblr.com/post/638535936606666752)
 <!-- TUMBLR:END -->
