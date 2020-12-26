@@ -41,11 +41,19 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [i think it’s safe to say they like their new bed](https://come-forth-into-the-light.tumblr.com/post/638500865891827712)
-- [ferret-flops:
+- [thatweirdferretlady:
 
-Sorry for potato quality but I put this tshirt on...](https://come-forth-into-the-light.tumblr.com/post/638497936455712768)
-- [Why Crediting is Important](https://come-forth-into-the-light.tumblr.com/post/638490262271934465)
-- [pov: cuddles](https://come-forth-into-the-light.tumblr.com/post/638487897337643008)
-- [bambuzl:ferrets for character design class](https://come-forth-into-the-light.tumblr.com/post/638482711455088640)
+finnickan:
+
+thatweirdferretlady:Everyone...](https://come-forth-into-the-light.tumblr.com/post/638520713759899648)
+- [Chunky noodle](https://come-forth-into-the-light.tumblr.com/post/638513725298655232)
+- [theferrets:
+
+tantric-shamanic-pranhic:
+
+teejssx16:
+
+It is...](https://come-forth-into-the-light.tumblr.com/post/638513162935779328)
+- [phalaenopfish:   Please don’t take your pets for granted.  Even if you’re frustrated that your dog...](https://come-forth-into-the-light.tumblr.com/post/638505486408351744)
+- [i think it’s safe to say they like their new bed](https://come-forth-into-the-light.tumblr.com/post/638500865891827712)
 <!-- TUMBLR:END -->
