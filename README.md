@@ -43,23 +43,23 @@
 <!-- TUMBLR:START -->
 - [thelifeofmyferrets:
 
+thelifeofmyferrets:
+
+Thanksgiving is coming...](https://come-forth-into-the-light.tumblr.com/post/638558713340477440)
+- [Sleepy bois 🎄🍜](https://come-forth-into-the-light.tumblr.com/post/638552573887102976)
+- [thatweirdferretlady:
+
+esamistletoe:
+
+esamistletoe:
+
+unstable-viol...](https://come-forth-into-the-light.tumblr.com/post/638551037416013824)
+- [The pet owners dilemma](https://come-forth-into-the-light.tumblr.com/post/638543487491555328)
+- [thelifeofmyferrets:
+
 fuckyeahferrets:
 
 Never not reblog.
 
 I love...](https://come-forth-into-the-light.tumblr.com/post/638535936606666752)
-- [freakshows199:
-ampervadasz:
-
-Unmute !
-
-
-I just wanna thank the...](https://come-forth-into-the-light.tumblr.com/post/638528386839543808)
-- [Týr’s 1st Christmas🎄❄️☃️ Tree is Týr proofed and Týr approved 👍🏼...](https://come-forth-into-the-light.tumblr.com/post/638526662262292480)
-- [thatweirdferretlady:
-
-finnickan:
-
-thatweirdferretlady:Everyone...](https://come-forth-into-the-light.tumblr.com/post/638520713759899648)
-- [Chunky noodle](https://come-forth-into-the-light.tumblr.com/post/638513725298655232)
 <!-- TUMBLR:END -->
