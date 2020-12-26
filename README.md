@@ -41,19 +41,25 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thelifeofmyferrets:
+
+fuckyeahferrets:
+
+Never not reblog.
+
+I love...](https://come-forth-into-the-light.tumblr.com/post/638535936606666752)
+- [freakshows199:
+ampervadasz:
+
+Unmute !
+
+
+I just wanna thank the...](https://come-forth-into-the-light.tumblr.com/post/638528386839543808)
+- [Týr’s 1st Christmas🎄❄️☃️ Tree is Týr proofed and Týr approved 👍🏼...](https://come-forth-into-the-light.tumblr.com/post/638526662262292480)
 - [thatweirdferretlady:
 
 finnickan:
 
 thatweirdferretlady:Everyone...](https://come-forth-into-the-light.tumblr.com/post/638520713759899648)
 - [Chunky noodle](https://come-forth-into-the-light.tumblr.com/post/638513725298655232)
-- [theferrets:
-
-tantric-shamanic-pranhic:
-
-teejssx16:
-
-It is...](https://come-forth-into-the-light.tumblr.com/post/638513162935779328)
-- [phalaenopfish:   Please don’t take your pets for granted.  Even if you’re frustrated that your dog...](https://come-forth-into-the-light.tumblr.com/post/638505486408351744)
-- [i think it’s safe to say they like their new bed](https://come-forth-into-the-light.tumblr.com/post/638500865891827712)
 <!-- TUMBLR:END -->
