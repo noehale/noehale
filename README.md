@@ -41,22 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [So much fur he thought it was his pillow..](https://come-forth-into-the-light.tumblr.com/post/638682072443207680)
+- [yeahiwasintheshit:nerviovago:Me everyday on tumblr.com](https://come-forth-into-the-light.tumblr.com/post/638680013732020224)
+- [nunyabizni:
+
+badsciencejokes:I’m afraid of spellcheck by the way...](https://come-forth-into-the-light.tumblr.com/post/638672462858584064)
+- [There’s a lot of questions about litter boxes. This is how I...](https://come-forth-into-the-light.tumblr.com/post/638669096655962112)
 - [opossummypossum:
 
 feast, my child](https://come-forth-into-the-light.tumblr.com/post/638664913555013632)
-- [thelifeofmyferrets:
-
-theferrets:
-
-binaryoutliar:
-
-theferrets:
-
-Th...](https://come-forth-into-the-light.tumblr.com/post/638657363448119296)
-- [The bestest of buddies.](https://come-forth-into-the-light.tumblr.com/post/638656139626692608)
-- [nunyabizni:
-
-fuckglossier:this one is for retail workers *hits all customers with my honda*
-](https://come-forth-into-the-light.tumblr.com/post/638649686551576576)
-- [Noodle snuggles](https://come-forth-into-the-light.tumblr.com/post/638643207715045376)
 <!-- TUMBLR:END -->
