@@ -41,11 +41,19 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thelifeofmyferrets:
+
+darktauros:
+
+thelifeofmyferrets:
+
+thelifeofm...](https://come-forth-into-the-light.tumblr.com/post/638626911857393664)
+- [Happy Holidays from Sophie, Koda, and Willow!](https://come-forth-into-the-light.tumblr.com/post/638620450306539520)
+- [theferrets:
+
+positivedoodles:
+
+requested by...](https://come-forth-into-the-light.tumblr.com/post/638619362612346880)
 - [kitty:](https://come-forth-into-the-light.tumblr.com/post/638611812712054784)
 - [Only a miniature tree this year](https://come-forth-into-the-light.tumblr.com/post/638604431616770048)
-- [sandmandaddy:](https://come-forth-into-the-light.tumblr.com/post/638604137118023680)
-- [kingcheddarxvii:
-
-People on here always postin pics of their pets like they got nothin else to post....](https://come-forth-into-the-light.tumblr.com/post/638596586767859712)
-- [Can someone please let me know if this is good playing and...](https://come-forth-into-the-light.tumblr.com/post/638591460714872833)
 <!-- TUMBLR:END -->
