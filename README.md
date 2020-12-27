@@ -41,6 +41,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [nunyabizni:
+
+fuckglossier:this one is for retail workers *hits all customers with my honda*
+](https://come-forth-into-the-light.tumblr.com/post/638649686551576576)
+- [Noodle snuggles](https://come-forth-into-the-light.tumblr.com/post/638643207715045376)
+- [theferrets:
+
+theferrets:
+The whole gang
+I lied. It’s this photo...](https://come-forth-into-the-light.tumblr.com/post/638642136722685952)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638634587574206464)
 - [thelifeofmyferrets:
 
 darktauros:
@@ -48,12 +59,4 @@ darktauros:
 thelifeofmyferrets:
 
 thelifeofm...](https://come-forth-into-the-light.tumblr.com/post/638626911857393664)
-- [Happy Holidays from Sophie, Koda, and Willow!](https://come-forth-into-the-light.tumblr.com/post/638620450306539520)
-- [theferrets:
-
-positivedoodles:
-
-requested by...](https://come-forth-into-the-light.tumblr.com/post/638619362612346880)
-- [kitty:](https://come-forth-into-the-light.tumblr.com/post/638611812712054784)
-- [Only a miniature tree this year](https://come-forth-into-the-light.tumblr.com/post/638604431616770048)
 <!-- TUMBLR:END -->
