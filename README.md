@@ -41,22 +41,22 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [opossummypossum:
+
+feast, my child](https://come-forth-into-the-light.tumblr.com/post/638664913555013632)
+- [thelifeofmyferrets:
+
+theferrets:
+
+binaryoutliar:
+
+theferrets:
+
+Th...](https://come-forth-into-the-light.tumblr.com/post/638657363448119296)
+- [The bestest of buddies.](https://come-forth-into-the-light.tumblr.com/post/638656139626692608)
 - [nunyabizni:
 
 fuckglossier:this one is for retail workers *hits all customers with my honda*
 ](https://come-forth-into-the-light.tumblr.com/post/638649686551576576)
 - [Noodle snuggles](https://come-forth-into-the-light.tumblr.com/post/638643207715045376)
-- [theferrets:
-
-theferrets:
-The whole gang
-I lied. It’s this photo...](https://come-forth-into-the-light.tumblr.com/post/638642136722685952)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638634587574206464)
-- [thelifeofmyferrets:
-
-darktauros:
-
-thelifeofmyferrets:
-
-thelifeofm...](https://come-forth-into-the-light.tumblr.com/post/638626911857393664)
 <!-- TUMBLR:END -->
