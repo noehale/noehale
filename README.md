@@ -41,16 +41,18 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [Gamer ferret](https://come-forth-into-the-light.tumblr.com/post/638733791147573248)
-- [mustelidmess:Mustelids by Sylfaenn](https://come-forth-into-the-light.tumblr.com/post/638733238622437376)
-- [genustoys:an old compilation of AI walks from years ago, early...](https://come-forth-into-the-light.tumblr.com/post/638725689023119360)
+- [catsindoors:
+
+“Am I a bad pet owner?”
+In my opinion what makes a bad pet owner is not what we’ve...](https://come-forth-into-the-light.tumblr.com/post/638755887421521920)
+- [crackhead-moss-man:Spiieeeennnn spiiiieeeeuuueEEEEEEE](https://come-forth-into-the-light.tumblr.com/post/638748337572577280)
+- [Ferret wandered into my lanai tonight… (more in comments) :...](https://come-forth-into-the-light.tumblr.com/post/638746789056577536)
 - [thatweirdferretlady:
 
-malmalforever:
-If you’re happy and you...](https://come-forth-into-the-light.tumblr.com/post/638718139239120896)
-- [thelifeofmyferrets:
+thefriendlyferret:
 
-tastefullyoffensive:
+Source
 
-How to Pet Animals by...](https://come-forth-into-the-light.tumblr.com/post/638710462374084608)
+SO CUTE](https://come-forth-into-the-light.tumblr.com/post/638740788687339520)
+- [Gamer ferret](https://come-forth-into-the-light.tumblr.com/post/638733791147573248)
 <!-- TUMBLR:END -->
