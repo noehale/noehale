@@ -41,18 +41,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [catsindoors:
+- [Perfect little oval!!](https://come-forth-into-the-light.tumblr.com/post/638772652019974144)
+- [losersanddummies:
+At the GCFA on New Year’s with DJ Jazzy Jeff,...](https://come-forth-into-the-light.tumblr.com/post/638771238315114496)
+- [Happy holidays everyone!](https://come-forth-into-the-light.tumblr.com/post/638763812206542848)
+- [nunyabizni:
 
-“Am I a bad pet owner?”
-In my opinion what makes a bad pet owner is not what we’ve...](https://come-forth-into-the-light.tumblr.com/post/638755887421521920)
-- [crackhead-moss-man:Spiieeeennnn spiiiieeeeuuueEEEEEEE](https://come-forth-into-the-light.tumblr.com/post/638748337572577280)
-- [Ferret wandered into my lanai tonight… (more in comments) :...](https://come-forth-into-the-light.tumblr.com/post/638746789056577536)
-- [thatweirdferretlady:
-
-thefriendlyferret:
-
-Source
-
-SO CUTE](https://come-forth-into-the-light.tumblr.com/post/638740788687339520)
-- [Gamer ferret](https://come-forth-into-the-light.tumblr.com/post/638733791147573248)
+takashi0:switch-up-snowfox:they aren’t washing out...](https://come-forth-into-the-light.tumblr.com/post/638763564265553920)
+- [Guys why do I even bother with a tree skirt](https://come-forth-into-the-light.tumblr.com/post/638759690483924992)
 <!-- TUMBLR:END -->
