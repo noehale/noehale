@@ -41,6 +41,15 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+malmalforever:
+If you’re happy and you...](https://come-forth-into-the-light.tumblr.com/post/638718139239120896)
+- [thelifeofmyferrets:
+
+tastefullyoffensive:
+
+How to Pet Animals by...](https://come-forth-into-the-light.tumblr.com/post/638710462374084608)
 - [nunyabizni:
 
 cinnamonazzy:prettypianoprincess:
@@ -52,14 +61,4 @@ da...](https://come-forth-into-the-light.tumblr.com/post/638702913049559040)
 
 ferretbandit:theferrets:When stuffs happening and...](https://come-forth-into-the-light.tumblr.com/post/638695363080044544)
 - [When son outgrows mum a little 😆](https://come-forth-into-the-light.tumblr.com/post/638694912728219649)
-- [thelifeofmyferrets:
-
-thelifeofmyferrets:
-
-thecutestofthecute:
-
-jaclcfrost:
-
-i hope that, wherever my...](https://come-forth-into-the-light.tumblr.com/post/638687687936704512)
-- [So much fur he thought it was his pillow..](https://come-forth-into-the-light.tumblr.com/post/638682072443207680)
 <!-- TUMBLR:END -->
