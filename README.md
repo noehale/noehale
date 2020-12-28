@@ -41,6 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Gamer ferret](https://come-forth-into-the-light.tumblr.com/post/638733791147573248)
+- [mustelidmess:Mustelids by Sylfaenn](https://come-forth-into-the-light.tumblr.com/post/638733238622437376)
+- [genustoys:an old compilation of AI walks from years ago, early...](https://come-forth-into-the-light.tumblr.com/post/638725689023119360)
 - [thatweirdferretlady:
 
 malmalforever:
@@ -50,15 +53,4 @@ If you’re happy and you...](https://come-forth-into-the-light.tumblr.com/post/
 tastefullyoffensive:
 
 How to Pet Animals by...](https://come-forth-into-the-light.tumblr.com/post/638710462374084608)
-- [nunyabizni:
-
-cinnamonazzy:prettypianoprincess:
-
-etheartist26:
-
-da...](https://come-forth-into-the-light.tumblr.com/post/638702913049559040)
-- [theferrets:
-
-ferretbandit:theferrets:When stuffs happening and...](https://come-forth-into-the-light.tumblr.com/post/638695363080044544)
-- [When son outgrows mum a little 😆](https://come-forth-into-the-light.tumblr.com/post/638694912728219649)
 <!-- TUMBLR:END -->
