@@ -41,6 +41,18 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [ace-pervert:dasha-through-the-snow:
+
+ace-pervert:
+
+egowave:hummerous:egowave:its incredible how many...](https://come-forth-into-the-light.tumblr.com/post/638808987044921344)
+- [thelifeofmyferrets:
+
+thelifeofmyferrets:
+
+brown–hound:
+
+bitter-no...](https://come-forth-into-the-light.tumblr.com/post/638801437073260544)
 - [thatweirdferretlady:
 
 Ladylike](https://come-forth-into-the-light.tumblr.com/post/638793886956994561)
@@ -50,8 +62,4 @@ cannonball-the-ferret:
 
 cannonball-the-fe...](https://come-forth-into-the-light.tumblr.com/post/638786337391214592)
 - [❤️❤️❤️](https://come-forth-into-the-light.tumblr.com/post/638785508457185280)
-- [theferrets:
-
-When stuffs happening and you weren’t invited… ](https://come-forth-into-the-light.tumblr.com/post/638778788000514048)
-- [Perfect little oval!!](https://come-forth-into-the-light.tumblr.com/post/638772652019974144)
 <!-- TUMBLR:END -->
