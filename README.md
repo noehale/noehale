@@ -41,6 +41,16 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Glitch’s Wake Up Routine! Anyone else’s noodle do this?](https://come-forth-into-the-light.tumblr.com/post/638824370014502912)
+- [thelifeofmyferrets:
+
+thinking-out-loud-since-1990:
+
+thelifeofmyfe...](https://come-forth-into-the-light.tumblr.com/post/638824212607434752)
+- [chalkandwater:
+
+Stoats playing.
+From Life (Episode 7: Hunters...](https://come-forth-into-the-light.tumblr.com/post/638816536750096385)
 - [ace-pervert:dasha-through-the-snow:
 
 ace-pervert:
@@ -53,13 +63,4 @@ thelifeofmyferrets:
 brown–hound:
 
 bitter-no...](https://come-forth-into-the-light.tumblr.com/post/638801437073260544)
-- [thatweirdferretlady:
-
-Ladylike](https://come-forth-into-the-light.tumblr.com/post/638793886956994561)
-- [cannonball-the-ferret:
-
-cannonball-the-ferret:
-
-cannonball-the-fe...](https://come-forth-into-the-light.tumblr.com/post/638786337391214592)
-- [❤️❤️❤️](https://come-forth-into-the-light.tumblr.com/post/638785508457185280)
 <!-- TUMBLR:END -->
