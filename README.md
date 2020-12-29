@@ -41,26 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+](https://come-forth-into-the-light.tumblr.com/post/638847113842900993)
+- [Cheer Up Post #1261 - Ferret Edition](https://come-forth-into-the-light.tumblr.com/post/638839437416169472)
+- [Our little noodle Ms. Puffle has been very naughty getting into...](https://come-forth-into-the-light.tumblr.com/post/638837344803454976)
+- [justbadpuns:
+
+W H Y](https://come-forth-into-the-light.tumblr.com/post/638831763822657536)
 - [Glitch’s Wake Up Routine! Anyone else’s noodle do this?](https://come-forth-into-the-light.tumblr.com/post/638824370014502912)
-- [thelifeofmyferrets:
-
-thinking-out-loud-since-1990:
-
-thelifeofmyfe...](https://come-forth-into-the-light.tumblr.com/post/638824212607434752)
-- [chalkandwater:
-
-Stoats playing.
-From Life (Episode 7: Hunters...](https://come-forth-into-the-light.tumblr.com/post/638816536750096385)
-- [ace-pervert:dasha-through-the-snow:
-
-ace-pervert:
-
-egowave:hummerous:egowave:its incredible how many...](https://come-forth-into-the-light.tumblr.com/post/638808987044921344)
-- [thelifeofmyferrets:
-
-thelifeofmyferrets:
-
-brown–hound:
-
-bitter-no...](https://come-forth-into-the-light.tumblr.com/post/638801437073260544)
 <!-- TUMBLR:END -->
