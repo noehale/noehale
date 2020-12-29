@@ -41,13 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [so I need to fly with my ferret. could she pass as a small dog?](https://come-forth-into-the-light.tumblr.com/post/638863242701242368)
+- [brbjellyfishing:50 years later, the Zodiac Killer’s legendary cypher has been solved! Amazing!](https://come-forth-into-the-light.tumblr.com/post/638862214051299328)
+- [nunyabizni:dangerbooze:daggerdaggerdaggerdagger:DAY TWO EVERYBODY!!!Everyone acting all surprised...](https://come-forth-into-the-light.tumblr.com/post/638854664109096960)
+- [Found the Kirby boy sleeping in the drawer](https://come-forth-into-the-light.tumblr.com/post/638850304263274496)
 - [thatweirdferretlady:
 
 ](https://come-forth-into-the-light.tumblr.com/post/638847113842900993)
-- [Cheer Up Post #1261 - Ferret Edition](https://come-forth-into-the-light.tumblr.com/post/638839437416169472)
-- [Our little noodle Ms. Puffle has been very naughty getting into...](https://come-forth-into-the-light.tumblr.com/post/638837344803454976)
-- [justbadpuns:
-
-W H Y](https://come-forth-into-the-light.tumblr.com/post/638831763822657536)
-- [Glitch’s Wake Up Routine! Anyone else’s noodle do this?](https://come-forth-into-the-light.tumblr.com/post/638824370014502912)
 <!-- TUMBLR:END -->
