@@ -41,18 +41,23 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Pita curled up in her hammock:)](https://come-forth-into-the-light.tumblr.com/post/638953850215202816)
+- [count-spicula:catchymemes:
+
+
+
+Officially adopting “cog” as a slur](https://come-forth-into-the-light.tumblr.com/post/638953690182615040)
+- [theferrets:
+
+theferrets:
+
+Traffic jam!
+
+Reblogging for kicks! ](https://come-forth-into-the-light.tumblr.com/post/638946021963137024)
+- [Working on taking photos but Gordo and Diesel The Weasel need to...](https://come-forth-into-the-light.tumblr.com/post/638940888975982592)
 - [gothdrool:
 
 big-boss-official:
 
 the conqueror… an unstoppable...](https://come-forth-into-the-light.tumblr.com/post/638938465342537728)
-- [nunyabizni:stimman4000:the culture writers at rolling stone have invented the concept of doing drugs](https://come-forth-into-the-light.tumblr.com/post/638930789362434048)
-- [Here, have some sleepy noodle soup.](https://come-forth-into-the-light.tumblr.com/post/638927928483364864)
-- [sixth-extinction:
-
-A new species of opossum has been discovered...](https://come-forth-into-the-light.tumblr.com/post/638923239005028352)
-- [thatweirdferretlady:
-
-In case you’ve ever wondered….
-](https://come-forth-into-the-light.tumblr.com/post/638915688879243264)
 <!-- TUMBLR:END -->
