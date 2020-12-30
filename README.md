@@ -41,14 +41,18 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [gothdrool:
+
+big-boss-official:
+
+the conqueror… an unstoppable...](https://come-forth-into-the-light.tumblr.com/post/638938465342537728)
+- [nunyabizni:stimman4000:the culture writers at rolling stone have invented the concept of doing drugs](https://come-forth-into-the-light.tumblr.com/post/638930789362434048)
+- [Here, have some sleepy noodle soup.](https://come-forth-into-the-light.tumblr.com/post/638927928483364864)
+- [sixth-extinction:
+
+A new species of opossum has been discovered...](https://come-forth-into-the-light.tumblr.com/post/638923239005028352)
 - [thatweirdferretlady:
 
 In case you’ve ever wondered….
 ](https://come-forth-into-the-light.tumblr.com/post/638915688879243264)
-- [How my boy Glitch likes to lay in my arms.](https://come-forth-into-the-light.tumblr.com/post/638914968549457920)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638908015312093184)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/638900465754636288)
-- [illiaccrest:
-
-He doesn’t even care if you’re still wearing it…](https://come-forth-into-the-light.tumblr.com/post/638892788996538368)
 <!-- TUMBLR:END -->
