@@ -41,12 +41,22 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638900465754636288)
+- [illiaccrest:
+
+He doesn’t even care if you’re still wearing it…](https://come-forth-into-the-light.tumblr.com/post/638892788996538368)
+- [thatweirdferretlady:
+
+thnksfrthmania:
+
+saintmilady:
+
+pearlisapear:
+
+crazysenji:
+
+Just so you all...](https://come-forth-into-the-light.tumblr.com/post/638885113954959361)
 - [beefnap:
 Hey, if you still miss your pet that is okay. I don’t care if it is years later and you...](https://come-forth-into-the-light.tumblr.com/post/638877563734949888)
 - [COVID-19 Vaccine for Endangered Ferrets!](https://come-forth-into-the-light.tumblr.com/post/638876228133191680)
-- [thelifeofmyferrets:
-
-thelifeofmyferrets:Charlie’s favorite...](https://come-forth-into-the-light.tumblr.com/post/638869888939835392)
-- [so I need to fly with my ferret. could she pass as a small dog?](https://come-forth-into-the-light.tumblr.com/post/638863242701242368)
-- [brbjellyfishing:50 years later, the Zodiac Killer’s legendary cypher has been solved! Amazing!](https://come-forth-into-the-light.tumblr.com/post/638862214051299328)
 <!-- TUMBLR:END -->
