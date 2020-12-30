@@ -41,22 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+In case you’ve ever wondered….
+](https://come-forth-into-the-light.tumblr.com/post/638915688879243264)
+- [How my boy Glitch likes to lay in my arms.](https://come-forth-into-the-light.tumblr.com/post/638914968549457920)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/638908015312093184)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/638900465754636288)
 - [illiaccrest:
 
 He doesn’t even care if you’re still wearing it…](https://come-forth-into-the-light.tumblr.com/post/638892788996538368)
-- [thatweirdferretlady:
-
-thnksfrthmania:
-
-saintmilady:
-
-pearlisapear:
-
-crazysenji:
-
-Just so you all...](https://come-forth-into-the-light.tumblr.com/post/638885113954959361)
-- [beefnap:
-Hey, if you still miss your pet that is okay. I don’t care if it is years later and you...](https://come-forth-into-the-light.tumblr.com/post/638877563734949888)
-- [COVID-19 Vaccine for Endangered Ferrets!](https://come-forth-into-the-light.tumblr.com/post/638876228133191680)
 <!-- TUMBLR:END -->
