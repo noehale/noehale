@@ -41,6 +41,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [guooey:some important advice](https://come-forth-into-the-light.tumblr.com/post/639007041806057472)
+- [Picture of my sleepy girl for attention. I have a question is it...](https://come-forth-into-the-light.tumblr.com/post/639005592208474113)
+- [thatweirdferretlady:
+
+raisedbyferrets:
+
+driad:
+
+gothdrool:
+
+big...](https://come-forth-into-the-light.tumblr.com/post/638999491832414209)
 - [gunrunnerhell:Westley Richards “Boutet Gun”Ornately engraved 12...](https://come-forth-into-the-light.tumblr.com/post/638991817746022400)
 - [cloudfreed:
 
@@ -49,19 +60,4 @@ uglyrad:
 thebestoftumbling:
 
 a ferret making a...](https://come-forth-into-the-light.tumblr.com/post/638984141417938944)
-- [my little girl is getting so floofy for the winter 🥺](https://come-forth-into-the-light.tumblr.com/post/638979650802089984)
-- [nunyabizni:
-
-noblepeasant:sykesplaining:
-
-
-noblepeasant:
-
-sykesplaining:
-
-
-noblepeasant:
-
-sykesplaini...](https://come-forth-into-the-light.tumblr.com/post/638976591082471424)
-- [pokemon-personalities:](https://come-forth-into-the-light.tumblr.com/post/638968916806451200)
 <!-- TUMBLR:END -->
