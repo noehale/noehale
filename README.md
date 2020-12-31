@@ -41,19 +41,27 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [gunrunnerhell:Westley Richards “Boutet Gun”Ornately engraved 12...](https://come-forth-into-the-light.tumblr.com/post/638991817746022400)
+- [cloudfreed:
+
+uglyrad:
+
+thebestoftumbling:
+
+a ferret making a...](https://come-forth-into-the-light.tumblr.com/post/638984141417938944)
+- [my little girl is getting so floofy for the winter 🥺](https://come-forth-into-the-light.tumblr.com/post/638979650802089984)
+- [nunyabizni:
+
+noblepeasant:sykesplaining:
+
+
+noblepeasant:
+
+sykesplaining:
+
+
+noblepeasant:
+
+sykesplaini...](https://come-forth-into-the-light.tumblr.com/post/638976591082471424)
 - [pokemon-personalities:](https://come-forth-into-the-light.tumblr.com/post/638968916806451200)
-- [S H A M E](https://come-forth-into-the-light.tumblr.com/post/638966812384624640)
-- [revawo:
-pisswolf:
-
-
-ultrabeast05:
-
-OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY...](https://come-forth-into-the-light.tumblr.com/post/638961239526080512)
-- [Pita curled up in her hammock:)](https://come-forth-into-the-light.tumblr.com/post/638953850215202816)
-- [count-spicula:catchymemes:
-
-
-
-Officially adopting “cog” as a slur](https://come-forth-into-the-light.tumblr.com/post/638953690182615040)
 <!-- TUMBLR:END -->
