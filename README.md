@@ -41,23 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [basedheisenberg:basedheisenberg:I bet this dude attacking the...](https://come-forth-into-the-light.tumblr.com/post/639029944192745472)
+- [*me looking at pets foot*: Perfect. Such tiny delicate construction. This is the greatest foot I've ever seen, and you have 4 of them! Well done!](https://come-forth-into-the-light.tumblr.com/post/639022270937972736)
+- [merry xmas](https://come-forth-into-the-light.tumblr.com/post/639018520231002112)
+- [dangerously-human:tiktoks-repost:@jayykesley @thisbibliomaniac ](https://come-forth-into-the-light.tumblr.com/post/639014593164935168)
 - [guooey:some important advice](https://come-forth-into-the-light.tumblr.com/post/639007041806057472)
-- [Picture of my sleepy girl for attention. I have a question is it...](https://come-forth-into-the-light.tumblr.com/post/639005592208474113)
-- [thatweirdferretlady:
-
-raisedbyferrets:
-
-driad:
-
-gothdrool:
-
-big...](https://come-forth-into-the-light.tumblr.com/post/638999491832414209)
-- [gunrunnerhell:Westley Richards “Boutet Gun”Ornately engraved 12...](https://come-forth-into-the-light.tumblr.com/post/638991817746022400)
-- [cloudfreed:
-
-uglyrad:
-
-thebestoftumbling:
-
-a ferret making a...](https://come-forth-into-the-light.tumblr.com/post/638984141417938944)
 <!-- TUMBLR:END -->
