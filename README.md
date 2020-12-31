@@ -41,9 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [obi-wan-kenoboomer:Canon](https://come-forth-into-the-light.tumblr.com/post/639045294703738881)
+- [My new baby Severn 🥰 spoiled little boy](https://come-forth-into-the-light.tumblr.com/post/639044485986287616)
+- [theferrets:
+
+My babies ](https://come-forth-into-the-light.tumblr.com/post/639037619264782337)
+- [I will end you, human. After my nap. Tomorrow…](https://come-forth-into-the-light.tumblr.com/post/639031495202324480)
 - [basedheisenberg:basedheisenberg:I bet this dude attacking the...](https://come-forth-into-the-light.tumblr.com/post/639029944192745472)
-- [*me looking at pets foot*: Perfect. Such tiny delicate construction. This is the greatest foot I've ever seen, and you have 4 of them! Well done!](https://come-forth-into-the-light.tumblr.com/post/639022270937972736)
-- [merry xmas](https://come-forth-into-the-light.tumblr.com/post/639018520231002112)
-- [dangerously-human:tiktoks-repost:@jayykesley @thisbibliomaniac ](https://come-forth-into-the-light.tumblr.com/post/639014593164935168)
-- [guooey:some important advice](https://come-forth-into-the-light.tumblr.com/post/639007041806057472)
 <!-- TUMBLR:END -->
