@@ -41,23 +41,19 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [pokemon-personalities:](https://come-forth-into-the-light.tumblr.com/post/638968916806451200)
+- [S H A M E](https://come-forth-into-the-light.tumblr.com/post/638966812384624640)
+- [revawo:
+pisswolf:
+
+
+ultrabeast05:
+
+OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY...](https://come-forth-into-the-light.tumblr.com/post/638961239526080512)
 - [Pita curled up in her hammock:)](https://come-forth-into-the-light.tumblr.com/post/638953850215202816)
 - [count-spicula:catchymemes:
 
 
 
 Officially adopting “cog” as a slur](https://come-forth-into-the-light.tumblr.com/post/638953690182615040)
-- [theferrets:
-
-theferrets:
-
-Traffic jam!
-
-Reblogging for kicks! ](https://come-forth-into-the-light.tumblr.com/post/638946021963137024)
-- [Working on taking photos but Gordo and Diesel The Weasel need to...](https://come-forth-into-the-light.tumblr.com/post/638940888975982592)
-- [gothdrool:
-
-big-boss-official:
-
-the conqueror… an unstoppable...](https://come-forth-into-the-light.tumblr.com/post/638938465342537728)
 <!-- TUMBLR:END -->
