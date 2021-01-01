@@ -41,11 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [obi-wan-kenoboomer:Canon](https://come-forth-into-the-light.tumblr.com/post/639045294703738881)
-- [My new baby Severn 🥰 spoiled little boy](https://come-forth-into-the-light.tumblr.com/post/639044485986287616)
+- [bugladies:
+
+A Tribute to Uncle Fester](https://come-forth-into-the-light.tumblr.com/post/639060522576297984)
+- [Last week, Jasper decided he is a cuddler. Now it’s routine.](https://come-forth-into-the-light.tumblr.com/post/639057291089461248)
 - [theferrets:
 
-My babies ](https://come-forth-into-the-light.tumblr.com/post/639037619264782337)
-- [I will end you, human. After my nap. Tomorrow…](https://come-forth-into-the-light.tumblr.com/post/639031495202324480)
-- [basedheisenberg:basedheisenberg:I bet this dude attacking the...](https://come-forth-into-the-light.tumblr.com/post/639029944192745472)
+Traffic jam!](https://come-forth-into-the-light.tumblr.com/post/639052844578816000)
+- [obi-wan-kenoboomer:Canon](https://come-forth-into-the-light.tumblr.com/post/639045294703738881)
+- [My new baby Severn 🥰 spoiled little boy](https://come-forth-into-the-light.tumblr.com/post/639044485986287616)
 <!-- TUMBLR:END -->
