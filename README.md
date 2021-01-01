@@ -41,13 +41,21 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [bekkathyst:
-BEKKATHYST SPRING 2017 GIVEAWAY
-~This giveaway is in...](https://come-forth-into-the-light.tumblr.com/post/639113872436051968)
-- [Who’s Stealing Potato Chips🤔](https://come-forth-into-the-light.tumblr.com/post/639109116277768193)
-- [quirkybrittany-blog:Only 2013 kids who are chemists and can read...](https://come-forth-into-the-light.tumblr.com/post/639106197253914624)
-- [teapotsahoy:theblehthatbloos:exquisite-peculiarity:
+- [thelifeofmyferrets:Thanksgiving is coming up, please don’t give...](https://come-forth-into-the-light.tumblr.com/post/639136772037754880)
+- [Our smallest one, asleep on mom for the first time](https://come-forth-into-the-light.tumblr.com/post/639135047610400769)
+- [thatweirdferretlady:
 
-darkwingatla...](https://come-forth-into-the-light.tumblr.com/post/639098646925869056)
-- [Baby Otto’s interpretation of a kangaroo pouch !](https://come-forth-into-the-light.tumblr.com/post/639096157108322305)
+ferret-flops:
+
+okiawatooru:
+
+tag yourself...](https://come-forth-into-the-light.tumblr.com/post/639129096508620800)
+- [An absolute masterpiece](https://come-forth-into-the-light.tumblr.com/post/639122034154192896)
+- [theferrets:
+
+opossummypossum:
+
+theferrets:
+
+The whole...](https://come-forth-into-the-light.tumblr.com/post/639121547473436672)
 <!-- TUMBLR:END -->
