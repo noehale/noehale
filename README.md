@@ -41,13 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Video](https://come-forth-into-the-light.tumblr.com/post/639083420271722496)
+- [thelifeofmyferrets:
+
+My Ducky used to do this. Now he poops on...](https://come-forth-into-the-light.tumblr.com/post/639075870128144386)
+- [roblox-oldhead:](https://come-forth-into-the-light.tumblr.com/post/639068195899277312)
 - [bugladies:
 
 A Tribute to Uncle Fester](https://come-forth-into-the-light.tumblr.com/post/639060522576297984)
 - [Last week, Jasper decided he is a cuddler. Now it’s routine.](https://come-forth-into-the-light.tumblr.com/post/639057291089461248)
-- [theferrets:
-
-Traffic jam!](https://come-forth-into-the-light.tumblr.com/post/639052844578816000)
-- [obi-wan-kenoboomer:Canon](https://come-forth-into-the-light.tumblr.com/post/639045294703738881)
-- [My new baby Severn 🥰 spoiled little boy](https://come-forth-into-the-light.tumblr.com/post/639044485986287616)
 <!-- TUMBLR:END -->
