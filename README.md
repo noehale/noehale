@@ -41,13 +41,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [teapotsahoy:theblehthatbloos:exquisite-peculiarity:
+
+darkwingatla...](https://come-forth-into-the-light.tumblr.com/post/639098646925869056)
+- [Baby Otto’s interpretation of a kangaroo pouch !](https://come-forth-into-the-light.tumblr.com/post/639096157108322305)
+- [silverhawk:
+
+look at these lil leopard ferrets
+this lil guy is called the marbled polecat!!!!!
+](https://come-forth-into-the-light.tumblr.com/post/639090970050330625)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/639083420271722496)
 - [thelifeofmyferrets:
 
 My Ducky used to do this. Now he poops on...](https://come-forth-into-the-light.tumblr.com/post/639075870128144386)
-- [roblox-oldhead:](https://come-forth-into-the-light.tumblr.com/post/639068195899277312)
-- [bugladies:
-
-A Tribute to Uncle Fester](https://come-forth-into-the-light.tumblr.com/post/639060522576297984)
-- [Last week, Jasper decided he is a cuddler. Now it’s routine.](https://come-forth-into-the-light.tumblr.com/post/639057291089461248)
 <!-- TUMBLR:END -->
