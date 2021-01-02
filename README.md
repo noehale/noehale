@@ -41,21 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/639151998977146880)
+- [New arrivals at the shelter! Meet Mia and Marcellus!](https://come-forth-into-the-light.tumblr.com/post/639147885860143104)
+- [Remember This...](https://come-forth-into-the-light.tumblr.com/post/639144322026143744)
 - [thelifeofmyferrets:Thanksgiving is coming up, please don’t give...](https://come-forth-into-the-light.tumblr.com/post/639136772037754880)
 - [Our smallest one, asleep on mom for the first time](https://come-forth-into-the-light.tumblr.com/post/639135047610400769)
-- [thatweirdferretlady:
-
-ferret-flops:
-
-okiawatooru:
-
-tag yourself...](https://come-forth-into-the-light.tumblr.com/post/639129096508620800)
-- [An absolute masterpiece](https://come-forth-into-the-light.tumblr.com/post/639122034154192896)
-- [theferrets:
-
-opossummypossum:
-
-theferrets:
-
-The whole...](https://come-forth-into-the-light.tumblr.com/post/639121547473436672)
 <!-- TUMBLR:END -->
