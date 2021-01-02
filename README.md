@@ -41,13 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Boy unwrapping his Xmas gift 🎁 ‘twas a hit. Merry Christmas...](https://come-forth-into-the-light.tumblr.com/post/639225650346131457)
+- [thatweirdferretlady:](https://come-forth-into-the-light.tumblr.com/post/639220576299384832)
+- [Was warm today took the boys out on the porch for a bit.](https://come-forth-into-the-light.tumblr.com/post/639212675976626176)
 - [figdays:Fuck Pigeons by Felicia Chiao 
 
 1 // 2 // 3 // 4 // 5 ](https://come-forth-into-the-light.tumblr.com/post/639205476505157632)
 - [Tiny baby 😍](https://come-forth-into-the-light.tumblr.com/post/639199715826794496)
-- [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets](https://come-forth-into-the-light.tumblr.com/post/639197799674724352)
-- [phalaenopfish:
-
-   Please don’t take your pets for granted.  Even if you’re frustrated that your dog...](https://come-forth-into-the-light.tumblr.com/post/639190250192863232)
-- [Best babies.](https://come-forth-into-the-light.tumblr.com/post/639186757977505792)
 <!-- TUMBLR:END -->
