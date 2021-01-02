@@ -41,17 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [figdays:Fuck Pigeons by Felicia Chiao 
+
+1 // 2 // 3 // 4 // 5 ](https://come-forth-into-the-light.tumblr.com/post/639205476505157632)
+- [Tiny baby 😍](https://come-forth-into-the-light.tumblr.com/post/639199715826794496)
+- [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets](https://come-forth-into-the-light.tumblr.com/post/639197799674724352)
 - [phalaenopfish:
 
    Please don’t take your pets for granted.  Even if you’re frustrated that your dog...](https://come-forth-into-the-light.tumblr.com/post/639190250192863232)
 - [Best babies.](https://come-forth-into-the-light.tumblr.com/post/639186757977505792)
-- [misioandkinga:
-
-honestly? she’s a blessing <3](https://come-forth-into-the-light.tumblr.com/post/639182573723090944)
-- [thebestoftumbling:
-
-otter skilfully juggling his rock
-](https://come-forth-into-the-light.tumblr.com/post/639174898944770048)
-- [momfricker:
-](https://come-forth-into-the-light.tumblr.com/post/639167223527784448)
 <!-- TUMBLR:END -->
