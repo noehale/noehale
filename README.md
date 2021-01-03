@@ -41,9 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+sunshineservicedog-it:
+
+secret-agent-sargen...](https://come-forth-into-the-light.tumblr.com/post/639251025630461952)
 - [Today was a really hard day and I can’t stop crying : ferrets](https://come-forth-into-the-light.tumblr.com/post/639238490680426496)
 - [Small pets don’t make good Christmas gifts!](https://come-forth-into-the-light.tumblr.com/post/639235800864866304)
 - [Boy unwrapping his Xmas gift 🎁 ‘twas a hit. Merry Christmas...](https://come-forth-into-the-light.tumblr.com/post/639225650346131457)
 - [thatweirdferretlady:](https://come-forth-into-the-light.tumblr.com/post/639220576299384832)
-- [Was warm today took the boys out on the porch for a bit.](https://come-forth-into-the-light.tumblr.com/post/639212675976626176)
 <!-- TUMBLR:END -->
