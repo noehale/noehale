@@ -41,6 +41,15 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [bob-artist:
+
+plesbian:
+rivustheferret:
+
+m0nster-c00kie:
+
+bob-arti...](https://come-forth-into-the-light.tumblr.com/post/639314560290078721)
+- [My little loki](https://come-forth-into-the-light.tumblr.com/post/639309744578985984)
 - [nepeteaa:a ferret commission for vigoroth on twitter! absolutely...](https://come-forth-into-the-light.tumblr.com/post/639287068876587008)
 - [officialfist:oliviacatherinefionn:Woman training her horse in 1899.Get after it Mary Beth!](https://come-forth-into-the-light.tumblr.com/post/639266249730408448)
 - [thatweirdferretlady:
@@ -48,6 +57,4 @@
 sunshineservicedog-it:
 
 secret-agent-sargen...](https://come-forth-into-the-light.tumblr.com/post/639251025630461952)
-- [Today was a really hard day and I can’t stop crying : ferrets](https://come-forth-into-the-light.tumblr.com/post/639238490680426496)
-- [Small pets don’t make good Christmas gifts!](https://come-forth-into-the-light.tumblr.com/post/639235800864866304)
 <!-- TUMBLR:END -->
