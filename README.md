@@ -41,6 +41,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [nepeteaa:a ferret commission for vigoroth on twitter! absolutely...](https://come-forth-into-the-light.tumblr.com/post/639287068876587008)
 - [officialfist:oliviacatherinefionn:Woman training her horse in 1899.Get after it Mary Beth!](https://come-forth-into-the-light.tumblr.com/post/639266249730408448)
 - [thatweirdferretlady:
 
@@ -49,5 +50,4 @@ sunshineservicedog-it:
 secret-agent-sargen...](https://come-forth-into-the-light.tumblr.com/post/639251025630461952)
 - [Today was a really hard day and I can’t stop crying : ferrets](https://come-forth-into-the-light.tumblr.com/post/639238490680426496)
 - [Small pets don’t make good Christmas gifts!](https://come-forth-into-the-light.tumblr.com/post/639235800864866304)
-- [Boy unwrapping his Xmas gift 🎁 ‘twas a hit. Merry Christmas...](https://come-forth-into-the-light.tumblr.com/post/639225650346131457)
 <!-- TUMBLR:END -->
