@@ -41,6 +41,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/639344893092937728)
 - [ferretsoftiktok:](https://come-forth-into-the-light.tumblr.com/post/639332367131197440)
 - [hellocantbreatheandmynosebleeds:](https://come-forth-into-the-light.tumblr.com/post/639329670811336704)
 - [bob-artist:
@@ -52,5 +53,4 @@ m0nster-c00kie:
 
 bob-arti...](https://come-forth-into-the-light.tumblr.com/post/639314560290078721)
 - [My little loki](https://come-forth-into-the-light.tumblr.com/post/639309744578985984)
-- [nepeteaa:a ferret commission for vigoroth on twitter! absolutely...](https://come-forth-into-the-light.tumblr.com/post/639287068876587008)
 <!-- TUMBLR:END -->
