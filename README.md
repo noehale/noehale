@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [ferretsoftiktok:](https://come-forth-into-the-light.tumblr.com/post/639332367131197440)
+- [hellocantbreatheandmynosebleeds:](https://come-forth-into-the-light.tumblr.com/post/639329670811336704)
 - [bob-artist:
 
 plesbian:
@@ -51,10 +53,4 @@ m0nster-c00kie:
 bob-arti...](https://come-forth-into-the-light.tumblr.com/post/639314560290078721)
 - [My little loki](https://come-forth-into-the-light.tumblr.com/post/639309744578985984)
 - [nepeteaa:a ferret commission for vigoroth on twitter! absolutely...](https://come-forth-into-the-light.tumblr.com/post/639287068876587008)
-- [officialfist:oliviacatherinefionn:Woman training her horse in 1899.Get after it Mary Beth!](https://come-forth-into-the-light.tumblr.com/post/639266249730408448)
-- [thatweirdferretlady:
-
-sunshineservicedog-it:
-
-secret-agent-sargen...](https://come-forth-into-the-light.tumblr.com/post/639251025630461952)
 <!-- TUMBLR:END -->
