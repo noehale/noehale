@@ -41,6 +41,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [pisswolf:
+ultrabeast05:
+
+OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANT
+
+](https://come-forth-into-the-light.tumblr.com/post/639450842233225216)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/639435742789107712)
 - [Little Sniff tucked himself in](https://come-forth-into-the-light.tumblr.com/post/639423016807399424)
 - [nunyabizni:
@@ -49,5 +55,4 @@ There’s a few entertainers that you’re going to run...](https://come-forth-i
 - [thatweirdferretlady:
 
  I need to hold all the ferrets ](https://come-forth-into-the-light.tumblr.com/post/639405416269365248)
-- [ferretfiends:…..hi, Sirius.](https://come-forth-into-the-light.tumblr.com/post/639400430972092416)
 <!-- TUMBLR:END -->
