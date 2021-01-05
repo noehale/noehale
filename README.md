@@ -41,6 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [May your new year be filled with dooks and epic war dances](https://come-forth-into-the-light.tumblr.com/post/639468245453275137)
+- [shes-a-maslaniac:
+
+ashleyodette:
+
+beeslybee:
+
+*slams fist on the...](https://come-forth-into-the-light.tumblr.com/post/639466066508234752)
 - [pisswolf:
 ultrabeast05:
 
@@ -49,10 +57,4 @@ OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANT
 ](https://come-forth-into-the-light.tumblr.com/post/639450842233225216)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/639435742789107712)
 - [Little Sniff tucked himself in](https://come-forth-into-the-light.tumblr.com/post/639423016807399424)
-- [nunyabizni:
-
-There’s a few entertainers that you’re going to run...](https://come-forth-into-the-light.tumblr.com/post/639420642204221440)
-- [thatweirdferretlady:
-
- I need to hold all the ferrets ](https://come-forth-into-the-light.tumblr.com/post/639405416269365248)
 <!-- TUMBLR:END -->
