@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Take Amazon box, add one small hole, ferret playscape complete!](https://come-forth-into-the-light.tumblr.com/post/639490921462956034)
+- [sirartwork:Seph narrowly survives meeting the rest of the Smash...](https://come-forth-into-the-light.tumblr.com/post/639488717520814080)
 - [May your new year be filled with dooks and epic war dances](https://come-forth-into-the-light.tumblr.com/post/639468245453275137)
 - [shes-a-maslaniac:
 
@@ -55,6 +57,4 @@ ultrabeast05:
 OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANT
 
 ](https://come-forth-into-the-light.tumblr.com/post/639450842233225216)
-- [Video](https://come-forth-into-the-light.tumblr.com/post/639435742789107712)
-- [Little Sniff tucked himself in](https://come-forth-into-the-light.tumblr.com/post/639423016807399424)
 <!-- TUMBLR:END -->
