@@ -41,12 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Little Sniff tucked himself in](https://come-forth-into-the-light.tumblr.com/post/639423016807399424)
+- [nunyabizni:
+
+There’s a few entertainers that you’re going to run...](https://come-forth-into-the-light.tumblr.com/post/639420642204221440)
 - [thatweirdferretlady:
 
  I need to hold all the ferrets ](https://come-forth-into-the-light.tumblr.com/post/639405416269365248)
 - [ferretfiends:…..hi, Sirius.](https://come-forth-into-the-light.tumblr.com/post/639400430972092416)
 - [nawafaam:](https://come-forth-into-the-light.tumblr.com/post/639390317369491456)
-- [Tongue](https://come-forth-into-the-light.tumblr.com/post/639377674555523072)
-- [usbdongle:
-please be gentle to your pets, they trust you so much and believe that whatever youre...](https://come-forth-into-the-light.tumblr.com/post/639375093015937024)
 <!-- TUMBLR:END -->
