@@ -41,20 +41,18 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Glitch’s Fav Sleeping Position](https://come-forth-into-the-light.tumblr.com/post/639513575699972096)
+- [wearestillflying:
+
+red-faced-wolf:
+
+justyourfriendlyneighborhoodass:
+
+grier-remade:
+
+
+friend...](https://come-forth-into-the-light.tumblr.com/post/639511490661171200)
 - [Take Amazon box, add one small hole, ferret playscape complete!](https://come-forth-into-the-light.tumblr.com/post/639490921462956034)
 - [sirartwork:Seph narrowly survives meeting the rest of the Smash...](https://come-forth-into-the-light.tumblr.com/post/639488717520814080)
 - [May your new year be filled with dooks and epic war dances](https://come-forth-into-the-light.tumblr.com/post/639468245453275137)
-- [shes-a-maslaniac:
-
-ashleyodette:
-
-beeslybee:
-
-*slams fist on the...](https://come-forth-into-the-light.tumblr.com/post/639466066508234752)
-- [pisswolf:
-ultrabeast05:
-
-OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANT
-
-](https://come-forth-into-the-light.tumblr.com/post/639450842233225216)
 <!-- TUMBLR:END -->
