@@ -41,6 +41,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thelifeofmyferrets:Going out to do errands is so much better...](https://come-forth-into-the-light.tumblr.com/post/639534139404648448)
 - [Glitch’s Fav Sleeping Position](https://come-forth-into-the-light.tumblr.com/post/639513575699972096)
 - [wearestillflying:
 
@@ -54,5 +55,4 @@ grier-remade:
 friend...](https://come-forth-into-the-light.tumblr.com/post/639511490661171200)
 - [Take Amazon box, add one small hole, ferret playscape complete!](https://come-forth-into-the-light.tumblr.com/post/639490921462956034)
 - [sirartwork:Seph narrowly survives meeting the rest of the Smash...](https://come-forth-into-the-light.tumblr.com/post/639488717520814080)
-- [May your new year be filled with dooks and epic war dances](https://come-forth-into-the-light.tumblr.com/post/639468245453275137)
 <!-- TUMBLR:END -->
