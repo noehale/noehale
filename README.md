@@ -41,20 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [OMG, I’M NOT READY FOR THE CAMERA!](https://come-forth-into-the-light.tumblr.com/post/639581501950984192)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/639579565622280192)
 - [bob-artist:Layabouts.  Do-nothing slobs.](https://come-forth-into-the-light.tumblr.com/post/639558844621733888)
 - [bob-artist:
 
 How ferrets climb stairs.](https://come-forth-into-the-light.tumblr.com/post/639556789833187328)
 - [thelifeofmyferrets:Going out to do errands is so much better...](https://come-forth-into-the-light.tumblr.com/post/639534139404648448)
-- [Glitch’s Fav Sleeping Position](https://come-forth-into-the-light.tumblr.com/post/639513575699972096)
-- [wearestillflying:
-
-red-faced-wolf:
-
-justyourfriendlyneighborhoodass:
-
-grier-remade:
-
-
-friend...](https://come-forth-into-the-light.tumblr.com/post/639511490661171200)
 <!-- TUMBLR:END -->
