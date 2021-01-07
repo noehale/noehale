@@ -41,9 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Did someone mention food?](https://come-forth-into-the-light.tumblr.com/post/639649462538665984)
+- [Life as a Ferret Owner](https://come-forth-into-the-light.tumblr.com/post/639647762963742720)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/639624989231939584)
 - [Otto is kind to the environment # recycle where possible ! :...](https://come-forth-into-the-light.tumblr.com/post/639604160178896896)
 - [Anonymously tell me what time it is there and what you're thinking about.](https://come-forth-into-the-light.tumblr.com/post/639602339160981504)
-- [OMG, I’M NOT READY FOR THE CAMERA!](https://come-forth-into-the-light.tumblr.com/post/639581501950984192)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/639579565622280192)
 <!-- TUMBLR:END -->
