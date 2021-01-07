@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Anyone else have a kissy ferret? Stu does this every single day,...](https://come-forth-into-the-light.tumblr.com/post/639694806918021120)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/639693061780324352)
 - [Ferret Cuddle Time](https://come-forth-into-the-light.tumblr.com/post/639672124102066176)
 - [theferrets:
 
@@ -50,6 +52,4 @@ animal-factbook:
 
 Ferrets...](https://come-forth-into-the-light.tumblr.com/post/639670413100728320)
 - [Did someone mention food?](https://come-forth-into-the-light.tumblr.com/post/639649462538665984)
-- [Life as a Ferret Owner](https://come-forth-into-the-light.tumblr.com/post/639647762963742720)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/639624989231939584)
 <!-- TUMBLR:END -->
