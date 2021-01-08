@@ -41,10 +41,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Little baby Timon](https://come-forth-into-the-light.tumblr.com/post/639762751041994752)
+- [you’re a fucking hamtaro blogger who the fuck cares what you think. stop making political posts and stick to posting hamtaro memes. ](https://come-forth-into-the-light.tumblr.com/post/639761010247565313)
 - [Today I was crying, and my ferret started to lick my ear and...](https://come-forth-into-the-light.tumblr.com/post/639740026511622144)
 - [flovvright:
 me trying to comprehend anything anyone says to me](https://come-forth-into-the-light.tumblr.com/post/639738360848613376)
 - [chadwicc:](https://come-forth-into-the-light.tumblr.com/post/639715711329140736)
-- [Anyone else have a kissy ferret? Stu does this every single day,...](https://come-forth-into-the-light.tumblr.com/post/639694806918021120)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/639693061780324352)
 <!-- TUMBLR:END -->
