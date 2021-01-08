@@ -41,6 +41,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [chadwicc:](https://come-forth-into-the-light.tumblr.com/post/639715711329140736)
 - [Anyone else have a kissy ferret? Stu does this every single day,...](https://come-forth-into-the-light.tumblr.com/post/639694806918021120)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/639693061780324352)
 - [Ferret Cuddle Time](https://come-forth-into-the-light.tumblr.com/post/639672124102066176)
@@ -51,5 +52,4 @@ that-one-realestate-deer:
 animal-factbook:
 
 Ferrets...](https://come-forth-into-the-light.tumblr.com/post/639670413100728320)
-- [Did someone mention food?](https://come-forth-into-the-light.tumblr.com/post/639649462538665984)
 <!-- TUMBLR:END -->
