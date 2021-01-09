@@ -41,6 +41,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [My name is Hiro, and I’m addicted to opening Christmas presents.](https://come-forth-into-the-light.tumblr.com/post/639830660442374144)
+- [misioandkinga:
+
+| ferret intensifies |@iamanandroid](https://come-forth-into-the-light.tumblr.com/post/639828957527687168)
 - [mischiefraven:
 
 I can relate to this ](https://come-forth-into-the-light.tumblr.com/post/639806307955785728)
@@ -53,6 +57,4 @@ Traffic jam!
 
 
 I wish I could reverse...](https://come-forth-into-the-light.tumblr.com/post/639783659447238656)
-- [Little baby Timon](https://come-forth-into-the-light.tumblr.com/post/639762751041994752)
-- [you’re a fucking hamtaro blogger who the fuck cares what you think. stop making political posts and stick to posting hamtaro memes. ](https://come-forth-into-the-light.tumblr.com/post/639761010247565313)
 <!-- TUMBLR:END -->
