@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Chonk noms on a turkey neck while pop punk music plays in...](https://come-forth-into-the-light.tumblr.com/post/639853339864072192)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/639851607845208064)
 - [My name is Hiro, and I’m addicted to opening Christmas presents.](https://come-forth-into-the-light.tumblr.com/post/639830660442374144)
 - [misioandkinga:
 
@@ -48,13 +50,4 @@
 - [mischiefraven:
 
 I can relate to this ](https://come-forth-into-the-light.tumblr.com/post/639806307955785728)
-- [muffin had his first and last screaming seizure today. it...](https://come-forth-into-the-light.tumblr.com/post/639785365103886336)
-- [theferrets:
-
-theferrets:
-
-Traffic jam!
-
-
-I wish I could reverse...](https://come-forth-into-the-light.tumblr.com/post/639783659447238656)
 <!-- TUMBLR:END -->
