@@ -41,10 +41,16 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [muffin had his first and last screaming seizure today. it...](https://come-forth-into-the-light.tumblr.com/post/639785365103886336)
+- [theferrets:
+
+theferrets:
+
+Traffic jam!
+
+
+I wish I could reverse...](https://come-forth-into-the-light.tumblr.com/post/639783659447238656)
 - [Little baby Timon](https://come-forth-into-the-light.tumblr.com/post/639762751041994752)
 - [you’re a fucking hamtaro blogger who the fuck cares what you think. stop making political posts and stick to posting hamtaro memes. ](https://come-forth-into-the-light.tumblr.com/post/639761010247565313)
 - [Today I was crying, and my ferret started to lick my ear and...](https://come-forth-into-the-light.tumblr.com/post/639740026511622144)
-- [flovvright:
-me trying to comprehend anything anyone says to me](https://come-forth-into-the-light.tumblr.com/post/639738360848613376)
-- [chadwicc:](https://come-forth-into-the-light.tumblr.com/post/639715711329140736)
 <!-- TUMBLR:END -->
