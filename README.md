@@ -41,9 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [PETA](https://come-forth-into-the-light.tumblr.com/post/639897031258849280)
 - [ferretsoftiktok:](https://come-forth-into-the-light.tumblr.com/post/639875954375852032)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/639874382279458816)
 - [Chonk noms on a turkey neck while pop punk music plays in...](https://come-forth-into-the-light.tumblr.com/post/639853339864072192)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/639851607845208064)
-- [My name is Hiro, and I’m addicted to opening Christmas presents.](https://come-forth-into-the-light.tumblr.com/post/639830660442374144)
 <!-- TUMBLR:END -->
