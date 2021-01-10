@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [flooz3:Okey. This. This is what makes me happy.](https://come-forth-into-the-light.tumblr.com/post/639943928592973824)
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/639942330644889601)
 - [Unfortunately the rescue has no room at the moment, so I’m...](https://come-forth-into-the-light.tumblr.com/post/639921254774784000)
 - [thelifeofmyferrets:
 
@@ -52,6 +54,4 @@ d0cpr0fess0r:
 
 andyt...](https://come-forth-into-the-light.tumblr.com/post/639919680355729408)
 - [PETA](https://come-forth-into-the-light.tumblr.com/post/639897031258849280)
-- [ferretsoftiktok:](https://come-forth-into-the-light.tumblr.com/post/639875954375852032)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/639874382279458816)
 <!-- TUMBLR:END -->
