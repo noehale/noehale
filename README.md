@@ -41,9 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [everythingfox:“When you follow your smol friend everywhere”(via)](https://come-forth-into-the-light.tumblr.com/post/639987629733134336)
 - [The cutest peeka boo I’ve ever seen 🥰😍](https://come-forth-into-the-light.tumblr.com/post/639966556217081856)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/639964979736576000)
 - [flooz3:Okey. This. This is what makes me happy.](https://come-forth-into-the-light.tumblr.com/post/639943928592973824)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/639942330644889601)
-- [Unfortunately the rescue has no room at the moment, so I’m...](https://come-forth-into-the-light.tumblr.com/post/639921254774784000)
 <!-- TUMBLR:END -->
