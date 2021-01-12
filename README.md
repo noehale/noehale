@@ -41,14 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [i really hope y’all get the joke](https://come-forth-into-the-light.tumblr.com/post/640057192723169280)
+- [theophrastus-bombastus:
+
+Strawberry VoiceMr.2007FRP, iron,...](https://come-forth-into-the-light.tumblr.com/post/640055701500313600)
 - [When you need the water dish lower… just do it yourself!](https://come-forth-into-the-light.tumblr.com/post/640034491521531904)
 - [dear 98% of the people that follow me that dont talk to me](https://come-forth-into-the-light.tumblr.com/post/640033052391817216)
 - [Does your fuzzbutt seem to get lazy and/or lethargic during the...](https://come-forth-into-the-light.tumblr.com/post/640011859201769472)
-- [ferret-flops:
-
-citymod:
-mynewplaidpants:
-
-Jake Gyllenhaal and a...](https://come-forth-into-the-light.tumblr.com/post/640010402059649025)
-- [everythingfox:“When you follow your smol friend everywhere”(via)](https://come-forth-into-the-light.tumblr.com/post/639987629733134336)
 <!-- TUMBLR:END -->
