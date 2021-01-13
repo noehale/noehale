@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [bob-artist:*tries to record the ferrets at eye level**promptly...](https://come-forth-into-the-light.tumblr.com/post/640215704544641024)
+- [4gifs:Excuse me wtf r u doin](https://come-forth-into-the-light.tumblr.com/post/640214373159337985)
 - [Double cuddles from my biggest and my littlest. (Ella &...](https://come-forth-into-the-light.tumblr.com/post/640193017646612480)
 - [cutepetclub:
 
@@ -49,6 +51,4 @@ From @kh43.y619: “Hina is good at swimming”...](https://come-forth-into-the-
 
 FYI, Baby Ferrets Are Really Cute
 ](https://come-forth-into-the-light.tumblr.com/post/640169073494343680)
-- [Enjoying some salmon oil](https://come-forth-into-the-light.tumblr.com/post/640147803812904960)
-- [THIS IS THE EXTREME MONEY FERRET](https://come-forth-into-the-light.tumblr.com/post/640146424470929408)
 <!-- TUMBLR:END -->
