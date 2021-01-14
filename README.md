@@ -41,9 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thelifeofmyferrets:
+
+mymegahigheye:
+
+thelifeofmyferrets:
+Putting...](https://come-forth-into-the-light.tumblr.com/post/640259922488066048)
 - [All shagged out after a busy Xmas.](https://come-forth-into-the-light.tumblr.com/post/640238346756620288)
 - [nunyabizni:I pik dis one](https://come-forth-into-the-light.tumblr.com/post/640237148873883648)
 - [bob-artist:*tries to record the ferrets at eye level**promptly...](https://come-forth-into-the-light.tumblr.com/post/640215704544641024)
 - [4gifs:Excuse me wtf r u doin](https://come-forth-into-the-light.tumblr.com/post/640214373159337985)
-- [Double cuddles from my biggest and my littlest. (Ella &...](https://come-forth-into-the-light.tumblr.com/post/640193017646612480)
 <!-- TUMBLR:END -->
