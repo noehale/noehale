@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [A quick one from our Christmas photo shoot](https://come-forth-into-the-light.tumblr.com/post/640306344792080384)
+- [short and stoat](https://come-forth-into-the-light.tumblr.com/post/640305474463563776)
 - [bob-artist:I really hope my neighbors can’t hear me in my unit,...](https://come-forth-into-the-light.tumblr.com/post/640283614864621568)
 - [puropichepari:tikkety-tok:how could the truth be left in the tags  ](https://come-forth-into-the-light.tumblr.com/post/640282697054502912)
 - [thelifeofmyferrets:
@@ -49,6 +51,4 @@ mymegahigheye:
 
 thelifeofmyferrets:
 Putting...](https://come-forth-into-the-light.tumblr.com/post/640259922488066048)
-- [All shagged out after a busy Xmas.](https://come-forth-into-the-light.tumblr.com/post/640238346756620288)
-- [nunyabizni:I pik dis one](https://come-forth-into-the-light.tumblr.com/post/640237148873883648)
 <!-- TUMBLR:END -->
