@@ -41,18 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Afternoon Snooze 😴](https://come-forth-into-the-light.tumblr.com/post/640396885787607040)
+- [thatweirdferretlady:
+
+Pretty much all of my fuzzbutts](https://come-forth-into-the-light.tumblr.com/post/640396196018536448)
 - [We tried: Christmas 2020](https://come-forth-into-the-light.tumblr.com/post/640374257108631552)
 - [Humans' Use Of Pain-Relief Creams Proves Fatal To Felines](https://come-forth-into-the-light.tumblr.com/post/640373545984212992)
 - [pazzojinn:
 
 Important content
 ](https://come-forth-into-the-light.tumblr.com/post/640350896474210304)
-- [We found her favorite game! We’ve never seen her tail wag like...](https://come-forth-into-the-light.tumblr.com/post/640328939633557504)
-- [thelifeofmyferrets:
-
-ferretfarts:
-
-PSA
-
-OMG! I love that...](https://come-forth-into-the-light.tumblr.com/post/640328247449649153)
 <!-- TUMBLR:END -->
