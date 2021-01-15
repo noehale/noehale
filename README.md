@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [We tried: Christmas 2020](https://come-forth-into-the-light.tumblr.com/post/640374257108631552)
+- [Humans' Use Of Pain-Relief Creams Proves Fatal To Felines](https://come-forth-into-the-light.tumblr.com/post/640373545984212992)
 - [pazzojinn:
 
 Important content
@@ -53,6 +55,4 @@ ferretfarts:
 PSA
 
 OMG! I love that...](https://come-forth-into-the-light.tumblr.com/post/640328247449649153)
-- [A quick one from our Christmas photo shoot](https://come-forth-into-the-light.tumblr.com/post/640306344792080384)
-- [short and stoat](https://come-forth-into-the-light.tumblr.com/post/640305474463563776)
 <!-- TUMBLR:END -->
