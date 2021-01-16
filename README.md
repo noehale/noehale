@@ -41,6 +41,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [My handsome Huck ❤ That face melts me every time!](https://come-forth-into-the-light.tumblr.com/post/640487490231451648)
+- [thelifeofmyferrets:
+
+not a ferret but I love watching this otter...](https://come-forth-into-the-light.tumblr.com/post/640487044703010817)
 - [Its new toy dayyyyy for the girls . They love their new toys and...](https://come-forth-into-the-light.tumblr.com/post/640464816250781697)
 - [thatweirdferretlady:
 
@@ -50,6 +54,4 @@ too much cuteness
 
 Not a...](https://come-forth-into-the-light.tumblr.com/post/640464395197104128)
 - [Petblr asks](https://come-forth-into-the-light.tumblr.com/post/640441746769297408)
-- [Sweetie petity making trouble 💜](https://come-forth-into-the-light.tumblr.com/post/640419516301639681)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/640418970723319808)
 <!-- TUMBLR:END -->
