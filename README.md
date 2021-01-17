@@ -41,6 +41,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Todd oozing out of his bed. My big fluffy boi❤️](https://come-forth-into-the-light.tumblr.com/post/640555407913418752)
+- [argumate:mugasofer:
+
+argumate:
+
+sang-the-sun-in-flight:butmuhgains:slavstars:noooo not the heckin...](https://come-forth-into-the-light.tumblr.com/post/640555116476416000)
 - [theferrets:
 
 littlealienproducts:
@@ -52,8 +58,4 @@ Bandit Together Mug from...](https://come-forth-into-the-light.tumblr.com/post/6
 creategalaxies:
 
 ferret-flops:You know you live...](https://come-forth-into-the-light.tumblr.com/post/640509694214012928)
-- [My handsome Huck ❤ That face melts me every time!](https://come-forth-into-the-light.tumblr.com/post/640487490231451648)
-- [thelifeofmyferrets:
-
-not a ferret but I love watching this otter...](https://come-forth-into-the-light.tumblr.com/post/640487044703010817)
 <!-- TUMBLR:END -->
