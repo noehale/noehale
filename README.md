@@ -41,6 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Our newest and last (for now) little girl, Trinity for a total...](https://come-forth-into-the-light.tumblr.com/post/640578129168154624)
+- [tikkunthisfuckingolam:
+aka-maayan:
+
+dvashim:
+tis the season
+
+I...](https://come-forth-into-the-light.tumblr.com/post/640577767180828672)
 - [Todd oozing out of his bed. My big fluffy boi❤️](https://come-forth-into-the-light.tumblr.com/post/640555407913418752)
 - [argumate:mugasofer:
 
@@ -52,10 +60,4 @@ sang-the-sun-in-flight:butmuhgains:slavstars:noooo not the heckin...](https://co
 littlealienproducts:
 
 Bandit Together Mug from...](https://come-forth-into-the-light.tumblr.com/post/640532345018105856)
-- [spacebeets:Caught digging 😛](https://come-forth-into-the-light.tumblr.com/post/640510146637922304)
-- [ferret-flops:
-
-creategalaxies:
-
-ferret-flops:You know you live...](https://come-forth-into-the-light.tumblr.com/post/640509694214012928)
 <!-- TUMBLR:END -->
