@@ -41,6 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [theferrets:
+
+littlealienproducts:
+
+Bandit Together Mug from...](https://come-forth-into-the-light.tumblr.com/post/640532345018105856)
 - [spacebeets:Caught digging 😛](https://come-forth-into-the-light.tumblr.com/post/640510146637922304)
 - [ferret-flops:
 
@@ -51,5 +56,4 @@ ferret-flops:You know you live...](https://come-forth-into-the-light.tumblr.com/
 - [thelifeofmyferrets:
 
 not a ferret but I love watching this otter...](https://come-forth-into-the-light.tumblr.com/post/640487044703010817)
-- [Its new toy dayyyyy for the girls . They love their new toys and...](https://come-forth-into-the-light.tumblr.com/post/640464816250781697)
 <!-- TUMBLR:END -->
