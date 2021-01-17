@@ -41,17 +41,15 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [spacebeets:Caught digging 😛](https://come-forth-into-the-light.tumblr.com/post/640510146637922304)
+- [ferret-flops:
+
+creategalaxies:
+
+ferret-flops:You know you live...](https://come-forth-into-the-light.tumblr.com/post/640509694214012928)
 - [My handsome Huck ❤ That face melts me every time!](https://come-forth-into-the-light.tumblr.com/post/640487490231451648)
 - [thelifeofmyferrets:
 
 not a ferret but I love watching this otter...](https://come-forth-into-the-light.tumblr.com/post/640487044703010817)
 - [Its new toy dayyyyy for the girls . They love their new toys and...](https://come-forth-into-the-light.tumblr.com/post/640464816250781697)
-- [thatweirdferretlady:
-
-babyanimalgifs:
-
-too much cuteness
-
-Not a...](https://come-forth-into-the-light.tumblr.com/post/640464395197104128)
-- [Petblr asks](https://come-forth-into-the-light.tumblr.com/post/640441746769297408)
 <!-- TUMBLR:END -->
