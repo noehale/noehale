@@ -41,6 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Merry Christmas! Best things to come out of 2020! LOVE my...](https://come-forth-into-the-light.tumblr.com/post/640600731011989504)
+- [cloudfreed:
+
+uglyrad:
+
+thebestoftumbling:
+
+a ferret making a...](https://come-forth-into-the-light.tumblr.com/post/640600543621971968)
 - [Our newest and last (for now) little girl, Trinity for a total...](https://come-forth-into-the-light.tumblr.com/post/640578129168154624)
 - [tikkunthisfuckingolam:
 aka-maayan:
@@ -50,14 +58,4 @@ tis the season
 
 I...](https://come-forth-into-the-light.tumblr.com/post/640577767180828672)
 - [Todd oozing out of his bed. My big fluffy boi❤️](https://come-forth-into-the-light.tumblr.com/post/640555407913418752)
-- [argumate:mugasofer:
-
-argumate:
-
-sang-the-sun-in-flight:butmuhgains:slavstars:noooo not the heckin...](https://come-forth-into-the-light.tumblr.com/post/640555116476416000)
-- [theferrets:
-
-littlealienproducts:
-
-Bandit Together Mug from...](https://come-forth-into-the-light.tumblr.com/post/640532345018105856)
 <!-- TUMBLR:END -->
