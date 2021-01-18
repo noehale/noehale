@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Gizmo’s at it again 💕🏀 #dribblemaster](https://come-forth-into-the-light.tumblr.com/post/640646032201531393)
+- [dogboy:](https://come-forth-into-the-light.tumblr.com/post/640645968299229184)
 - [Reblog if you want your followers to anonymously tell you one thing they secretly like (or dislike) about you.](https://come-forth-into-the-light.tumblr.com/post/640623318789242880)
 - [Merry Christmas! Best things to come out of 2020! LOVE my...](https://come-forth-into-the-light.tumblr.com/post/640600731011989504)
 - [cloudfreed:
@@ -50,12 +52,4 @@ uglyrad:
 thebestoftumbling:
 
 a ferret making a...](https://come-forth-into-the-light.tumblr.com/post/640600543621971968)
-- [Our newest and last (for now) little girl, Trinity for a total...](https://come-forth-into-the-light.tumblr.com/post/640578129168154624)
-- [tikkunthisfuckingolam:
-aka-maayan:
-
-dvashim:
-tis the season
-
-I...](https://come-forth-into-the-light.tumblr.com/post/640577767180828672)
 <!-- TUMBLR:END -->
