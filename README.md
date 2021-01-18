@@ -41,6 +41,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Reblog if you want your followers to anonymously tell you one thing they secretly like (or dislike) about you.](https://come-forth-into-the-light.tumblr.com/post/640623318789242880)
 - [Merry Christmas! Best things to come out of 2020! LOVE my...](https://come-forth-into-the-light.tumblr.com/post/640600731011989504)
 - [cloudfreed:
 
@@ -57,5 +58,4 @@ dvashim:
 tis the season
 
 I...](https://come-forth-into-the-light.tumblr.com/post/640577767180828672)
-- [Todd oozing out of his bed. My big fluffy boi❤️](https://come-forth-into-the-light.tumblr.com/post/640555407913418752)
 <!-- TUMBLR:END -->
