@@ -41,9 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [xaramizomai:
+
+hope your pets stay healthy in 2017](https://come-forth-into-the-light.tumblr.com/post/640691389463724032)
+- [bob-artist:I reach into my garbage can and locate my trash...](https://come-forth-into-the-light.tumblr.com/post/640691314167595008)
 - [He was on the naughty list for sure](https://come-forth-into-the-light.tumblr.com/post/640668761722142721)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/640668619503796224)
 - [Gizmo’s at it again 💕🏀 #dribblemaster](https://come-forth-into-the-light.tumblr.com/post/640646032201531393)
-- [dogboy:](https://come-forth-into-the-light.tumblr.com/post/640645968299229184)
-- [Reblog if you want your followers to anonymously tell you one thing they secretly like (or dislike) about you.](https://come-forth-into-the-light.tumblr.com/post/640623318789242880)
 <!-- TUMBLR:END -->
