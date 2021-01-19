@@ -41,11 +41,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+cannonball-the-ferret:
+
+malkshake:
+
+Cat...](https://come-forth-into-the-light.tumblr.com/post/640714038681174016)
 - [xaramizomai:
 
 hope your pets stay healthy in 2017](https://come-forth-into-the-light.tumblr.com/post/640691389463724032)
 - [bob-artist:I reach into my garbage can and locate my trash...](https://come-forth-into-the-light.tumblr.com/post/640691314167595008)
 - [He was on the naughty list for sure](https://come-forth-into-the-light.tumblr.com/post/640668761722142721)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/640668619503796224)
-- [Gizmo’s at it again 💕🏀 #dribblemaster](https://come-forth-into-the-light.tumblr.com/post/640646032201531393)
 <!-- TUMBLR:END -->
