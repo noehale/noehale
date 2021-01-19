@@ -41,6 +41,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [nunyabizni:
+
+](https://come-forth-into-the-light.tumblr.com/post/640759465693544448)
+- [Bongo seems to like the Christmas cousins but his bushy tail...](https://come-forth-into-the-light.tumblr.com/post/640759274666098688)
 - [happifying-things:](https://come-forth-into-the-light.tumblr.com/post/640736688915841024)
 - [My babies](https://come-forth-into-the-light.tumblr.com/post/640736634972831744)
 - [thatweirdferretlady:
@@ -50,8 +54,4 @@ cannonball-the-ferret:
 malkshake:
 
 Cat...](https://come-forth-into-the-light.tumblr.com/post/640714038681174016)
-- [xaramizomai:
-
-hope your pets stay healthy in 2017](https://come-forth-into-the-light.tumblr.com/post/640691389463724032)
-- [bob-artist:I reach into my garbage can and locate my trash...](https://come-forth-into-the-light.tumblr.com/post/640691314167595008)
 <!-- TUMBLR:END -->
