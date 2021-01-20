@@ -41,6 +41,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+tacticalraven:
+
+If it ain’t real neither...](https://come-forth-into-the-light.tumblr.com/post/640850312741126144)
+- [Got a window hammock for the cats- I mean ferrets 😉](https://come-forth-into-the-light.tumblr.com/post/640849869175668736)
 - [thatvegancosplayer:
 
 superveggiegoth:
@@ -52,10 +58,4 @@ be-the...](https://come-forth-into-the-light.tumblr.com/post/640827662871445504)
 - [thatweirdferretlady:
 
 CLENCH the toesies lest they be tickled...](https://come-forth-into-the-light.tumblr.com/post/640805014386999296)
-- [thelifeofmyferrets:
-
-tellmeifyouknowthissong:
-
-The Dandy Warhols...](https://come-forth-into-the-light.tumblr.com/post/640782240578748416)
-- [Merry Christmas from Bobo](https://come-forth-into-the-light.tumblr.com/post/640781943092494336)
 <!-- TUMBLR:END -->
