@@ -41,6 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+CLENCH the toesies lest they be tickled...](https://come-forth-into-the-light.tumblr.com/post/640805014386999296)
 - [thelifeofmyferrets:
 
 tellmeifyouknowthissong:
@@ -51,5 +54,4 @@ The Dandy Warhols...](https://come-forth-into-the-light.tumblr.com/post/64078224
 
 ](https://come-forth-into-the-light.tumblr.com/post/640759465693544448)
 - [Bongo seems to like the Christmas cousins but his bushy tail...](https://come-forth-into-the-light.tumblr.com/post/640759274666098688)
-- [happifying-things:](https://come-forth-into-the-light.tumblr.com/post/640736688915841024)
 <!-- TUMBLR:END -->
