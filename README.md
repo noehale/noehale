@@ -41,17 +41,15 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thelifeofmyferrets:
+
+tellmeifyouknowthissong:
+
+The Dandy Warhols...](https://come-forth-into-the-light.tumblr.com/post/640782240578748416)
+- [Merry Christmas from Bobo](https://come-forth-into-the-light.tumblr.com/post/640781943092494336)
 - [nunyabizni:
 
 ](https://come-forth-into-the-light.tumblr.com/post/640759465693544448)
 - [Bongo seems to like the Christmas cousins but his bushy tail...](https://come-forth-into-the-light.tumblr.com/post/640759274666098688)
 - [happifying-things:](https://come-forth-into-the-light.tumblr.com/post/640736688915841024)
-- [My babies](https://come-forth-into-the-light.tumblr.com/post/640736634972831744)
-- [thatweirdferretlady:
-
-cannonball-the-ferret:
-
-malkshake:
-
-Cat...](https://come-forth-into-the-light.tumblr.com/post/640714038681174016)
 <!-- TUMBLR:END -->
