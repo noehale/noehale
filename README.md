@@ -41,6 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatvegancosplayer:
+
+superveggiegoth:
+
+vegan-animallover:
+
+be-the...](https://come-forth-into-the-light.tumblr.com/post/640827662871445504)
+- [bob-artist:Whenever Tux manages to slip into a forbidden room,...](https://come-forth-into-the-light.tumblr.com/post/640827206232424448)
 - [thatweirdferretlady:
 
 CLENCH the toesies lest they be tickled...](https://come-forth-into-the-light.tumblr.com/post/640805014386999296)
@@ -50,8 +58,4 @@ tellmeifyouknowthissong:
 
 The Dandy Warhols...](https://come-forth-into-the-light.tumblr.com/post/640782240578748416)
 - [Merry Christmas from Bobo](https://come-forth-into-the-light.tumblr.com/post/640781943092494336)
-- [nunyabizni:
-
-](https://come-forth-into-the-light.tumblr.com/post/640759465693544448)
-- [Bongo seems to like the Christmas cousins but his bushy tail...](https://come-forth-into-the-light.tumblr.com/post/640759274666098688)
 <!-- TUMBLR:END -->
