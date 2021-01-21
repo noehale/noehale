@@ -41,6 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [kyraneko:
+drtanner-dickery:
+
+so-i-did-this-thing:
+
+fresno-nightcr...](https://come-forth-into-the-light.tumblr.com/post/640872961196376065)
+- [My 3 critters getting into their gifts! Merry Christmas to All!](https://come-forth-into-the-light.tumblr.com/post/640872711632109568)
 - [thatweirdferretlady:
 
 tacticalraven:
@@ -54,8 +61,4 @@ superveggiegoth:
 vegan-animallover:
 
 be-the...](https://come-forth-into-the-light.tumblr.com/post/640827662871445504)
-- [bob-artist:Whenever Tux manages to slip into a forbidden room,...](https://come-forth-into-the-light.tumblr.com/post/640827206232424448)
-- [thatweirdferretlady:
-
-CLENCH the toesies lest they be tickled...](https://come-forth-into-the-light.tumblr.com/post/640805014386999296)
 <!-- TUMBLR:END -->
