@@ -41,6 +41,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [zaftig-goddess:
+
+shadiobrando:
+why don’t at least half my followers on here follow me on instagram i...](https://come-forth-into-the-light.tumblr.com/post/640895611559985152)
 - [kyraneko:
 drtanner-dickery:
 
@@ -54,11 +58,4 @@ tacticalraven:
 
 If it ain’t real neither...](https://come-forth-into-the-light.tumblr.com/post/640850312741126144)
 - [Got a window hammock for the cats- I mean ferrets 😉](https://come-forth-into-the-light.tumblr.com/post/640849869175668736)
-- [thatvegancosplayer:
-
-superveggiegoth:
-
-vegan-animallover:
-
-be-the...](https://come-forth-into-the-light.tumblr.com/post/640827662871445504)
 <!-- TUMBLR:END -->
