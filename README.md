@@ -41,9 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [cute nickname asks!!!!](https://come-forth-into-the-light.tumblr.com/post/640986460154183680)
 - [nunyabizni:ro-zden:theconcealedweapon:If they&rsquo;re too young to choose to smoke, then...](https://come-forth-into-the-light.tumblr.com/post/640963811689594880)
 - [Odin really knows how to work the camera 😆](https://come-forth-into-the-light.tumblr.com/post/640963100677406720)
 - [everybody-loves-to-eat:(source)](https://come-forth-into-the-light.tumblr.com/post/640941035311235073)
 - [Cloud, my angel dancing to boy George.](https://come-forth-into-the-light.tumblr.com/post/640940496372563968)
-- [Click here to support Help Max fight lung cancer](https://come-forth-into-the-light.tumblr.com/post/640918385782358016)
 <!-- TUMBLR:END -->
