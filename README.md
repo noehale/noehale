@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Video](https://come-forth-into-the-light.tumblr.com/post/641054658032467968)
+- [Anyone wanna enjoy the pictures I took of my baby ferret ? 🥺](https://come-forth-into-the-light.tumblr.com/post/641053718245244928)
 - [queenoftheferrets:
 
 malkshake:
@@ -48,6 +50,4 @@ malkshake:
 Cat snakes. They’re stinky and...](https://come-forth-into-the-light.tumblr.com/post/641032009148481536)
 - [I’M HERE.](https://come-forth-into-the-light.tumblr.com/post/641031066406322176)
 - [ATTENTION ALL FOLLOWERS: IMPORTANT ANNOUNCEMENT](https://come-forth-into-the-light.tumblr.com/post/641009235936886784)
-- [Hyper weasel](https://come-forth-into-the-light.tumblr.com/post/641008393980674048)
-- [cute nickname asks!!!!](https://come-forth-into-the-light.tumblr.com/post/640986460154183680)
 <!-- TUMBLR:END -->
