@@ -43,9 +43,17 @@
 <!-- TUMBLR:START -->
 - [thelifeofmyferrets:
 
+thelifeofmyferrets:
+
+thecutestofthecute:
+
+jaclcfrost:
+
+i hope that, wherever my...](https://come-forth-into-the-light.tumblr.com/post/641122732997771264)
+- [My 10 year old ferret Styx passed away on NYE – some of my...](https://come-forth-into-the-light.tumblr.com/post/641121722346684416)
+- [thelifeofmyferrets:
+
 This is bittersweet. I think I like this...](https://come-forth-into-the-light.tumblr.com/post/641099957983674368)
 - [My mom “hates” my ferrets, who I have dubbed the...](https://come-forth-into-the-light.tumblr.com/post/641098996366147584)
 - [Weasel Classes](https://come-forth-into-the-light.tumblr.com/post/641077308225175552)
-- [Video](https://come-forth-into-the-light.tumblr.com/post/641054658032467968)
-- [Anyone wanna enjoy the pictures I took of my baby ferret ? 🥺](https://come-forth-into-the-light.tumblr.com/post/641053718245244928)
 <!-- TUMBLR:END -->
