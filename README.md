@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Life as a Ferret Owner](https://come-forth-into-the-light.tumblr.com/post/641145383527055360)
+- [theferrets:My little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡](https://come-forth-into-the-light.tumblr.com/post/641144334497071104)
 - [thelifeofmyferrets:
 
 thelifeofmyferrets:
@@ -54,6 +56,4 @@ i hope that, wherever my...](https://come-forth-into-the-light.tumblr.com/post/6
 - [thelifeofmyferrets:
 
 This is bittersweet. I think I like this...](https://come-forth-into-the-light.tumblr.com/post/641099957983674368)
-- [My mom “hates” my ferrets, who I have dubbed the...](https://come-forth-into-the-light.tumblr.com/post/641098996366147584)
-- [Weasel Classes](https://come-forth-into-the-light.tumblr.com/post/641077308225175552)
 <!-- TUMBLR:END -->
