@@ -41,6 +41,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [nunyabizni:
+
+newkidsonmycock35:leviathan-supersystem:
+
+(person...](https://come-forth-into-the-light.tumblr.com/post/641213707474665472)
+- [Here’s my pal Frank getting some rest.](https://come-forth-into-the-light.tumblr.com/post/641212314686750720)
 - [just-for-grins:
 
 I will now apologize to all the people I’ve...](https://come-forth-into-the-light.tumblr.com/post/641190932524531712)
@@ -51,6 +57,4 @@ wildlifewednesdays:
 A camerashy little weasel!
 
 It’s...](https://come-forth-into-the-light.tumblr.com/post/641168157887873024)
-- [Life as a Ferret Owner](https://come-forth-into-the-light.tumblr.com/post/641145383527055360)
-- [theferrets:My little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡](https://come-forth-into-the-light.tumblr.com/post/641144334497071104)
 <!-- TUMBLR:END -->
