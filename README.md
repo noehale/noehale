@@ -41,6 +41,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [just-for-grins:
+
+I will now apologize to all the people I’ve...](https://come-forth-into-the-light.tumblr.com/post/641190932524531712)
+- [Super happy 🤣](https://come-forth-into-the-light.tumblr.com/post/641189591742840832)
 - [dizzy-pup:
 wildlifewednesdays:
 
@@ -49,14 +53,4 @@ A camerashy little weasel!
 It’s...](https://come-forth-into-the-light.tumblr.com/post/641168157887873024)
 - [Life as a Ferret Owner](https://come-forth-into-the-light.tumblr.com/post/641145383527055360)
 - [theferrets:My little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡](https://come-forth-into-the-light.tumblr.com/post/641144334497071104)
-- [thelifeofmyferrets:
-
-thelifeofmyferrets:
-
-thecutestofthecute:
-
-jaclcfrost:
-
-i hope that, wherever my...](https://come-forth-into-the-light.tumblr.com/post/641122732997771264)
-- [My 10 year old ferret Styx passed away on NYE – some of my...](https://come-forth-into-the-light.tumblr.com/post/641121722346684416)
 <!-- TUMBLR:END -->
