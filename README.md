@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [trutown-the-bard:clonewarslover55:elphabaforpresidentofgallifrey:...](https://come-forth-into-the-light.tumblr.com/post/641304430469316608)
+- [Hi, I’m Fifi](https://come-forth-into-the-light.tumblr.com/post/641302856880832512)
 - [thelifeofmyferrets:
 
 darktauros:
@@ -55,6 +57,4 @@ bob-artist:
 bob-artist:
 
 I love ferret-fighting etiquette so much.  Like, when...](https://come-forth-into-the-light.tumblr.com/post/641259130688061440)
-- [open rp](https://come-forth-into-the-light.tumblr.com/post/641236357099945984)
-- [Someone isn’t feeling the Christmas spirit. I feel ya, bro.](https://come-forth-into-the-light.tumblr.com/post/641234943501025280)
 <!-- TUMBLR:END -->
