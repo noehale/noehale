@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [open rp](https://come-forth-into-the-light.tumblr.com/post/641236357099945984)
+- [Someone isn’t feeling the Christmas spirit. I feel ya, bro.](https://come-forth-into-the-light.tumblr.com/post/641234943501025280)
 - [nunyabizni:
 
 newkidsonmycock35:leviathan-supersystem:
@@ -50,11 +52,4 @@ newkidsonmycock35:leviathan-supersystem:
 - [just-for-grins:
 
 I will now apologize to all the people I’ve...](https://come-forth-into-the-light.tumblr.com/post/641190932524531712)
-- [Super happy 🤣](https://come-forth-into-the-light.tumblr.com/post/641189591742840832)
-- [dizzy-pup:
-wildlifewednesdays:
-
-A camerashy little weasel!
-
-It’s...](https://come-forth-into-the-light.tumblr.com/post/641168157887873024)
 <!-- TUMBLR:END -->
