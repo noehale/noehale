@@ -41,6 +41,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [artificial-father:
+bob-artist:
+
+bob-artist:
+
+I love ferret-fighting etiquette so much.  Like, when...](https://come-forth-into-the-light.tumblr.com/post/641259130688061440)
 - [open rp](https://come-forth-into-the-light.tumblr.com/post/641236357099945984)
 - [Someone isn’t feeling the Christmas spirit. I feel ya, bro.](https://come-forth-into-the-light.tumblr.com/post/641234943501025280)
 - [nunyabizni:
@@ -49,7 +55,4 @@ newkidsonmycock35:leviathan-supersystem:
 
 (person...](https://come-forth-into-the-light.tumblr.com/post/641213707474665472)
 - [Here’s my pal Frank getting some rest.](https://come-forth-into-the-light.tumblr.com/post/641212314686750720)
-- [just-for-grins:
-
-I will now apologize to all the people I’ve...](https://come-forth-into-the-light.tumblr.com/post/641190932524531712)
 <!-- TUMBLR:END -->
