@@ -41,6 +41,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Foiled!](https://come-forth-into-the-light.tumblr.com/post/641372504117641216)
+- [When you find da perf scritchy scratchy spot 🤗🥰 *throws head...](https://come-forth-into-the-light.tumblr.com/post/641370813520543744)
 - [just-shower-thoughts:
 Owning a pet is only a fraction of a human’s life. In contrast, to that pet,...](https://come-forth-into-the-light.tumblr.com/post/641349853883039744)
 - [rotg-fan-page:
@@ -50,6 +52,4 @@ hope your pets stay healthy in 2017
 
 I almost didn’t blog this and felt...](https://come-forth-into-the-light.tumblr.com/post/641327203916873728)
 - [Bought my dog a new bed…. but these two instantly took over and...](https://come-forth-into-the-light.tumblr.com/post/641325516563038208)
-- [trutown-the-bard:clonewarslover55:elphabaforpresidentofgallifrey:...](https://come-forth-into-the-light.tumblr.com/post/641304430469316608)
-- [Hi, I’m Fifi](https://come-forth-into-the-light.tumblr.com/post/641302856880832512)
 <!-- TUMBLR:END -->
