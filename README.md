@@ -41,15 +41,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [theferrets:
+
+theferrets:
+
+Don’t ya just wanna boop their noses?...](https://come-forth-into-the-light.tumblr.com/post/641395281096835072)
+- [That brother sister love 💕](https://come-forth-into-the-light.tumblr.com/post/641393454203764736)
 - [Foiled!](https://come-forth-into-the-light.tumblr.com/post/641372504117641216)
 - [When you find da perf scritchy scratchy spot 🤗🥰 *throws head...](https://come-forth-into-the-light.tumblr.com/post/641370813520543744)
 - [just-shower-thoughts:
 Owning a pet is only a fraction of a human’s life. In contrast, to that pet,...](https://come-forth-into-the-light.tumblr.com/post/641349853883039744)
-- [rotg-fan-page:
-
-xaramizomai:
-hope your pets stay healthy in 2017
-
-I almost didn’t blog this and felt...](https://come-forth-into-the-light.tumblr.com/post/641327203916873728)
-- [Bought my dog a new bed…. but these two instantly took over and...](https://come-forth-into-the-light.tumblr.com/post/641325516563038208)
 <!-- TUMBLR:END -->
