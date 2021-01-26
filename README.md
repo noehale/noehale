@@ -41,6 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [rotg-fan-page:
+
+xaramizomai:
+hope your pets stay healthy in 2017
+
+I almost didn’t blog this and felt...](https://come-forth-into-the-light.tumblr.com/post/641327203916873728)
+- [Bought my dog a new bed…. but these two instantly took over and...](https://come-forth-into-the-light.tumblr.com/post/641325516563038208)
 - [trutown-the-bard:clonewarslover55:elphabaforpresidentofgallifrey:...](https://come-forth-into-the-light.tumblr.com/post/641304430469316608)
 - [Hi, I’m Fifi](https://come-forth-into-the-light.tumblr.com/post/641302856880832512)
 - [thelifeofmyferrets:
@@ -50,11 +57,4 @@ darktauros:
 thelifeofmyferrets:
 
 thelifeofm...](https://come-forth-into-the-light.tumblr.com/post/641281780077527040)
-- [So tired from Christmas Eve playtime 🎅 💤 💤](https://come-forth-into-the-light.tumblr.com/post/641280206795112448)
-- [artificial-father:
-bob-artist:
-
-bob-artist:
-
-I love ferret-fighting etiquette so much.  Like, when...](https://come-forth-into-the-light.tumblr.com/post/641259130688061440)
 <!-- TUMBLR:END -->
