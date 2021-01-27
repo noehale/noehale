@@ -41,9 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [only80sgifs:Mister Rogers visits Sesame Street, 1981.](https://come-forth-into-the-light.tumblr.com/post/641486128113942528)
+- [Do any other ferrets sleep with their eyes open? (This is Penne...](https://come-forth-into-the-light.tumblr.com/post/641484050784206848)
 - [jasonlives1986:I drive this and get so much pussy its insane](https://come-forth-into-the-light.tumblr.com/post/641463351930748928)
 - [thatweirdferretlady:Point made](https://come-forth-into-the-light.tumblr.com/post/641461417531375616)
 - [arreglao:Hipnótico](https://come-forth-into-the-light.tumblr.com/post/641440702411243520)
-- [Video](https://come-forth-into-the-light.tumblr.com/post/641418053108809728)
-- [Entertained himself for about 20 mins](https://come-forth-into-the-light.tumblr.com/post/641416127695765504)
 <!-- TUMBLR:END -->
