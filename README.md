@@ -41,6 +41,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatweirdferretlady:
+
+some-sort-of-ecologist:
+
+thriveworks:
+Dog...](https://come-forth-into-the-light.tumblr.com/post/641576850674548736)
+- [Dookin’ in the New Year](https://come-forth-into-the-light.tumblr.com/post/641574737020125184)
 - [sockdemons:
 
 mileskitaro:
@@ -55,6 +62,4 @@ gothdrool:
 big-boss-official:
 
 the...](https://come-forth-into-the-light.tumblr.com/post/641531551424839680)
-- [Cheer Up Post #1261 - Ferret Edition](https://come-forth-into-the-light.tumblr.com/post/641508902274514944)
-- [The three stooges](https://come-forth-into-the-light.tumblr.com/post/641506731792515072)
 <!-- TUMBLR:END -->
