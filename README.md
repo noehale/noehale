@@ -41,6 +41,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Our boy Rascal passed away recently. I miss looking for my...](https://come-forth-into-the-light.tumblr.com/post/641665287191691264)
 - [She’s having a nervous breakdown after a bath](https://come-forth-into-the-light.tumblr.com/post/641642603808423936)
 - [theferrets:
 
@@ -52,5 +53,4 @@ some-sort-of-ecologist:
 
 thriveworks:
 Dog...](https://come-forth-into-the-light.tumblr.com/post/641576850674548736)
-- [Dookin’ in the New Year](https://come-forth-into-the-light.tumblr.com/post/641574737020125184)
 <!-- TUMBLR:END -->
