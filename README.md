@@ -41,6 +41,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [theferrets:
+
+These two characters are who we named two of our...](https://come-forth-into-the-light.tumblr.com/post/641599499672911872)
+- [My favorite package](https://come-forth-into-the-light.tumblr.com/post/641597338822033408)
 - [thatweirdferretlady:
 
 some-sort-of-ecologist:
@@ -54,12 +58,4 @@ mileskitaro:
 
 ・A Ferret stumbles near! 
 The Ferret...](https://come-forth-into-the-light.tumblr.com/post/641554200819597312)
-- [Does Anyone Else Have a Climber?](https://come-forth-into-the-light.tumblr.com/post/641551971302686720)
-- [thatweirdferretlady:
-
-gothdrool:
-
-big-boss-official:
-
-the...](https://come-forth-into-the-light.tumblr.com/post/641531551424839680)
 <!-- TUMBLR:END -->
