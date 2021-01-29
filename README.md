@@ -41,6 +41,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [She’s having a nervous breakdown after a bath](https://come-forth-into-the-light.tumblr.com/post/641642603808423936)
 - [theferrets:
 
 These two characters are who we named two of our...](https://come-forth-into-the-light.tumblr.com/post/641599499672911872)
@@ -52,10 +53,4 @@ some-sort-of-ecologist:
 thriveworks:
 Dog...](https://come-forth-into-the-light.tumblr.com/post/641576850674548736)
 - [Dookin’ in the New Year](https://come-forth-into-the-light.tumblr.com/post/641574737020125184)
-- [sockdemons:
-
-mileskitaro:
-
-・A Ferret stumbles near! 
-The Ferret...](https://come-forth-into-the-light.tumblr.com/post/641554200819597312)
 <!-- TUMBLR:END -->
