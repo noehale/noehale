@@ -41,16 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Pic is a diy I found in a ferret group, thought y’all would...](https://come-forth-into-the-light.tumblr.com/post/641687924821327872)
 - [Our boy Rascal passed away recently. I miss looking for my...](https://come-forth-into-the-light.tumblr.com/post/641665287191691264)
 - [She’s having a nervous breakdown after a bath](https://come-forth-into-the-light.tumblr.com/post/641642603808423936)
 - [theferrets:
 
 These two characters are who we named two of our...](https://come-forth-into-the-light.tumblr.com/post/641599499672911872)
 - [My favorite package](https://come-forth-into-the-light.tumblr.com/post/641597338822033408)
-- [thatweirdferretlady:
-
-some-sort-of-ecologist:
-
-thriveworks:
-Dog...](https://come-forth-into-the-light.tumblr.com/post/641576850674548736)
 <!-- TUMBLR:END -->
