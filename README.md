@@ -41,9 +41,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [My daughter got me this sign for Christmas, it’s absolutely...](https://come-forth-into-the-light.tumblr.com/post/641846455115595776)
 - [They got a remote controlled mouse for Xmas, now the hooman...](https://come-forth-into-the-light.tumblr.com/post/641823800029298689)
 - [malmalforever:If you’re happy and you know it WAG YOUR TAIL...](https://come-forth-into-the-light.tumblr.com/post/641778487606280193)
 - [Photo of our new family member 💜](https://come-forth-into-the-light.tumblr.com/post/641755850748329984)
 - [Goodnight alfredo](https://come-forth-into-the-light.tumblr.com/post/641733194468802560)
-- [Pic is a diy I found in a ferret group, thought y’all would...](https://come-forth-into-the-light.tumblr.com/post/641687924821327872)
 <!-- TUMBLR:END -->
