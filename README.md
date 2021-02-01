@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediamvdrinv:The Kingdom of Dreams and Madness (2013)via Ferret Story https://redzgn.tumblr.com/post/641921949794172928](https://t.me/ferretman/91)
+- [Mediaferretfiends:zzzzvia Ferret Story https://babyiwannaknow.tumblr.com/post/641921930539253760](https://t.me/ferretman/90)
+- [Mediayouremydoll:via Ferret Story https://falalamingo.tumblr.com/post/641918154352803840](https://t.me/ferretman/89)
 - [Mediakohenari:America. 2014.via Ferret Story https://xxcrybby.tumblr.com/post/641914391746510848](https://t.me/ferretman/88)
 - [egberts:where can i buy that for freevia Ferret Story https://punkrocknat.tumblr.com/post/641906826988879872](https://t.me/ferretman/87)
-- [MediaMediaMediachalkandwater:Stoats playing.From Life (Episode 7: Hunters and Hunted, 2009)via Ferret Story https://scrisoridemai.tumblr.com/post/6419...](https://t.me/ferretman/86)
-- [Mediatheferrets:When stuffs happening and you weren’t invited…via Ferret Story https://just-a-catastrophy.tumblr.com/post/641876628755103744](https://t.me/ferretman/85)
-- [h0m0d4chi:how can him go inside but me notvia Ferret Story https://punkrocknat.tumblr.com/post/641876628757184514](https://t.me/ferretman/84)
 <!-- TELEGRAM:END -->
