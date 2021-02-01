@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediakohenari:America. 2014.via Ferret Story https://xxcrybby.tumblr.com/post/641914391746510848](https://t.me/ferretman/88)
+- [egberts:where can i buy that for freevia Ferret Story https://punkrocknat.tumblr.com/post/641906826988879872](https://t.me/ferretman/87)
+- [MediaMediaMediachalkandwater:Stoats playing.From Life (Episode 7: Hunters and Hunted, 2009)via Ferret Story https://scrisoridemai.tumblr.com/post/6419...](https://t.me/ferretman/86)
 - [Mediatheferrets:When stuffs happening and you weren’t invited…via Ferret Story https://just-a-catastrophy.tumblr.com/post/641876628755103744](https://t.me/ferretman/85)
 - [h0m0d4chi:how can him go inside but me notvia Ferret Story https://punkrocknat.tumblr.com/post/641876628757184514](https://t.me/ferretman/84)
-- [MediaShhhh baby ferrets sleeping ❤️via Ferret Story https://scrisoridemai.tumblr.com/post/641872873149071360](https://t.me/ferretman/83)
-- [Mediabob-artist:If anyone wanted to know what an angry ferret looks like,here’s Kit after getting his ears cleaned.Mediavia Ferret Story https://pret...](https://t.me/ferretman/82)
-- [moonblossom:zulies-doodles:nukenai:babyanimalgifs:What kind of pokemon is this?an electric toothbrushFor the love of god turn the sound onPoor thing i...](https://t.me/ferretman/81)
 <!-- TELEGRAM:END -->
