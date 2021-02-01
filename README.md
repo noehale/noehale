@@ -47,7 +47,7 @@
 - [malmalforever:If you’re happy and you know it WAG YOUR TAIL...](https://come-forth-into-the-light.tumblr.com/post/641778487606280193)
 - [Photo of our new family member 💜](https://come-forth-into-the-light.tumblr.com/post/641755850748329984)
 <!-- TUMBLR:END -->
-
+---
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
