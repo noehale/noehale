@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediausbdongle:themightyglamazon:android-green:bitchboi-naughty:powerburial:this is arcane knowledge that the human mind cant comprehendhonestly ...](https://t.me/ferretman/106)
-- [flannelpunkcalum:angel - what’s one character trait you like about yourself?doll - what’s your favourite outfit? pumpkin - what’s your favourite w...](https://t.me/ferretman/105)
-- [misioandkinga:🐍 🐍 🐍via Ferret Story https://just-a-catastrophy.tumblr.com/post/641967261928816640](https://t.me/ferretman/104)
-- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/103)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/641963468966215680](https://t.me/ferretman/102)
+- [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets:joyeuse-noelle:burntcopper:There is nothing about this title I do...](https://t.me/ferretman/112)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/642012602530185216](https://t.me/ferretman/111)
+- [Mediafractiousrvt:mako-symptoms:I always have to start the New Years with this picture.*stares at 2021 with immense suspicion*via Ferret Story https:/...](https://t.me/ferretman/110)
+- [<a href="https://annethecatdetective.tumblr.com/post/189814299778">annethecatdetective</a>:<a href="https://thesaltofcarthage.tumblr.com/post/18980933...](https://t.me/ferretman/109)
+- [reseteados:Elvis era todo un crack de la músicavia Ferret Story https://falalamingo.tumblr.com/post/642008748765904897](https://t.me/ferretman/108)
 <!-- TELEGRAM:END -->
