@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [onehumangallery:64bitwar: this is stomp dog it shows up to stomp away sadness sadness be stompedvia Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/115)
+- [Mediabeaniebabyoftheday:cellexa:beaniebabyoftheday:Inky the octopuswhy does inky’s tentacles eerily resemble human fingersBegone.via Ferret Story htt...](https://t.me/ferretman/114)
+- [bob-artist:bob-artist:Kit’s play style:MediaMiss Rudy’s play style:MediaExactly one year later, and Kit:MediaMediaMiss Rudy:Mediavia Ferret Story ht...](https://t.me/ferretman/113)
 - [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets:joyeuse-noelle:burntcopper:There is nothing about this title I do...](https://t.me/ferretman/112)
 - [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/642012602530185216](https://t.me/ferretman/111)
-- [Mediafractiousrvt:mako-symptoms:I always have to start the New Years with this picture.*stares at 2021 with immense suspicion*via Ferret Story https:/...](https://t.me/ferretman/110)
-- [<a href="https://annethecatdetective.tumblr.com/post/189814299778">annethecatdetective</a>:<a href="https://thesaltofcarthage.tumblr.com/post/18980933...](https://t.me/ferretman/109)
-- [reseteados:Elvis era todo un crack de la músicavia Ferret Story https://falalamingo.tumblr.com/post/642008748765904897](https://t.me/ferretman/108)
 <!-- TELEGRAM:END -->
