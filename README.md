@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediamikayla-conley:Earth Blogvia Ferret Story https://redzgn.tumblr.com/post/641952241382768640](https://t.me/ferretman/100)
-- [elvenferretots:MediaCat trees are a staple when we go to the Pantalaimon Playground (pet store). He has a tree at home, but exploring a new model can ...](https://t.me/ferretman/99)
-- [Medialiliemsharpe:MediaYes and YES!!!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/641952155147878400](https://t.me/ferretman/98)
-- [sodomymcscurvylegs:jampai:sahania:MediaMediaWhere in the World is my WIG?via Ferret Story https://falalamingo.tumblr.com/post/641948417964343296](https://t.me/ferretman/97)
 - [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/641944564770439168](https://t.me/ferretman/96)
+- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/95)
+- [Mediamischiefraven:I can relate to this via Ferret Story https://scrisoridemai.tumblr.com/post/641933287465549824](https://t.me/ferretman/94)
+- [veta-lopis:“my battery is low and it’s getting dark” is so hauntingly human, so crushingly lonely. I can’t articulate the deep, profound ache that...](https://t.me/ferretman/93)
+- [pien-art:MediaThank You Marsha P. Johnsonhappy pride month to all of you! Love fiercely, be proud, and remember the roots of pride! Recognize the priv...](https://t.me/ferretman/92)
 <!-- TELEGRAM:END -->
