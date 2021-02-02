@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediamvdrinv:The Kingdom of Dreams and Madness (2013)via Ferret Story https://redzgn.tumblr.com/post/641921949794172928](https://t.me/ferretman/91)
-- [Mediaferretfiends:zzzzvia Ferret Story https://babyiwannaknow.tumblr.com/post/641921930539253760](https://t.me/ferretman/90)
-- [Mediayouremydoll:via Ferret Story https://falalamingo.tumblr.com/post/641918154352803840](https://t.me/ferretman/89)
-- [Mediakohenari:America. 2014.via Ferret Story https://xxcrybby.tumblr.com/post/641914391746510848](https://t.me/ferretman/88)
-- [egberts:where can i buy that for freevia Ferret Story https://punkrocknat.tumblr.com/post/641906826988879872](https://t.me/ferretman/87)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/641944564770439168](https://t.me/ferretman/96)
+- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/95)
+- [Mediamischiefraven:I can relate to this via Ferret Story https://scrisoridemai.tumblr.com/post/641933287465549824](https://t.me/ferretman/94)
+- [veta-lopis:“my battery is low and it’s getting dark” is so hauntingly human, so crushingly lonely. I can’t articulate the deep, profound ache that...](https://t.me/ferretman/93)
+- [pien-art:MediaThank You Marsha P. Johnsonhappy pride month to all of you! Love fiercely, be proud, and remember the roots of pride! Recognize the priv...](https://t.me/ferretman/92)
 <!-- TELEGRAM:END -->
