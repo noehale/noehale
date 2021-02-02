@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thelifeofmyferrets:I keep seeing this ferret stuck in a paper...](https://come-forth-into-the-light.tumblr.com/post/641959703853842432)
 - [thatweirdferretlady:Everyone look out. She’s mad. Don’t know...](https://come-forth-into-the-light.tumblr.com/post/641937090694742016)
 - [This Christmas, we present you Habitat 2067. This post modern,...](https://come-forth-into-the-light.tumblr.com/post/641914406203228160)
 - [Mushu isn’t impressed lol](https://come-forth-into-the-light.tumblr.com/post/641869069933576192)
 - [My daughter got me this sign for Christmas, it’s absolutely...](https://come-forth-into-the-light.tumblr.com/post/641846455115595776)
-- [They got a remote controlled mouse for Xmas, now the hooman...](https://come-forth-into-the-light.tumblr.com/post/641823800029298689)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
