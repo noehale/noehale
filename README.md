@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaDaphne was too sleepy to use her back legs first thing this morning.via Ferret Story https://scrisoridemai.tumblr.com/post/642114479107293184](https://t.me/ferretman/132)
-- [Mediarowangoat:the shirt’s backvia Ferret Story https://prettypeterparkr.tumblr.com/post/642114461027680256](https://t.me/ferretman/131)
-- [MediaMediaunpopular-ship-queen:gwydtheunusual:fabulouscrabulous:Just flip ‘em!Please do this for them if you find one… They are so completely harmle...](https://t.me/ferretman/130)
-- [shamwowxl:not-so-secret-nerd:childofwestwind:Do not let us die again, we where left once before because of a part of ourselves we can’t control.Don’...](https://t.me/ferretman/129)
-- [ferretsoftiktok:Note: If ferrets are not being fed meat, kitten food is a good option until they can be fed meat. Ferrets should not be eating cat foo...](https://t.me/ferretman/128)
+- [onehumangallery:64bitwar: this is stomp dog it shows up to stomp away sadness sadness be stompedvia Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/115)
+- [Mediabeaniebabyoftheday:cellexa:beaniebabyoftheday:Inky the octopuswhy does inky’s tentacles eerily resemble human fingersBegone.via Ferret Story htt...](https://t.me/ferretman/114)
+- [bob-artist:bob-artist:Kit’s play style:MediaMiss Rudy’s play style:MediaExactly one year later, and Kit:MediaMediaMiss Rudy:Mediavia Ferret Story ht...](https://t.me/ferretman/113)
+- [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets:joyeuse-noelle:burntcopper:There is nothing about this title I do...](https://t.me/ferretman/112)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/642012602530185216](https://t.me/ferretman/111)
 <!-- TELEGRAM:END -->
