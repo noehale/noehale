@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [becausebirds:When you’re trying to do homework but you can’t because birdsvia Ferret Story https://xxcrybby.tumblr.com/post/642095592150073344](https://t.me/ferretman/125)
-- [Mediaflovvright:me trying to comprehend anything anyone says to mevia Ferret Story https://punkrocknat.tumblr.com/post/642087997982048256](https://t.me/ferretman/124)
-- [Mediatheferrets:theferrets:The whole gangI lied. It’s this photo that’s my phone screen <3 via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/123)
-- [Medianothing better than a warm pile of ferret on a cold snow day❤️via Ferret Story https://scrisoridemai.tumblr.com/post/642054061886242816](https://t.me/ferretman/122)
-- [Mediatheamiableanachronism:retarded-racist-larper:We were all so wrapped up in dad jokes that we forgot grandpa humorgrandpa humor is dad jokes aged l...](https://t.me/ferretman/121)
+- [MediaDaphne was too sleepy to use her back legs first thing this morning.via Ferret Story https://scrisoridemai.tumblr.com/post/642114479107293184](https://t.me/ferretman/132)
+- [Mediarowangoat:the shirt’s backvia Ferret Story https://prettypeterparkr.tumblr.com/post/642114461027680256](https://t.me/ferretman/131)
+- [MediaMediaunpopular-ship-queen:gwydtheunusual:fabulouscrabulous:Just flip ‘em!Please do this for them if you find one… They are so completely harmle...](https://t.me/ferretman/130)
+- [shamwowxl:not-so-secret-nerd:childofwestwind:Do not let us die again, we where left once before because of a part of ourselves we can’t control.Don’...](https://t.me/ferretman/129)
+- [ferretsoftiktok:Note: If ferrets are not being fed meat, kitten food is a good option until they can be fed meat. Ferrets should not be eating cat foo...](https://t.me/ferretman/128)
 <!-- TELEGRAM:END -->
