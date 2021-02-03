@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [misioandkinga:🐍 🐍 🐍via Ferret Story https://just-a-catastrophy.tumblr.com/post/641967261928816640](https://t.me/ferretman/104)
-- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/103)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/641963468966215680](https://t.me/ferretman/102)
-- [MediaHalloumi (m/8months) being a Good Big Brother with Gorgonzola (f/3months)via Ferret Story https://scrisoridemai.tumblr.com/post/64196344319334809...](https://t.me/ferretman/101)
-- [Mediamikayla-conley:Earth Blogvia Ferret Story https://redzgn.tumblr.com/post/641952241382768640](https://t.me/ferretman/100)
+- [Mediatheamiableanachronism:retarded-racist-larper:We were all so wrapped up in dad jokes that we forgot grandpa humorgrandpa humor is dad jokes aged l...](https://t.me/ferretman/121)
+- [everythingfox:Family lunch(via)via Ferret Story https://babyiwannaknow.tumblr.com/post/642042817077805056](https://t.me/ferretman/120)
+- [shangalangalang:micaxiii:airyairyquitecontrary:indigobluerose:thathighclassbitch:tienriu:katiekomics:euphrates75:No harm to any religion. It’s just a...](https://t.me/ferretman/119)
+- [MediaMediaMediaMediaMediaMediagalsgadot:Happy New Year!via Ferret Story https://redzgn.tumblr.com/post/642042751508201472](https://t.me/ferretman/118)
+- [thejakelikesonions:MediaThe adventures of Goth Duckvia Ferret Story https://falalamingo.tumblr.com/post/642038993383456768](https://t.me/ferretman/117)
 <!-- TELEGRAM:END -->
