@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Medianothing better than a warm pile of ferret on a cold snow day❤️via Ferret Story https://scrisoridemai.tumblr.com/post/642054061886242816](https://t.me/ferretman/122)
 - [Mediatheamiableanachronism:retarded-racist-larper:We were all so wrapped up in dad jokes that we forgot grandpa humorgrandpa humor is dad jokes aged l...](https://t.me/ferretman/121)
 - [everythingfox:Family lunch(via)via Ferret Story https://babyiwannaknow.tumblr.com/post/642042817077805056](https://t.me/ferretman/120)
 - [shangalangalang:micaxiii:airyairyquitecontrary:indigobluerose:thathighclassbitch:tienriu:katiekomics:euphrates75:No harm to any religion. It’s just a...](https://t.me/ferretman/119)
 - [MediaMediaMediaMediaMediaMediagalsgadot:Happy New Year!via Ferret Story https://redzgn.tumblr.com/post/642042751508201472](https://t.me/ferretman/118)
-- [thejakelikesonions:MediaThe adventures of Goth Duckvia Ferret Story https://falalamingo.tumblr.com/post/642038993383456768](https://t.me/ferretman/117)
 <!-- TELEGRAM:END -->
