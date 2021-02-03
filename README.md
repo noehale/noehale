@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [roman-sunshine:](https://come-forth-into-the-light.tumblr.com/post/642050303610535936)
 - [Our Christmas elf doesn’t like her costume :/](https://come-forth-into-the-light.tumblr.com/post/642027631669362688)
 - [Yes ferrets like to climb… Max was nearly 5 foot off the ground...](https://come-forth-into-the-light.tumblr.com/post/642004996187095040)
 - [thelifeofmyferrets:I keep seeing this ferret stuck in a paper...](https://come-forth-into-the-light.tumblr.com/post/641959703853842432)
 - [thatweirdferretlady:Everyone look out. She’s mad. Don’t know...](https://come-forth-into-the-light.tumblr.com/post/641937090694742016)
-- [This Christmas, we present you Habitat 2067. This post modern,...](https://come-forth-into-the-light.tumblr.com/post/641914406203228160)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
