@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [onehumangallery:64bitwar: this is stomp dog it shows up to stomp away sadness sadness be stompedvia Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/115)
-- [Mediabeaniebabyoftheday:cellexa:beaniebabyoftheday:Inky the octopuswhy does inky’s tentacles eerily resemble human fingersBegone.via Ferret Story htt...](https://t.me/ferretman/114)
-- [bob-artist:bob-artist:Kit’s play style:MediaMiss Rudy’s play style:MediaExactly one year later, and Kit:MediaMediaMiss Rudy:Mediavia Ferret Story ht...](https://t.me/ferretman/113)
-- [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets:joyeuse-noelle:burntcopper:There is nothing about this title I do...](https://t.me/ferretman/112)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/642012602530185216](https://t.me/ferretman/111)
+- [misioandkinga:🐍 🐍 🐍via Ferret Story https://just-a-catastrophy.tumblr.com/post/641967261928816640](https://t.me/ferretman/104)
+- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/103)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/641963468966215680](https://t.me/ferretman/102)
+- [MediaHalloumi (m/8months) being a Good Big Brother with Gorgonzola (f/3months)via Ferret Story https://scrisoridemai.tumblr.com/post/64196344319334809...](https://t.me/ferretman/101)
+- [Mediamikayla-conley:Earth Blogvia Ferret Story https://redzgn.tumblr.com/post/641952241382768640](https://t.me/ferretman/100)
 <!-- TELEGRAM:END -->
