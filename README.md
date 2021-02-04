@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediazachpennington:parislemon:X-Men, united.What clip are these from?via Ferret Story https://falalamingo.tumblr.com/post/64212958505672704...](https://t.me/ferretman/135)
-- [linxsay:linxsay:alright so who wants to fall in love with methis is unbelievable I have to do everything myselfvia Ferret Story https://xxcrybby.tumbl...](https://t.me/ferretman/134)
-- [“shit wrong blog” - every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://just-a-catastrophy.tumblr.com/post/642118293007859...](https://t.me/ferretman/133)
-- [MediaDaphne was too sleepy to use her back legs first thing this morning.via Ferret Story https://scrisoridemai.tumblr.com/post/642114479107293184](https://t.me/ferretman/132)
-- [Mediarowangoat:the shirt’s backvia Ferret Story https://prettypeterparkr.tumblr.com/post/642114461027680256](https://t.me/ferretman/131)
+- [gnagster: i put the :// in http://via Ferret Story https://just-a-catastrophy.tumblr.com/post/642148416621805569](https://t.me/ferretman/143)
+- [we-are-renegade-rebels:luccorvus:just-things-i-enjoy:official-mugi:immaplatypus:thenatsdorf:Black cats are lucky. (via leahweissmuller)MAN [IN THICK ...](https://t.me/ferretman/142)
+- [Mediatheferrets:positivedoodles:requested by thisshalldestroymeGo follow this blog. K bye!via Ferret Story https://scrisoridemai.tumblr.com/post/64214...](https://t.me/ferretman/141)
+- [MediaMediabob-artist:bob-artist:The #1 fun thing to do to a pointy ferret face.MediaMediaWhen you want a treat, but all you get is pinchfacevia Ferret...](https://t.me/ferretman/140)
+- [lepidopterium:>:C i am Sick and Cold and i would like some soupvia Ferret Story https://anasfalhhhs.tumblr.com/post/642137083669069824](https://t.me/ferretman/139)
 <!-- TELEGRAM:END -->
