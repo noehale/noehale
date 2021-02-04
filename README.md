@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [nerviovago:Mediavia Ferret Story https://punkrocknat.tumblr.com/post/642178603118985216](https://t.me/ferretman/144)
-- [gnagster: i put the :// in http://via Ferret Story https://just-a-catastrophy.tumblr.com/post/642148416621805569](https://t.me/ferretman/143)
-- [we-are-renegade-rebels:luccorvus:just-things-i-enjoy:official-mugi:immaplatypus:thenatsdorf:Black cats are lucky. (via leahweissmuller)MAN [IN THICK ...](https://t.me/ferretman/142)
-- [Mediatheferrets:positivedoodles:requested by thisshalldestroymeGo follow this blog. K bye!via Ferret Story https://scrisoridemai.tumblr.com/post/64214...](https://t.me/ferretman/141)
-- [MediaMediabob-artist:bob-artist:The #1 fun thing to do to a pointy ferret face.MediaMediaWhen you want a treat, but all you get is pinchfacevia Ferret...](https://t.me/ferretman/140)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/642197517810925568](https://t.me/ferretman/150)
+- [Mediaheauxsettastoned:newkidsonmycock31:MediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642193758048452608](https://t.me/ferretman/149)
+- [MediaMediawind-up-key:wind-up-key:balfies:fleurdemeth:Portrait of a Young Woman, Jean-Etienne Liotard Girl with a Pearl Earring, Johannes Vermeer #t...](https://t.me/ferretman/148)
+- [everythingfox:Sound onvia Ferret Story https://babyiwannaknow.tumblr.com/post/642193748682571777](https://t.me/ferretman/147)
+- [tygermama:soap-lady:that1nerdgirl:theoneandonlyredrobin:paddysnuffles:charanal:wishful-thinkment:justforthearticles:lunalovegouda:Those people who con...](https://t.me/ferretman/146)
 <!-- TELEGRAM:END -->
