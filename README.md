@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [nerviovago:Mediavia Ferret Story https://punkrocknat.tumblr.com/post/642178603118985216](https://t.me/ferretman/144)
-- [gnagster: i put the :// in http://via Ferret Story https://just-a-catastrophy.tumblr.com/post/642148416621805569](https://t.me/ferretman/143)
-- [we-are-renegade-rebels:luccorvus:just-things-i-enjoy:official-mugi:immaplatypus:thenatsdorf:Black cats are lucky. (via leahweissmuller)MAN [IN THICK ...](https://t.me/ferretman/142)
 - [Mediatheferrets:positivedoodles:requested by thisshalldestroymeGo follow this blog. K bye!via Ferret Story https://scrisoridemai.tumblr.com/post/64214...](https://t.me/ferretman/141)
 - [MediaMediabob-artist:bob-artist:The #1 fun thing to do to a pointy ferret face.MediaMediaWhen you want a treat, but all you get is pinchfacevia Ferret...](https://t.me/ferretman/140)
+- [lepidopterium:>:C i am Sick and Cold and i would like some soupvia Ferret Story https://anasfalhhhs.tumblr.com/post/642137083669069824](https://t.me/ferretman/139)
+- [Mediadoubleca5t:injuries-in-dust:I’m gonna guess that they aren’t normally allowed to sit on the furniture.Mediavia Ferret Story https://somewhere-i...](https://t.me/ferretman/138)
+- [Mediaserialreblogger:bundibird:silentauroriamthereal:We’re really at this point of the dystopia, huhI thought this was a joke but wow no Trump really...](https://t.me/ferretman/137)
 <!-- TELEGRAM:END -->
