@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediatheferrets:positivedoodles:requested by thisshalldestroymeGo follow this blog. K bye!via Ferret Story https://scrisoridemai.tumblr.com/post/64214...](https://t.me/ferretman/141)
-- [MediaMediabob-artist:bob-artist:The #1 fun thing to do to a pointy ferret face.MediaMediaWhen you want a treat, but all you get is pinchfacevia Ferret...](https://t.me/ferretman/140)
-- [lepidopterium:>:C i am Sick and Cold and i would like some soupvia Ferret Story https://anasfalhhhs.tumblr.com/post/642137083669069824](https://t.me/ferretman/139)
-- [Mediadoubleca5t:injuries-in-dust:I’m gonna guess that they aren’t normally allowed to sit on the furniture.Mediavia Ferret Story https://somewhere-i...](https://t.me/ferretman/138)
-- [Mediaserialreblogger:bundibird:silentauroriamthereal:We’re really at this point of the dystopia, huhI thought this was a joke but wow no Trump really...](https://t.me/ferretman/137)
+- [MediaMediaMediazachpennington:parislemon:X-Men, united.What clip are these from?via Ferret Story https://falalamingo.tumblr.com/post/64212958505672704...](https://t.me/ferretman/135)
+- [linxsay:linxsay:alright so who wants to fall in love with methis is unbelievable I have to do everything myselfvia Ferret Story https://xxcrybby.tumbl...](https://t.me/ferretman/134)
+- [“shit wrong blog” - every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://just-a-catastrophy.tumblr.com/post/642118293007859...](https://t.me/ferretman/133)
+- [MediaDaphne was too sleepy to use her back legs first thing this morning.via Ferret Story https://scrisoridemai.tumblr.com/post/642114479107293184](https://t.me/ferretman/132)
+- [Mediarowangoat:the shirt’s backvia Ferret Story https://prettypeterparkr.tumblr.com/post/642114461027680256](https://t.me/ferretman/131)
 <!-- TELEGRAM:END -->
