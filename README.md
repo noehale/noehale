@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediacannonball-the-ferret:mrpaws:Happy Ferret Tongues.MediaBumblebee bleepsvia Ferret Story https://pret...](https://t.me/ferretman/160)
-- [yeah my contract actually just got extendedvia Ferret Story https://anasfalhhhs.tumblr.com/post/642227710175952896](https://t.me/ferretman/159)
-- [Mediaflovvright:me trying to comprehend anything anyone says to mevia Ferret Story https://babyiwannaknow.tumblr.com/post/642224015809904640](https://t.me/ferretman/158)
-- [Mediaterriblerealestateagentphotos:Let’s be optimistic. Perhaps it says “Surprise my coconut“.via Ferret Story https://somewhere-inthe-deepdetails....](https://t.me/ferretman/157)
-- [Mediacwnerd12:sauceofduck:wildedoesntblog:I will always add the follow up to this.MediaMediaMediaMediaMedia10k enemies to lovers slow burnI’M CRYINGv...](https://t.me/ferretman/156)
+- [candiikismet:soft-symbiote:the-thought-emporium-imperial:oddityball:I LOVE THAT THEY KEEP PICKING UP MORE OMGMan, The Spiderverse movie looks rough as...](https://t.me/ferretman/154)
+- [MediaMediaMediaMediamisioandkinga:honestly? she’s a blessing <3via Ferret Story https://just-a-catastrophy.tumblr.com/post/642208873385803776](https://t.me/ferretman/153)
+- [Mediaselki:My favourite toy is my: beenneebabeI like it because: it is sofdvia Ferret Story https://scrisoridemai.tumblr.com/post/642205038852423680](https://t.me/ferretman/152)
+- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/151)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/642197517810925568](https://t.me/ferretman/150)
 <!-- TELEGRAM:END -->
