@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/642197517810925568](https://t.me/ferretman/150)
-- [Mediaheauxsettastoned:newkidsonmycock31:MediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642193758048452608](https://t.me/ferretman/149)
-- [MediaMediawind-up-key:wind-up-key:balfies:fleurdemeth:Portrait of a Young Woman, Jean-Etienne Liotard Girl with a Pearl Earring, Johannes Vermeer #t...](https://t.me/ferretman/148)
-- [everythingfox:Sound onvia Ferret Story https://babyiwannaknow.tumblr.com/post/642193748682571777](https://t.me/ferretman/147)
-- [tygermama:soap-lady:that1nerdgirl:theoneandonlyredrobin:paddysnuffles:charanal:wishful-thinkment:justforthearticles:lunalovegouda:Those people who con...](https://t.me/ferretman/146)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediacannonball-the-ferret:mrpaws:Happy Ferret Tongues.MediaBumblebee bleepsvia Ferret Story https://pret...](https://t.me/ferretman/160)
+- [yeah my contract actually just got extendedvia Ferret Story https://anasfalhhhs.tumblr.com/post/642227710175952896](https://t.me/ferretman/159)
+- [Mediaflovvright:me trying to comprehend anything anyone says to mevia Ferret Story https://babyiwannaknow.tumblr.com/post/642224015809904640](https://t.me/ferretman/158)
+- [Mediaterriblerealestateagentphotos:Let’s be optimistic. Perhaps it says “Surprise my coconut“.via Ferret Story https://somewhere-inthe-deepdetails....](https://t.me/ferretman/157)
+- [Mediacwnerd12:sauceofduck:wildedoesntblog:I will always add the follow up to this.MediaMediaMediaMediaMedia10k enemies to lovers slow burnI’M CRYINGv...](https://t.me/ferretman/156)
 <!-- TELEGRAM:END -->
