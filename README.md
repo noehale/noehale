@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Our little rescues are doing great, finally acting the way kits...](https://come-forth-into-the-light.tumblr.com/post/642231510755393536)
 - [The adventures of Gunther and Morty: Part 1 😊](https://come-forth-into-the-light.tumblr.com/post/642208839100399616)
 - [i think fiona definitely likes cleaning day more than i do](https://come-forth-into-the-light.tumblr.com/post/642186186453073920)
 - [cannonball-the-ferret:It’s tax season so don’t forget to file taxes for you business! “Number...](https://come-forth-into-the-light.tumblr.com/post/642140905334259712)
 - [bob-artist:Even Kit’s FEET get so super fluffy in winter, and I...](https://come-forth-into-the-light.tumblr.com/post/642118229818507264)
-- [This is Bandit, he’s been here on my parents fridge since this...](https://come-forth-into-the-light.tumblr.com/post/642095596455493632)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
