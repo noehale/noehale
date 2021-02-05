@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediatimetrees:honeyglazedchicken:beyond-authority:MediaUpdate!Mr. City#mr city was my father please call me owlvia Ferret Story https://just-a-catast...](https://t.me/ferretman/162)
-- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/161)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediacannonball-the-ferret:mrpaws:Happy Ferret Tongues.MediaBumblebee bleepsvia Ferret Story https://pret...](https://t.me/ferretman/160)
-- [yeah my contract actually just got extendedvia Ferret Story https://anasfalhhhs.tumblr.com/post/642227710175952896](https://t.me/ferretman/159)
-- [Mediaflovvright:me trying to comprehend anything anyone says to mevia Ferret Story https://babyiwannaknow.tumblr.com/post/642224015809904640](https://t.me/ferretman/158)
+- [Mediahearthawk:redfeathered:thepeoplesmanifesto:Schools: don’t teach those skills anymoreStuff: is made to not be repairableTools & Materials: are pr...](https://t.me/ferretman/167)
+- [MediaMediafluffygif:Lovely couplevia Ferret Story https://babyiwannaknow.tumblr.com/post/642284371603243008](https://t.me/ferretman/166)
+- [Mediahello! come here if you need a hug!Mediaa little closer!Mediahug!Mediayou are a good person navigating a complicated life. keep doing your best!M...](https://t.me/ferretman/165)
+- [Mediayourplayersaidwhat:We made it to level 11. The DM seems fine. She’s fine.via Ferret Story https://falalamingo.tumblr.com/post/642280525896253440](https://t.me/ferretman/164)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/642276755834617856](https://t.me/ferretman/163)
 <!-- TELEGRAM:END -->
