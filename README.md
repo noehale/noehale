@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [lilytrang: I crave youin the mostinnocent formfor I crave to saygood nightand give youforehead...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/171)
-- [ferretsofmine:MediaComing home from work like ~via Ferret Story https://scrisoridemai.tumblr.com/post/642295632217997312](https://t.me/ferretman/170)
-- [Mediathatweirdferretlady:thelifeofmyferrets:This is bittersweet. I think I like this better than the rainbow bridge, tbh. I like the idea of ferrets i...](https://t.me/ferretman/169)
-- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/642288076930039808](https://t.me/ferretman/168)
 - [Mediahearthawk:redfeathered:thepeoplesmanifesto:Schools: don’t teach those skills anymoreStuff: is made to not be repairableTools & Materials: are pr...](https://t.me/ferretman/167)
+- [MediaMediafluffygif:Lovely couplevia Ferret Story https://babyiwannaknow.tumblr.com/post/642284371603243008](https://t.me/ferretman/166)
+- [Mediahello! come here if you need a hug!Mediaa little closer!Mediahug!Mediayou are a good person navigating a complicated life. keep doing your best!M...](https://t.me/ferretman/165)
+- [Mediayourplayersaidwhat:We made it to level 11. The DM seems fine. She’s fine.via Ferret Story https://falalamingo.tumblr.com/post/642280525896253440](https://t.me/ferretman/164)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/642276755834617856](https://t.me/ferretman/163)
 <!-- TELEGRAM:END -->
