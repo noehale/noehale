@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [candiikismet:soft-symbiote:the-thought-emporium-imperial:oddityball:I LOVE THAT THEY KEEP PICKING UP MORE OMGMan, The Spiderverse movie looks rough as...](https://t.me/ferretman/154)
-- [MediaMediaMediaMediamisioandkinga:honestly? she’s a blessing <3via Ferret Story https://just-a-catastrophy.tumblr.com/post/642208873385803776](https://t.me/ferretman/153)
-- [Mediaselki:My favourite toy is my: beenneebabeI like it because: it is sofdvia Ferret Story https://scrisoridemai.tumblr.com/post/642205038852423680](https://t.me/ferretman/152)
-- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/151)
 - [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/642197517810925568](https://t.me/ferretman/150)
+- [Mediaheauxsettastoned:newkidsonmycock31:MediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642193758048452608](https://t.me/ferretman/149)
+- [MediaMediawind-up-key:wind-up-key:balfies:fleurdemeth:Portrait of a Young Woman, Jean-Etienne Liotard Girl with a Pearl Earring, Johannes Vermeer #t...](https://t.me/ferretman/148)
+- [everythingfox:Sound onvia Ferret Story https://babyiwannaknow.tumblr.com/post/642193748682571777](https://t.me/ferretman/147)
+- [tygermama:soap-lady:that1nerdgirl:theoneandonlyredrobin:paddysnuffles:charanal:wishful-thinkment:justforthearticles:lunalovegouda:Those people who con...](https://t.me/ferretman/146)
 <!-- TELEGRAM:END -->
