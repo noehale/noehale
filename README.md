@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [theferrets:unorthodox-views:ckascade:rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyNot riskin...](https://t.me/ferretman/178)
 - [Mediababydreamgirl:People forget that horses literally invented ketaminevia Ferret Story https://anasfalhhhs.tumblr.com/post/642318282992517120](https://t.me/ferretman/177)
 - [MediaMy Ziggy Zooms showing off the chonkvia Ferret Story https://babyiwannaknow.tumblr.com/post/642314566278184960](https://t.me/ferretman/176)
 - [Medialenbiab:fuck dude it sure isvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642314522500235265](https://t.me/ferretman/175)
 - [MediaMediaMediaMediapseudonymjones:Christ on a bike, I can’t believe this post has over 10K notes now. I had to turn off anon messages because every ...](https://t.me/ferretman/174)
-- [Mediasometimes-butts:ibnuprofen:hotdog-friend:is that butterno it’s stonehengeI can’t believe it’s not buttervia Ferret Story https://falalamingo.t...](https://t.me/ferretman/173)
 <!-- TELEGRAM:END -->
