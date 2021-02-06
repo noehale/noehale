@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediababydreamgirl:People forget that horses literally invented ketaminevia Ferret Story https://anasfalhhhs.tumblr.com/post/642318282992517120](https://t.me/ferretman/177)
-- [MediaMy Ziggy Zooms showing off the chonkvia Ferret Story https://babyiwannaknow.tumblr.com/post/642314566278184960](https://t.me/ferretman/176)
-- [Medialenbiab:fuck dude it sure isvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642314522500235265](https://t.me/ferretman/175)
-- [MediaMediaMediaMediapseudonymjones:Christ on a bike, I can’t believe this post has over 10K notes now. I had to turn off anon messages because every ...](https://t.me/ferretman/174)
-- [Mediasometimes-butts:ibnuprofen:hotdog-friend:is that butterno it’s stonehengeI can’t believe it’s not buttervia Ferret Story https://falalamingo.t...](https://t.me/ferretman/173)
+- [Mediahearthawk:redfeathered:thepeoplesmanifesto:Schools: don’t teach those skills anymoreStuff: is made to not be repairableTools & Materials: are pr...](https://t.me/ferretman/167)
+- [MediaMediafluffygif:Lovely couplevia Ferret Story https://babyiwannaknow.tumblr.com/post/642284371603243008](https://t.me/ferretman/166)
+- [Mediahello! come here if you need a hug!Mediaa little closer!Mediahug!Mediayou are a good person navigating a complicated life. keep doing your best!M...](https://t.me/ferretman/165)
+- [Mediayourplayersaidwhat:We made it to level 11. The DM seems fine. She’s fine.via Ferret Story https://falalamingo.tumblr.com/post/642280525896253440](https://t.me/ferretman/164)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/642276755834617856](https://t.me/ferretman/163)
 <!-- TELEGRAM:END -->
