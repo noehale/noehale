@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [lilytrang: I crave youin the mostinnocent formfor I crave to saygood nightand give youforehead...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/171)
-- [ferretsofmine:MediaComing home from work like ~via Ferret Story https://scrisoridemai.tumblr.com/post/642295632217997312](https://t.me/ferretman/170)
-- [Mediathatweirdferretlady:thelifeofmyferrets:This is bittersweet. I think I like this better than the rainbow bridge, tbh. I like the idea of ferrets i...](https://t.me/ferretman/169)
-- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/642288076930039808](https://t.me/ferretman/168)
-- [Mediahearthawk:redfeathered:thepeoplesmanifesto:Schools: don’t teach those skills anymoreStuff: is made to not be repairableTools & Materials: are pr...](https://t.me/ferretman/167)
+- [Mediababydreamgirl:People forget that horses literally invented ketaminevia Ferret Story https://anasfalhhhs.tumblr.com/post/642318282992517120](https://t.me/ferretman/177)
+- [MediaMy Ziggy Zooms showing off the chonkvia Ferret Story https://babyiwannaknow.tumblr.com/post/642314566278184960](https://t.me/ferretman/176)
+- [Medialenbiab:fuck dude it sure isvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642314522500235265](https://t.me/ferretman/175)
+- [MediaMediaMediaMediapseudonymjones:Christ on a bike, I can’t believe this post has over 10K notes now. I had to turn off anon messages because every ...](https://t.me/ferretman/174)
+- [Mediasometimes-butts:ibnuprofen:hotdog-friend:is that butterno it’s stonehengeI can’t believe it’s not buttervia Ferret Story https://falalamingo.t...](https://t.me/ferretman/173)
 <!-- TELEGRAM:END -->
