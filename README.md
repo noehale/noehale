@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [pkmntrainermadoka:when ur friend starts liking something u rly likeimagevia Ferret Story https://xxcrybby.tumblr.com/post/642397580054102016](https://t.me/ferretman/191)
+- [zaftig-goddess: shadiobrando: why don’t at least half my followers on here follow me on instagram i...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/190)
+- [alpacaassasin:shittycryptids:Cerberus, but a 3-headed Ferret.MediaSmol ladsvia Ferret Story https://scrisoridemai.tumblr.com/post/642386315625775104](https://t.me/ferretman/189)
+- [MediaShhh, pls scroll quietly- the baby is sleepingvia Ferret Story https://prettypeterparkr.tumblr.com/post/642386278538723328](https://t.me/ferretman/188)
 - [Mediamako-symptoms:I always have to start the New Years with this picture.via Ferret Story https://anasfalhhhs.tumblr.com/post/642378715286978560](https://t.me/ferretman/187)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642374984741879808](https://t.me/ferretman/186)
-- [Mediawakeup cuddlesvia Ferret Story https://babyiwannaknow.tumblr.com/post/642374907362213889](https://t.me/ferretman/185)
-- [pretty-little-grapefruit:Reblog if you do too. Just to prove that it is more normal than what people actually think.via Ferret Story https://somewhere...](https://t.me/ferretman/184)
-- [crtter:thetenderpassion:MediaMediavia Ferret Story https://falalamingo.tumblr.com/post/642371135408947200](https://t.me/ferretman/183)
 <!-- TELEGRAM:END -->
