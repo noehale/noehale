@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [somecutething:He’s really loving the pets!!(via Puku_Puku_Gram) ](https://come-forth-into-the-light.tumblr.com/post/642367350465773568)
 - [Trinity says the food dish is the perfect place for a nap!](https://come-forth-into-the-light.tumblr.com/post/642322117392777216)
 - [Is this fairly normal, or cause for concern?](https://come-forth-into-the-light.tumblr.com/post/642299421674094593)
 - [Falkor loves the cuddle cave Santa brought him for being such a...](https://come-forth-into-the-light.tumblr.com/post/642276794362429440)
 - [Our little rescues are doing great, finally acting the way kits...](https://come-forth-into-the-light.tumblr.com/post/642231510755393536)
-- [The adventures of Gunther and Morty: Part 1 😊](https://come-forth-into-the-light.tumblr.com/post/642208839100399616)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
