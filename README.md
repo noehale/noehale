@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [logicalberry:reademmaduh:only1600kids:*gets penalty*“that’s bullshit”*watches replay*“.. yeah okay”This is flawless. I can’t stop watching.he re...](https://t.me/ferretman/182)
-- [MediaMediathelifeofmyferrets:How much is that ferret in the window?I do hope that ferret is for sale.Sorry folks, Lucy is not for sale.via Ferret Stor...](https://t.me/ferretman/181)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediawapiti3:Stoat (Mustela erminea), also known as the short-tailed weasel,Photographer: Jan Larssonvia ...](https://t.me/ferretman/180)
-- [Mediafluffy-taocs:bippletonvia Ferret Story https://punkrocknat.tumblr.com/post/642329609216688128](https://t.me/ferretman/179)
-- [theferrets:unorthodox-views:ckascade:rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyNot riskin...](https://t.me/ferretman/178)
+- [Mediamako-symptoms:I always have to start the New Years with this picture.via Ferret Story https://anasfalhhhs.tumblr.com/post/642378715286978560](https://t.me/ferretman/187)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642374984741879808](https://t.me/ferretman/186)
+- [Mediawakeup cuddlesvia Ferret Story https://babyiwannaknow.tumblr.com/post/642374907362213889](https://t.me/ferretman/185)
+- [pretty-little-grapefruit:Reblog if you do too. Just to prove that it is more normal than what people actually think.via Ferret Story https://somewhere...](https://t.me/ferretman/184)
+- [crtter:thetenderpassion:MediaMediavia Ferret Story https://falalamingo.tumblr.com/post/642371135408947200](https://t.me/ferretman/183)
 <!-- TELEGRAM:END -->
