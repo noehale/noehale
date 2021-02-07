@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [pkmntrainermadoka:when ur friend starts liking something u rly likeimagevia Ferret Story https://xxcrybby.tumblr.com/post/642397580054102016](https://t.me/ferretman/191)
-- [zaftig-goddess: shadiobrando: why don’t at least half my followers on here follow me on instagram i...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/190)
-- [alpacaassasin:shittycryptids:Cerberus, but a 3-headed Ferret.MediaSmol ladsvia Ferret Story https://scrisoridemai.tumblr.com/post/642386315625775104](https://t.me/ferretman/189)
-- [MediaShhh, pls scroll quietly- the baby is sleepingvia Ferret Story https://prettypeterparkr.tumblr.com/post/642386278538723328](https://t.me/ferretman/188)
-- [Mediamako-symptoms:I always have to start the New Years with this picture.via Ferret Story https://anasfalhhhs.tumblr.com/post/642378715286978560](https://t.me/ferretman/187)
+- [Mediaintroducing molly and garrettvia Ferret Story https://prettypeterparkr.tumblr.com/post/642416478517362688](https://t.me/ferretman/198)
+- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://scr...](https://t.me/ferretman/197)
+- [MediaMediathelifeofmyferrets:How much is that ferret in the window?I do hope that ferret is for sale.Sorry folks, Lucy is not for sale.via Ferret Stor...](https://t.me/ferretman/196)
+- [24ozsteak:you ever just hand things to ur pet to sniff so they can feel includedvia Ferret Story https://redzgn.tumblr.com/post/642405223682441216](https://t.me/ferretman/195)
+- [MediaMediaMediaitscolossal:A Small Scottish Town Delegates the Annual Christmas Light Display to Its Youngest Residentsvia Ferret Story https://somewh...](https://t.me/ferretman/194)
 <!-- TELEGRAM:END -->
