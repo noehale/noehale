@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediafruitsgood:phoneus:awwww-cute:A 2 week old lemming in a spoon (Source: http://ift.tt/2lmfIsE)MediaMediavia Ferret Story https://falalamingo.tumbl...](https://t.me/ferretman/203)
+- [legally-a-bastard:dykelliewilliams:willow-wanderings:castle-engineer:all-aboard-the-bane-train:mmmmmistilllikepotatosalad:OMFG.Very curious doggoRemin...](https://t.me/ferretman/202)
+- [everythingfox:he comin’(via)via Ferret Story https://punkrocknat.tumblr.com/post/642450397345267712](https://t.me/ferretman/201)
 - [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642420258116960256](https://t.me/ferretman/200)
 - [MediaMediadearlystims:🐟| ig: bo_mang_covia Ferret Story https://punkrocknat.tumblr.com/post/642420258219671552](https://t.me/ferretman/199)
-- [Mediaintroducing molly and garrettvia Ferret Story https://prettypeterparkr.tumblr.com/post/642416478517362688](https://t.me/ferretman/198)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://scr...](https://t.me/ferretman/197)
-- [MediaMediathelifeofmyferrets:How much is that ferret in the window?I do hope that ferret is for sale.Sorry folks, Lucy is not for sale.via Ferret Stor...](https://t.me/ferretman/196)
 <!-- TELEGRAM:END -->
