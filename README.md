@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [logicalberry:reademmaduh:only1600kids:*gets penalty*“that’s bullshit”*watches replay*“.. yeah okay”This is flawless. I can’t stop watching.he re...](https://t.me/ferretman/182)
-- [MediaMediathelifeofmyferrets:How much is that ferret in the window?I do hope that ferret is for sale.Sorry folks, Lucy is not for sale.via Ferret Stor...](https://t.me/ferretman/181)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediawapiti3:Stoat (Mustela erminea), also known as the short-tailed weasel,Photographer: Jan Larssonvia ...](https://t.me/ferretman/180)
-- [Mediafluffy-taocs:bippletonvia Ferret Story https://punkrocknat.tumblr.com/post/642329609216688128](https://t.me/ferretman/179)
-- [theferrets:unorthodox-views:ckascade:rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyNot riskin...](https://t.me/ferretman/178)
+- [pkmntrainermadoka:when ur friend starts liking something u rly likeimagevia Ferret Story https://xxcrybby.tumblr.com/post/642397580054102016](https://t.me/ferretman/191)
+- [zaftig-goddess: shadiobrando: why don’t at least half my followers on here follow me on instagram i...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/190)
+- [alpacaassasin:shittycryptids:Cerberus, but a 3-headed Ferret.MediaSmol ladsvia Ferret Story https://scrisoridemai.tumblr.com/post/642386315625775104](https://t.me/ferretman/189)
+- [MediaShhh, pls scroll quietly- the baby is sleepingvia Ferret Story https://prettypeterparkr.tumblr.com/post/642386278538723328](https://t.me/ferretman/188)
+- [Mediamako-symptoms:I always have to start the New Years with this picture.via Ferret Story https://anasfalhhhs.tumblr.com/post/642378715286978560](https://t.me/ferretman/187)
 <!-- TELEGRAM:END -->
