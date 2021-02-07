@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/642480646765346816)
 - [My Rotini just passed away. I really thought he was going to be...](https://come-forth-into-the-light.tumblr.com/post/642457965650149376)
 - [My new cup!](https://come-forth-into-the-light.tumblr.com/post/642412690065801216)
 - [Rocket is slowly but surely learning to love snuggles. 💕](https://come-forth-into-the-light.tumblr.com/post/642390025427976192)
 - [somecutething:He’s really loving the pets!!(via Puku_Puku_Gram) ](https://come-forth-into-the-light.tumblr.com/post/642367350465773568)
-- [Trinity says the food dish is the perfect place for a nap!](https://come-forth-into-the-light.tumblr.com/post/642322117392777216)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
