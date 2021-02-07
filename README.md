@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642465540923916289](https://t.me/ferretman/206)
-- [MediaI see you!via Ferret Story https://babyiwannaknow.tumblr.com/post/642465505823834112](https://t.me/ferretman/205)
-- [Mediachibird:A small dog to remind you of how good you’re doing, which is very good. ♡via Ferret Story https://somewhere-inthe-deepdetails.tumblr.c...](https://t.me/ferretman/204)
-- [Mediafruitsgood:phoneus:awwww-cute:A 2 week old lemming in a spoon (Source: http://ift.tt/2lmfIsE)MediaMediavia Ferret Story https://falalamingo.tumbl...](https://t.me/ferretman/203)
-- [legally-a-bastard:dykelliewilliams:willow-wanderings:castle-engineer:all-aboard-the-bane-train:mmmmmistilllikepotatosalad:OMFG.Very curious doggoRemin...](https://t.me/ferretman/202)
+- [pkmntrainermadoka:when ur friend starts liking something u rly likeimagevia Ferret Story https://xxcrybby.tumblr.com/post/642397580054102016](https://t.me/ferretman/191)
+- [zaftig-goddess: shadiobrando: why don’t at least half my followers on here follow me on instagram i...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/190)
+- [alpacaassasin:shittycryptids:Cerberus, but a 3-headed Ferret.MediaSmol ladsvia Ferret Story https://scrisoridemai.tumblr.com/post/642386315625775104](https://t.me/ferretman/189)
+- [MediaShhh, pls scroll quietly- the baby is sleepingvia Ferret Story https://prettypeterparkr.tumblr.com/post/642386278538723328](https://t.me/ferretman/188)
+- [Mediamako-symptoms:I always have to start the New Years with this picture.via Ferret Story https://anasfalhhhs.tumblr.com/post/642378715286978560](https://t.me/ferretman/187)
 <!-- TELEGRAM:END -->
