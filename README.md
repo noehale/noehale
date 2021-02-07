@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642465540923916289](https://t.me/ferretman/206)
+- [MediaI see you!via Ferret Story https://babyiwannaknow.tumblr.com/post/642465505823834112](https://t.me/ferretman/205)
+- [Mediachibird:A small dog to remind you of how good you’re doing, which is very good. ♡via Ferret Story https://somewhere-inthe-deepdetails.tumblr.c...](https://t.me/ferretman/204)
 - [Mediafruitsgood:phoneus:awwww-cute:A 2 week old lemming in a spoon (Source: http://ift.tt/2lmfIsE)MediaMediavia Ferret Story https://falalamingo.tumbl...](https://t.me/ferretman/203)
 - [legally-a-bastard:dykelliewilliams:willow-wanderings:castle-engineer:all-aboard-the-bane-train:mmmmmistilllikepotatosalad:OMFG.Very curious doggoRemin...](https://t.me/ferretman/202)
-- [everythingfox:he comin’(via)via Ferret Story https://punkrocknat.tumblr.com/post/642450397345267712](https://t.me/ferretman/201)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642420258116960256](https://t.me/ferretman/200)
-- [MediaMediadearlystims:🐟| ig: bo_mang_covia Ferret Story https://punkrocknat.tumblr.com/post/642420258219671552](https://t.me/ferretman/199)
 <!-- TELEGRAM:END -->
