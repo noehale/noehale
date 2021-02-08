@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/642495729096622080](https://t.me/ferretman/212)
+- [Mediareseteados:Felicidadvia Ferret Story https://falalamingo.tumblr.com/post/642491964451864576](https://t.me/ferretman/211)
+- [Mediaponi1kenobi:diaryofakanemem:I need this.Reblogged last year, hoping it comes this yearvia Ferret Story https://xxcrybby.tumblr.com/post/642488165...](https://t.me/ferretman/210)
 - [canisalbus:*me looking at pets foot*: Perfect. Such tiny delicate construction. This is the greatest...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/209)
 - [gravitren:She dooksvia Ferret Story https://scrisoridemai.tumblr.com/post/642476867111256064](https://t.me/ferretman/208)
-- [Mediawho wants to join the ferret cuddle pile?via Ferret Story https://prettypeterparkr.tumblr.com/post/642476867121774592](https://t.me/ferretman/207)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642465540923916289](https://t.me/ferretman/206)
-- [MediaI see you!via Ferret Story https://babyiwannaknow.tumblr.com/post/642465505823834112](https://t.me/ferretman/205)
 <!-- TELEGRAM:END -->
