@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642420258116960256](https://t.me/ferretman/200)
-- [MediaMediadearlystims:🐟| ig: bo_mang_covia Ferret Story https://punkrocknat.tumblr.com/post/642420258219671552](https://t.me/ferretman/199)
-- [Mediaintroducing molly and garrettvia Ferret Story https://prettypeterparkr.tumblr.com/post/642416478517362688](https://t.me/ferretman/198)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://scr...](https://t.me/ferretman/197)
-- [MediaMediathelifeofmyferrets:How much is that ferret in the window?I do hope that ferret is for sale.Sorry folks, Lucy is not for sale.via Ferret Stor...](https://t.me/ferretman/196)
+- [canisalbus:*me looking at pets foot*: Perfect. Such tiny delicate construction. This is the greatest...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/209)
+- [gravitren:She dooksvia Ferret Story https://scrisoridemai.tumblr.com/post/642476867111256064](https://t.me/ferretman/208)
+- [Mediawho wants to join the ferret cuddle pile?via Ferret Story https://prettypeterparkr.tumblr.com/post/642476867121774592](https://t.me/ferretman/207)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642465540923916289](https://t.me/ferretman/206)
+- [MediaI see you!via Ferret Story https://babyiwannaknow.tumblr.com/post/642465505823834112](https://t.me/ferretman/205)
 <!-- TELEGRAM:END -->
