@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [ratsofftoya:ratsofftoya:fuck all philosophy except for whatever the hell Diogenes was trying to teachMediadirect actionvia Ferret Story https://anasfa...](https://t.me/ferretman/214)
+- [Mediamaddieonthings:Always more room for mornings like thisvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642495794441830400](https://t.me/ferretman/213)
 - [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/642495729096622080](https://t.me/ferretman/212)
 - [Mediareseteados:Felicidadvia Ferret Story https://falalamingo.tumblr.com/post/642491964451864576](https://t.me/ferretman/211)
 - [Mediaponi1kenobi:diaryofakanemem:I need this.Reblogged last year, hoping it comes this yearvia Ferret Story https://xxcrybby.tumblr.com/post/642488165...](https://t.me/ferretman/210)
-- [canisalbus:*me looking at pets foot*: Perfect. Such tiny delicate construction. This is the greatest...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/209)
-- [gravitren:She dooksvia Ferret Story https://scrisoridemai.tumblr.com/post/642476867111256064](https://t.me/ferretman/208)
 <!-- TELEGRAM:END -->
