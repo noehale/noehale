@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaghostboyfriend:Live fast die young bad cats do it wellvia Ferret Story https://falalamingo.tumblr.com/post/642552333860012032](https://t.me/ferretman/221)
+- [MediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/642548576916029441](https://t.me/ferretman/220)
+- [MediaMediaMediaMediabensears:Early December 2019 35mmvia Ferret Story https://punkrocknat.tumblr.com/post/642540993442398208](https://t.me/ferretman/219)
 - [Buy FoenixGrey a Coffee. ko-fi.com/foenixgrey:phoenix:I only got a few days left to make this month’s payment for the plumbing bill.  I ned 300 doll...](https://t.me/ferretman/218)
 - [Mediaaskbombasticblake:thesassycat:You can only reblog this today.I missed my chance last year. Not gonna let it happen againvia Ferret Story https://...](https://t.me/ferretman/217)
-- [singsoftly:the-mighty-birdy:intjint:ampervadasz:Happiness@overlord-puffinOFF THE SHITS@rainbow–diccvia Ferret Story https://scrisoridemai.tumblr.com/...](https://t.me/ferretman/216)
-- [MediaLinguine Beanie! 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/642507024514580480](https://t.me/ferretman/215)
-- [ratsofftoya:ratsofftoya:fuck all philosophy except for whatever the hell Diogenes was trying to teachMediadirect actionvia Ferret Story https://anasfa...](https://t.me/ferretman/214)
 <!-- TELEGRAM:END -->
