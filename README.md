@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaghostboyfriend:Live fast die young bad cats do it wellvia Ferret Story https://falalamingo.tumblr.com/post/642552333860012032](https://t.me/ferretman/221)
-- [MediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/642548576916029441](https://t.me/ferretman/220)
-- [MediaMediaMediaMediabensears:Early December 2019 35mmvia Ferret Story https://punkrocknat.tumblr.com/post/642540993442398208](https://t.me/ferretman/219)
-- [Buy FoenixGrey a Coffee. ko-fi.com/foenixgrey:phoenix:I only got a few days left to make this month’s payment for the plumbing bill.  I ned 300 doll...](https://t.me/ferretman/218)
-- [Mediaaskbombasticblake:thesassycat:You can only reblog this today.I missed my chance last year. Not gonna let it happen againvia Ferret Story https://...](https://t.me/ferretman/217)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642571211001479168](https://t.me/ferretman/228)
+- [MediaShh mom they’re sleepingvia Ferret Story https://scrisoridemai.tumblr.com/post/642567468693471232](https://t.me/ferretman/227)
+- [MediaMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/642567440008658944](https://t.me/ferretman/226)
+- [MediaMediavertigocampoelias:Des Rocsvia Ferret Story https://anasfalhhhs.tumblr.com/post/642559908108222464](https://t.me/ferretman/225)
+- [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://babyiwannaknow.tumblr.com/post/6425561823446958...](https://t.me/ferretman/224)
 <!-- TELEGRAM:END -->
