@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Anyone for Hide & Seek ?](https://come-forth-into-the-light.tumblr.com/post/642548568203362304)
 - [2 months old, my baby Eevee! First ever ferret after my husband...](https://come-forth-into-the-light.tumblr.com/post/642503295494193152)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/642480646765346816)
 - [My Rotini just passed away. I really thought he was going to be...](https://come-forth-into-the-light.tumblr.com/post/642457965650149376)
 - [My new cup!](https://come-forth-into-the-light.tumblr.com/post/642412690065801216)
-- [Rocket is slowly but surely learning to love snuggles. 💕](https://come-forth-into-the-light.tumblr.com/post/642390025427976192)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
