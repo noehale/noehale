@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Buy FoenixGrey a Coffee. ko-fi.com/foenixgrey:phoenix:I only got a few days left to make this month’s payment for the plumbing bill.  I ned 300 doll...](https://t.me/ferretman/218)
+- [Mediaaskbombasticblake:thesassycat:You can only reblog this today.I missed my chance last year. Not gonna let it happen againvia Ferret Story https://...](https://t.me/ferretman/217)
+- [singsoftly:the-mighty-birdy:intjint:ampervadasz:Happiness@overlord-puffinOFF THE SHITS@rainbow–diccvia Ferret Story https://scrisoridemai.tumblr.com/...](https://t.me/ferretman/216)
+- [MediaLinguine Beanie! 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/642507024514580480](https://t.me/ferretman/215)
 - [ratsofftoya:ratsofftoya:fuck all philosophy except for whatever the hell Diogenes was trying to teachMediadirect actionvia Ferret Story https://anasfa...](https://t.me/ferretman/214)
-- [Mediamaddieonthings:Always more room for mornings like thisvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642495794441830400](https://t.me/ferretman/213)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/642495729096622080](https://t.me/ferretman/212)
-- [Mediareseteados:Felicidadvia Ferret Story https://falalamingo.tumblr.com/post/642491964451864576](https://t.me/ferretman/211)
-- [Mediaponi1kenobi:diaryofakanemem:I need this.Reblogged last year, hoping it comes this yearvia Ferret Story https://xxcrybby.tumblr.com/post/642488165...](https://t.me/ferretman/210)
 <!-- TELEGRAM:END -->
