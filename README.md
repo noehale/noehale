@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Gwen on the right looks up to her biggest brother Karkat and...](https://come-forth-into-the-light.tumblr.com/post/642639145027698688)
 - [Caiman and Polar’s first Christmas 🥰 My room is destroyed!...](https://come-forth-into-the-light.tumblr.com/post/642593859991486464)
 - [Took my fur baby to the mountains to experience his first...](https://come-forth-into-the-light.tumblr.com/post/642571226415497216)
 - [Anyone for Hide & Seek ?](https://come-forth-into-the-light.tumblr.com/post/642548568203362304)
 - [2 months old, my baby Eevee! First ever ferret after my husband...](https://come-forth-into-the-light.tumblr.com/post/642503295494193152)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/642480646765346816)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
