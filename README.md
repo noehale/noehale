@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642571211001479168](https://t.me/ferretman/228)
-- [MediaShh mom they’re sleepingvia Ferret Story https://scrisoridemai.tumblr.com/post/642567468693471232](https://t.me/ferretman/227)
-- [MediaMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/642567440008658944](https://t.me/ferretman/226)
-- [MediaMediavertigocampoelias:Des Rocsvia Ferret Story https://anasfalhhhs.tumblr.com/post/642559908108222464](https://t.me/ferretman/225)
-- [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://babyiwannaknow.tumblr.com/post/6425561823446958...](https://t.me/ferretman/224)
+- [theferrets:You spin me right round baby right round 🎶via Ferret Story https://babyiwannaknow.tumblr.com/post/642586403170025472](https://t.me/ferretman/233)
+- [MediaMediaMediaitscolossal:A Staggering Sculptural Rug by Artist Faig Ahmed Pours into an Amorphous Puddlevia Ferret Story https://somewhere-inthe-dee...](https://t.me/ferretman/232)
+- [MediaMediaawfulpunk:it would be a dream scenario if the democrats actually wanted any of thisvia Ferret Story https://redzgn.tumblr.com/post/642586319...](https://t.me/ferretman/231)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediawellthatsadorable:oncesingingalways:Quality. Content.same.via Ferret Story https://falalamingo.tumbl...](https://t.me/ferretman/230)
+- [senpaimarco:don’t ever feel bad for asking me to tag a triggeri do not care what the trigger isi will tag it for youyou have legitimate reasons to be...](https://t.me/ferretman/229)
 <!-- TELEGRAM:END -->
