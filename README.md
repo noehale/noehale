@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642571211001479168](https://t.me/ferretman/228)
-- [MediaShh mom they’re sleepingvia Ferret Story https://scrisoridemai.tumblr.com/post/642567468693471232](https://t.me/ferretman/227)
-- [MediaMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/642567440008658944](https://t.me/ferretman/226)
-- [MediaMediavertigocampoelias:Des Rocsvia Ferret Story https://anasfalhhhs.tumblr.com/post/642559908108222464](https://t.me/ferretman/225)
-- [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://babyiwannaknow.tumblr.com/post/6425561823446958...](https://t.me/ferretman/224)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/642601436419686400](https://t.me/ferretman/238)
+- [Mediaferret-flops:thefingerfuckingfemalefury:keepmywhiskeyneat:wyvernchild:lavender-ice:please.That is the exact spot my parents found a stray kitten....](https://t.me/ferretman/237)
+- [MediaFerret.mp4via Ferret Story https://prettypeterparkr.tumblr.com/post/642597636255465472](https://t.me/ferretman/236)
+- [Mediabeaniebabyoftheday:Happy Hanukkah the bearhappy hanukkah to all who celebrate it!!via Ferret Story https://scrisoridemai.tumblr.com/post/64259761...](https://t.me/ferretman/235)
+- [doujinshi:here in my gar͙̟̗̲͠a͓̻̬̝ą̭͉̤aA͏̞̦ͅA̦̰͚̼͎͎̼A̴a̮͚̝̯͖͙a͡a̟̞̯̯̰a͙͕̙͚g͕̤̘͔e͓̖ͅ just bought this ...](https://t.me/ferretman/234)
 <!-- TELEGRAM:END -->
