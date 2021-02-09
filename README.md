@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediadoodleofboredom:The mimic octopus has been known to trick land dwellers into giving them candy. Beware of their cun...](https://t.me/ferretman/245)
-- [c0litasxo:trappedblackrose:everydaylouie:happy halloween! here is a ghost duetI love this so much. I always play it when it comes onhow cutevia Ferret...](https://t.me/ferretman/244)
-- [“I was made for the library, not the classroom. The classroom was a jail of other people’s interests. The library was open, unending, free.”- Ta-Ne...](https://t.me/ferretman/243)
-- [gawki:MediaYa don’t saaaayyvia Ferret Story https://babyiwannaknow.tumblr.com/post/642646810023886848](https://t.me/ferretman/242)
-- [jasonseney:rneowth:image13,165 hoursShe finally finished her homework 😔via Ferret Story https://redzgn.tumblr.com/post/642646734547386369](https://t.me/ferretman/241)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/642601436419686400](https://t.me/ferretman/238)
+- [Mediaferret-flops:thefingerfuckingfemalefury:keepmywhiskeyneat:wyvernchild:lavender-ice:please.That is the exact spot my parents found a stray kitten....](https://t.me/ferretman/237)
+- [MediaFerret.mp4via Ferret Story https://prettypeterparkr.tumblr.com/post/642597636255465472](https://t.me/ferretman/236)
+- [Mediabeaniebabyoftheday:Happy Hanukkah the bearhappy hanukkah to all who celebrate it!!via Ferret Story https://scrisoridemai.tumblr.com/post/64259761...](https://t.me/ferretman/235)
+- [doujinshi:here in my gar͙̟̗̲͠a͓̻̬̝ą̭͉̤aA͏̞̦ͅA̦̰͚̼͎͎̼A̴a̮͚̝̯͖͙a͡a̟̞̯̯̰a͙͕̙͚g͕̤̘͔e͓̖ͅ just bought this ...](https://t.me/ferretman/234)
 <!-- TELEGRAM:END -->
