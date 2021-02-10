@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediadashbeardconfessional:the plant has a questionvia Ferret Story https://punkrocknat.tumblr.com/post/642692017841897472](https://t.me/ferretman/258)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642692017108942848](https://t.me/ferretman/257)
-- [MediaMediaMediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/642688227198795776](https://t.me/ferretman/256)
-- [MediaGotta stash that Covid. (Brilliant toys from TheFluffyMist on Etsy)via Ferret Story https://prettypeterparkr.tumblr.com/post/642688227198779392](https://t.me/ferretman/255)
-- [scatteradaptandremember:UNITED STATESPortland, OR5/10 Powell’s City of BooksReading with Douglas Wolk!7:30pm, 1005 W. Burnside Street, Portland, OR...](https://t.me/ferretman/254)
+- [Mediaamnhnyc:Meet the Spangled Cotinga (Cotinga cayana)! While females of the species come in shades of brown, males have bright turquoise plumage, a ...](https://t.me/ferretman/263)
+- [becausebirds:Playing fetch with an emu.via Ferret Story https://xxcrybby.tumblr.com/post/642729749700018176](https://t.me/ferretman/262)
+- [MediaDoes he blend in with the toys? He thinks he does!via Ferret Story https://babyiwannaknow.tumblr.com/post/642737351581450240](https://t.me/ferretman/261)
+- [Mediathejonymyster:i thot the beatles diedvia Ferret Story https://falalamingo.tumblr.com/post/642733520808296448](https://t.me/ferretman/260)
+- [MediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/642722185807593472](https://t.me/ferretman/259)
 <!-- TELEGRAM:END -->
