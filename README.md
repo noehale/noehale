@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediascottlava:“I don’t wanna fight dragons.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642676928776699904](https://t.me/ferretman/250)
-- [Mediasirfrogsworth:This is the kind of weaponization of the elderly I can get behind. via Ferret Story https://xxcrybby.tumblr.com/post/6426693411507...](https://t.me/ferretman/249)
-- [Mediagucciballs:Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642661809079418880](https://t.me/ferretman/248)
-- [MediaAnyone else have a noodle that dunks their toys??via Ferret Story https://scrisoridemai.tumblr.com/post/642658027040866305](https://t.me/ferretman/247)
-- [Mediasleepy baby in his cat tower😴via Ferret Story https://prettypeterparkr.tumblr.com/post/642658027043995648](https://t.me/ferretman/246)
+- [Mediadashbeardconfessional:the plant has a questionvia Ferret Story https://punkrocknat.tumblr.com/post/642692017841897472](https://t.me/ferretman/258)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642692017108942848](https://t.me/ferretman/257)
+- [MediaMediaMediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/642688227198795776](https://t.me/ferretman/256)
+- [MediaGotta stash that Covid. (Brilliant toys from TheFluffyMist on Etsy)via Ferret Story https://prettypeterparkr.tumblr.com/post/642688227198779392](https://t.me/ferretman/255)
+- [scatteradaptandremember:UNITED STATESPortland, OR5/10 Powell’s City of BooksReading with Douglas Wolk!7:30pm, 1005 W. Burnside Street, Portland, OR...](https://t.me/ferretman/254)
 <!-- TELEGRAM:END -->
