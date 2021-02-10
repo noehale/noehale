@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediadoodleofboredom:The mimic octopus has been known to trick land dwellers into giving them candy. Beware of their cun...](https://t.me/ferretman/245)
-- [c0litasxo:trappedblackrose:everydaylouie:happy halloween! here is a ghost duetI love this so much. I always play it when it comes onhow cutevia Ferret...](https://t.me/ferretman/244)
-- [“I was made for the library, not the classroom. The classroom was a jail of other people’s interests. The library was open, unending, free.”- Ta-Ne...](https://t.me/ferretman/243)
-- [gawki:MediaYa don’t saaaayyvia Ferret Story https://babyiwannaknow.tumblr.com/post/642646810023886848](https://t.me/ferretman/242)
-- [jasonseney:rneowth:image13,165 hoursShe finally finished her homework 😔via Ferret Story https://redzgn.tumblr.com/post/642646734547386369](https://t.me/ferretman/241)
+- [Mediascottlava:“I don’t wanna fight dragons.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642676928776699904](https://t.me/ferretman/250)
+- [Mediasirfrogsworth:This is the kind of weaponization of the elderly I can get behind. via Ferret Story https://xxcrybby.tumblr.com/post/6426693411507...](https://t.me/ferretman/249)
+- [Mediagucciballs:Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642661809079418880](https://t.me/ferretman/248)
+- [MediaAnyone else have a noodle that dunks their toys??via Ferret Story https://scrisoridemai.tumblr.com/post/642658027040866305](https://t.me/ferretman/247)
+- [Mediasleepy baby in his cat tower😴via Ferret Story https://prettypeterparkr.tumblr.com/post/642658027043995648](https://t.me/ferretman/246)
 <!-- TELEGRAM:END -->
