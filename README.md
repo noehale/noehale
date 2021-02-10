@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Instead of getting toys that my ferrets will instantly forget...](https://come-forth-into-the-light.tumblr.com/post/642752481536966657)
 - [yourfavefucks:All Ferrets fuck to survive!](https://come-forth-into-the-light.tumblr.com/post/642729793876541440)
 - [Slipper Thief 💖](https://come-forth-into-the-light.tumblr.com/post/642684448547192832)
 - [What on earth is she doing to her toy?? I’m dying laughing](https://come-forth-into-the-light.tumblr.com/post/642661808426123264)
 - [Gwen on the right looks up to her biggest brother Karkat and...](https://come-forth-into-the-light.tumblr.com/post/642639145027698688)
-- [Caiman and Polar’s first Christmas 🥰 My room is destroyed!...](https://come-forth-into-the-light.tumblr.com/post/642593859991486464)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
