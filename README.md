@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaamnhnyc:Meet the Spangled Cotinga (Cotinga cayana)! While females of the species come in shades of brown, males have bright turquoise plumage, a ...](https://t.me/ferretman/263)
-- [becausebirds:Playing fetch with an emu.via Ferret Story https://xxcrybby.tumblr.com/post/642729749700018176](https://t.me/ferretman/262)
-- [MediaDoes he blend in with the toys? He thinks he does!via Ferret Story https://babyiwannaknow.tumblr.com/post/642737351581450240](https://t.me/ferretman/261)
-- [Mediathejonymyster:i thot the beatles diedvia Ferret Story https://falalamingo.tumblr.com/post/642733520808296448](https://t.me/ferretman/260)
-- [MediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/642722185807593472](https://t.me/ferretman/259)
+- [MediaOur year old Pen (Penné f) finally got a little sibling!!! Welcome home Mac (Macaroni m)via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/268)
+- [MediaOscar playin’via Ferret Story https://prettypeterparkr.tumblr.com/post/642748646173163521](https://t.me/ferretman/267)
+- [MediaI really can’t take him. Nimbus is the most special little ferret ❤️🥺via Ferret Story https://scrisoridemai.tumblr.com/post/642748615565115...](https://t.me/ferretman/266)
+- [repomantis:garashirs:garashirs:ratatouille went so hard and it didn’t even have toMediaMediaMediathis is a kid’s movie about a rat who wants to be a...](https://t.me/ferretman/265)
+- [wadey-wilson:no offense to 2020 but what the fuckvia Ferret Story https://redzgn.tumblr.com/post/642737366333800448](https://t.me/ferretman/264)
 <!-- TELEGRAM:END -->
