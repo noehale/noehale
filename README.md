@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [scatteradaptandremember:UNITED STATESPortland, OR5/10 Powell’s City of BooksReading with Douglas Wolk!7:30pm, 1005 W. Burnside Street, Portland, OR...](https://t.me/ferretman/254)
+- [mallgothsapphic:MediaMediareaction images!💖like or rb if you use please!💖via Ferret Story https://babyiwannaknow.tumblr.com/post/642677012335591...](https://t.me/ferretman/253)
+- [MediaMediaMediaMediaMediavia Ferret Story https://redzgn.tumblr.com/post/642676928779780096](https://t.me/ferretman/252)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/642673122161688576](https://t.me/ferretman/251)
 - [Mediascottlava:“I don’t wanna fight dragons.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642676928776699904](https://t.me/ferretman/250)
-- [Mediasirfrogsworth:This is the kind of weaponization of the elderly I can get behind. via Ferret Story https://xxcrybby.tumblr.com/post/6426693411507...](https://t.me/ferretman/249)
-- [Mediagucciballs:Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642661809079418880](https://t.me/ferretman/248)
-- [MediaAnyone else have a noodle that dunks their toys??via Ferret Story https://scrisoridemai.tumblr.com/post/642658027040866305](https://t.me/ferretman/247)
-- [Mediasleepy baby in his cat tower😴via Ferret Story https://prettypeterparkr.tumblr.com/post/642658027043995648](https://t.me/ferretman/246)
 <!-- TELEGRAM:END -->
