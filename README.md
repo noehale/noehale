@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642767574701162497](https://t.me/ferretman/273)
 - [Medialiliemsharpe:MediaYes and YES!!!via Ferret Story https://redzgn.tumblr.com/post/642767500271075328](https://t.me/ferretman/272)
 - [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642767497325641728](https://t.me/ferretman/271)
 - [catchymemes:imagevia Ferret Story https://falalamingo.tumblr.com/post/642763731356483584](https://t.me/ferretman/270)
 - [magic-and-moonlit-wings:leonei-d:emmeetslawschool:thenatsdorf:Bff’s from the beginning.that baby is making biscuits on that cat. what a role reversal...](https://t.me/ferretman/269)
-- [MediaOur year old Pen (Penné f) finally got a little sibling!!! Welcome home Mac (Macaroni m)via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/268)
 <!-- TELEGRAM:END -->
