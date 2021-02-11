@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Ling Ling loves booty and belly scritches, but also loves to...](https://come-forth-into-the-light.tumblr.com/post/642843026784501760)
 - [We managed to get a family photo](https://come-forth-into-the-light.tumblr.com/post/642820372577812480)
 - [My boyfriend has really taken this ferret dad thing in his...](https://come-forth-into-the-light.tumblr.com/post/642775047148339200)
 - [Instead of getting toys that my ferrets will instantly forget...](https://come-forth-into-the-light.tumblr.com/post/642752481536966657)
 - [yourfavefucks:All Ferrets fuck to survive!](https://come-forth-into-the-light.tumblr.com/post/642729793876541440)
-- [Slipper Thief 💖](https://come-forth-into-the-light.tumblr.com/post/642684448547192832)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
