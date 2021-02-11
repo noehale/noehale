@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [magic-and-moonlit-wings:leonei-d:emmeetslawschool:thenatsdorf:Bff’s from the beginning.that baby is making biscuits on that cat. what a role reversal...](https://t.me/ferretman/269)
-- [MediaOur year old Pen (Penné f) finally got a little sibling!!! Welcome home Mac (Macaroni m)via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/268)
-- [MediaOscar playin’via Ferret Story https://prettypeterparkr.tumblr.com/post/642748646173163521](https://t.me/ferretman/267)
-- [MediaI really can’t take him. Nimbus is the most special little ferret ❤️🥺via Ferret Story https://scrisoridemai.tumblr.com/post/642748615565115...](https://t.me/ferretman/266)
-- [repomantis:garashirs:garashirs:ratatouille went so hard and it didn’t even have toMediaMediaMediathis is a kid’s movie about a rat who wants to be a...](https://t.me/ferretman/265)
+- [eeveez: supermario17karate: eeveez: you have no proof that i am not at least one of the members of...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/278)
+- [cataclysmictranquility:do you ever look at your pet and you can literally feel your heart melting because you love them so muchvia Ferret Story https:...](https://t.me/ferretman/277)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/642778824646524928](https://t.me/ferretman/276)
+- [MediaMy mom’s cute tired boy😁😁😁😁😁via Ferret Story https://scrisoridemai.tumblr.com/post/642778816144719872](https://t.me/ferretman/275)
+- [Media2-shane-s:I thought that only the bag of chips was knitted so I was like lmaoo fucking idiot bird got owned then I saw that the bird was knitted ...](https://t.me/ferretman/274)
 <!-- TELEGRAM:END -->
