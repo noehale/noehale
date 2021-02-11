@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/642820328560754688](https://t.me/ferretman/280)
-- [Mediasissybiscuit:If you liked the Coffee Tag Yourself, maybe you’ll like the Tea Tag Yourself!Check out the original link here.imagevia Ferret Story...](https://t.me/ferretman/279)
-- [eeveez: supermario17karate: eeveez: you have no proof that i am not at least one of the members of...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/278)
-- [cataclysmictranquility:do you ever look at your pet and you can literally feel your heart melting because you love them so muchvia Ferret Story https:...](https://t.me/ferretman/277)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/642778824646524928](https://t.me/ferretman/276)
+- [Mediarisingoflights:unofficiallydisney:This makes me so happyThere’s a very good, clear message here that is surprisingly hard to articulate. You go,...](https://t.me/ferretman/285)
+- [yeah my contract actually just got extendedvia Ferret Story https://anasfalhhhs.tumblr.com/post/642831667023724544](https://t.me/ferretman/284)
+- [thatweirdferretlady:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642827984611459072](https://t.me/ferretman/283)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642827911694516224](https://t.me/ferretman/282)
+- [Mediabecasaurusbex:shortcuttothestars:ambris-art:glenn-griffon:the-walking-tardis:castiel-knight-of-hell:xtheycallmeslimshadyx:problematic-url:basilsi...](https://t.me/ferretman/281)
 <!-- TELEGRAM:END -->
