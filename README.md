@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Medialiliemsharpe:MediaYes and YES!!!via Ferret Story https://redzgn.tumblr.com/post/642767500271075328](https://t.me/ferretman/272)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642767497325641728](https://t.me/ferretman/271)
-- [catchymemes:imagevia Ferret Story https://falalamingo.tumblr.com/post/642763731356483584](https://t.me/ferretman/270)
 - [magic-and-moonlit-wings:leonei-d:emmeetslawschool:thenatsdorf:Bff’s from the beginning.that baby is making biscuits on that cat. what a role reversal...](https://t.me/ferretman/269)
 - [MediaOur year old Pen (Penné f) finally got a little sibling!!! Welcome home Mac (Macaroni m)via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/268)
+- [MediaOscar playin’via Ferret Story https://prettypeterparkr.tumblr.com/post/642748646173163521](https://t.me/ferretman/267)
+- [MediaI really can’t take him. Nimbus is the most special little ferret ❤️🥺via Ferret Story https://scrisoridemai.tumblr.com/post/642748615565115...](https://t.me/ferretman/266)
+- [repomantis:garashirs:garashirs:ratatouille went so hard and it didn’t even have toMediaMediaMediathis is a kid’s movie about a rat who wants to be a...](https://t.me/ferretman/265)
 <!-- TELEGRAM:END -->
