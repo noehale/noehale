@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediarisingoflights:unofficiallydisney:This makes me so happyThere’s a very good, clear message here that is surprisingly hard to articulate. You go,...](https://t.me/ferretman/285)
-- [yeah my contract actually just got extendedvia Ferret Story https://anasfalhhhs.tumblr.com/post/642831667023724544](https://t.me/ferretman/284)
-- [thatweirdferretlady:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642827984611459072](https://t.me/ferretman/283)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642827911694516224](https://t.me/ferretman/282)
-- [Mediabecasaurusbex:shortcuttothestars:ambris-art:glenn-griffon:the-walking-tardis:castiel-knight-of-hell:xtheycallmeslimshadyx:problematic-url:basilsi...](https://t.me/ferretman/281)
+- [MediaMediaMediaMediawicdiv:THE WICKED + THE DIVINE ISSUE 23Basically, it’s our Kevin Wada issue, and our solution to the problem of “how to do an is...](https://t.me/ferretman/294)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642858101528313857](https://t.me/ferretman/293)
+- [ex0skeletal:Pro Tip: Instead of having feelings, try being dead inside. Everything is still horrible but you will not care at all.via Ferret Story htt...](https://t.me/ferretman/292)
+- [MediaMediaMediaMedialazyshoes:dungeons-and-dragonborns:timothydelaghetto:yulinkuang:mountstar:Types of matterThis explains plasma better than my high ...](https://t.me/ferretman/291)
+- [lies:windsroad:I agree that tumblr is objectively the best social media right now but we CANNOT let this go to our heads. If we act like this site is ...](https://t.me/ferretman/290)
 <!-- TELEGRAM:END -->
