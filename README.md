@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediatheferrets:Traffic jam!via Ferret Story https://just-a-catastrophy.tumblr.com/post/642843027312951296](https://t.me/ferretman/288)
-- [Mediatheferrets:theferrets:Look at that face! The ferrets seem to really like the new arrangement.<3via Ferret Story https://scrisoridemai.tumblr.com/...](https://t.me/ferretman/287)
-- [MediaMy sweet, sleepy vampire boy 🧛via Ferret Story https://prettypeterparkr.tumblr.com/post/642839201103167489](https://t.me/ferretman/286)
 - [Mediarisingoflights:unofficiallydisney:This makes me so happyThere’s a very good, clear message here that is surprisingly hard to articulate. You go,...](https://t.me/ferretman/285)
 - [yeah my contract actually just got extendedvia Ferret Story https://anasfalhhhs.tumblr.com/post/642831667023724544](https://t.me/ferretman/284)
+- [thatweirdferretlady:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642827984611459072](https://t.me/ferretman/283)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/642827911694516224](https://t.me/ferretman/282)
+- [Mediabecasaurusbex:shortcuttothestars:ambris-art:glenn-griffon:the-walking-tardis:castiel-knight-of-hell:xtheycallmeslimshadyx:problematic-url:basilsi...](https://t.me/ferretman/281)
 <!-- TELEGRAM:END -->
