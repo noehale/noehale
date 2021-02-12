@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Medialiliemsharpe:MediaYes and YES!!!via Ferret Story https://redzgn.tumblr.com/post/642767500271075328](https://t.me/ferretman/272)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642767497325641728](https://t.me/ferretman/271)
-- [catchymemes:imagevia Ferret Story https://falalamingo.tumblr.com/post/642763731356483584](https://t.me/ferretman/270)
-- [magic-and-moonlit-wings:leonei-d:emmeetslawschool:thenatsdorf:Bff’s from the beginning.that baby is making biscuits on that cat. what a role reversal...](https://t.me/ferretman/269)
-- [MediaOur year old Pen (Penné f) finally got a little sibling!!! Welcome home Mac (Macaroni m)via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/268)
+- [thesweetpianowritingdownmylife:glyndarling:glenn-griffon:star-anise:thepositivecattitude:Mother cat with kittens came to meet an old friend.I can’t b...](https://t.me/ferretman/301)
+- [vivicarstairs:thereschemicalskeepingustogether:mllesouthernbelle:thereschemicalskeepingustogether:thereschemicalskeepingustogether:what do you call a ...](https://t.me/ferretman/300)
+- [Mediacannonball-the-ferret:cannonball-the-ferret:ramblingferret:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferre...](https://t.me/ferretman/299)
+- [theferrets:verdantbones: meskri: armedandgayngerous: samael: ratboigles: myutsuu: ratboigles: ...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/298)
+- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://punkrocknat.tumblr.com/post/642873295999565824](https://t.me/ferretman/297)
 <!-- TELEGRAM:END -->
