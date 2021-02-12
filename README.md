@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediatheferrets:Traffic jam!via Ferret Story https://just-a-catastrophy.tumblr.com/post/642843027312951296](https://t.me/ferretman/288)
-- [Mediatheferrets:theferrets:Look at that face! The ferrets seem to really like the new arrangement.<3via Ferret Story https://scrisoridemai.tumblr.com/...](https://t.me/ferretman/287)
-- [MediaMy sweet, sleepy vampire boy 🧛via Ferret Story https://prettypeterparkr.tumblr.com/post/642839201103167489](https://t.me/ferretman/286)
-- [Mediarisingoflights:unofficiallydisney:This makes me so happyThere’s a very good, clear message here that is surprisingly hard to articulate. You go,...](https://t.me/ferretman/285)
-- [yeah my contract actually just got extendedvia Ferret Story https://anasfalhhhs.tumblr.com/post/642831667023724544](https://t.me/ferretman/284)
+- [theferrets:verdantbones: meskri: armedandgayngerous: samael: ratboigles: myutsuu: ratboigles: ...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/298)
+- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://punkrocknat.tumblr.com/post/642873295999565824](https://t.me/ferretman/297)
+- [MediaMy spineless fuzzie Harryvia Ferret Story https://scrisoridemai.tumblr.com/post/642869482760601600](https://t.me/ferretman/296)
+- [Mediaoh goose, however could i do my french homework without you.via Ferret Story https://prettypeterparkr.tumblr.com/post/642869482556145664](https://t.me/ferretman/295)
+- [MediaMediaMediaMediawicdiv:THE WICKED + THE DIVINE ISSUE 23Basically, it’s our Kevin Wada issue, and our solution to the problem of “how to do an is...](https://t.me/ferretman/294)
 <!-- TELEGRAM:END -->
