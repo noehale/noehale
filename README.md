@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHe’s such a poservia Ferret Story https://scrisoridemai.tumblr.com/post/642929922260844544](https://t.me/ferretman/306)
-- [bob-artist:bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.MediaHe has become one with the extremely soft mat.via...](https://t.me/ferretman/305)
-- [Mediapseudonymjones:pseudonymjones:the paper airplane competition ➿✈️I posted this sketch of the other competitors on twitter. Here, now you can se...](https://t.me/ferretman/304)
-- [Mediasky-of-ashes:Saw this outside my college campusvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642918527162105856](https://t.me/ferretman/303)
-- [Mediapseudonymjones:doublepseudonym:come on baby girl, flex your zygomaticus major for this greasy strangerMatthew Elliot [website | tumblr | twitter ...](https://t.me/ferretman/302)
+- [theferrets:verdantbones: meskri: armedandgayngerous: samael: ratboigles: myutsuu: ratboigles: ...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/298)
+- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://punkrocknat.tumblr.com/post/642873295999565824](https://t.me/ferretman/297)
+- [MediaMy spineless fuzzie Harryvia Ferret Story https://scrisoridemai.tumblr.com/post/642869482760601600](https://t.me/ferretman/296)
+- [Mediaoh goose, however could i do my french homework without you.via Ferret Story https://prettypeterparkr.tumblr.com/post/642869482556145664](https://t.me/ferretman/295)
+- [MediaMediaMediaMediawicdiv:THE WICKED + THE DIVINE ISSUE 23Basically, it’s our Kevin Wada issue, and our solution to the problem of “how to do an is...](https://t.me/ferretman/294)
 <!-- TELEGRAM:END -->
