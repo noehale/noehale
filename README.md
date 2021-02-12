@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [theferrets:verdantbones: meskri: armedandgayngerous: samael: ratboigles: myutsuu: ratboigles: ...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/298)
-- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://punkrocknat.tumblr.com/post/642873295999565824](https://t.me/ferretman/297)
-- [MediaMy spineless fuzzie Harryvia Ferret Story https://scrisoridemai.tumblr.com/post/642869482760601600](https://t.me/ferretman/296)
-- [Mediaoh goose, however could i do my french homework without you.via Ferret Story https://prettypeterparkr.tumblr.com/post/642869482556145664](https://t.me/ferretman/295)
 - [MediaMediaMediaMediawicdiv:THE WICKED + THE DIVINE ISSUE 23Basically, it’s our Kevin Wada issue, and our solution to the problem of “how to do an is...](https://t.me/ferretman/294)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642858101528313857](https://t.me/ferretman/293)
+- [ex0skeletal:Pro Tip: Instead of having feelings, try being dead inside. Everything is still horrible but you will not care at all.via Ferret Story htt...](https://t.me/ferretman/292)
+- [MediaMediaMediaMedialazyshoes:dungeons-and-dragonborns:timothydelaghetto:yulinkuang:mountstar:Types of matterThis explains plasma better than my high ...](https://t.me/ferretman/291)
+- [lies:windsroad:I agree that tumblr is objectively the best social media right now but we CANNOT let this go to our heads. If we act like this site is ...](https://t.me/ferretman/290)
 <!-- TELEGRAM:END -->
