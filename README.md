@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thesweetpianowritingdownmylife:glyndarling:glenn-griffon:star-anise:thepositivecattitude:Mother cat with kittens came to meet an old friend.I can’t b...](https://t.me/ferretman/301)
-- [vivicarstairs:thereschemicalskeepingustogether:mllesouthernbelle:thereschemicalskeepingustogether:thereschemicalskeepingustogether:what do you call a ...](https://t.me/ferretman/300)
-- [Mediacannonball-the-ferret:cannonball-the-ferret:ramblingferret:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferre...](https://t.me/ferretman/299)
-- [theferrets:verdantbones: meskri: armedandgayngerous: samael: ratboigles: myutsuu: ratboigles: ...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/298)
-- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://punkrocknat.tumblr.com/post/642873295999565824](https://t.me/ferretman/297)
+- [MediaHe’s such a poservia Ferret Story https://scrisoridemai.tumblr.com/post/642929922260844544](https://t.me/ferretman/306)
+- [bob-artist:bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.MediaHe has become one with the extremely soft mat.via...](https://t.me/ferretman/305)
+- [Mediapseudonymjones:pseudonymjones:the paper airplane competition ➿✈️I posted this sketch of the other competitors on twitter. Here, now you can se...](https://t.me/ferretman/304)
+- [Mediasky-of-ashes:Saw this outside my college campusvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/642918527162105856](https://t.me/ferretman/303)
+- [Mediapseudonymjones:doublepseudonym:come on baby girl, flex your zygomaticus major for this greasy strangerMatthew Elliot [website | tumblr | twitter ...](https://t.me/ferretman/302)
 <!-- TELEGRAM:END -->
