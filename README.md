@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediawicdiv:THE WICKED + THE DIVINE ISSUE 23Basically, it’s our Kevin Wada issue, and our solution to the problem of “how to do an is...](https://t.me/ferretman/294)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642858101528313857](https://t.me/ferretman/293)
-- [ex0skeletal:Pro Tip: Instead of having feelings, try being dead inside. Everything is still horrible but you will not care at all.via Ferret Story htt...](https://t.me/ferretman/292)
-- [MediaMediaMediaMedialazyshoes:dungeons-and-dragonborns:timothydelaghetto:yulinkuang:mountstar:Types of matterThis explains plasma better than my high ...](https://t.me/ferretman/291)
-- [lies:windsroad:I agree that tumblr is objectively the best social media right now but we CANNOT let this go to our heads. If we act like this site is ...](https://t.me/ferretman/290)
+- [Medialiliemsharpe:MediaYes and YES!!!via Ferret Story https://redzgn.tumblr.com/post/642767500271075328](https://t.me/ferretman/272)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/642767497325641728](https://t.me/ferretman/271)
+- [catchymemes:imagevia Ferret Story https://falalamingo.tumblr.com/post/642763731356483584](https://t.me/ferretman/270)
+- [magic-and-moonlit-wings:leonei-d:emmeetslawschool:thenatsdorf:Bff’s from the beginning.that baby is making biscuits on that cat. what a role reversal...](https://t.me/ferretman/269)
+- [MediaOur year old Pen (Penné f) finally got a little sibling!!! Welcome home Mac (Macaroni m)via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/268)
 <!-- TELEGRAM:END -->
