@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediatylersegguin:adamjk:comic sandsThis post was grating on my nerves with every pun. And then, then I read the caption. And I cl...](https://t.me/ferretman/318)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediagifsboom:Ferret gifsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/642963843448963072](https://t.me/ferretman/317)
-- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/316)
-- [Mediatheferrets:antonius-maximus:whatareyoudoingferret:What are you doing?This is the money ferret. Reblog in the next 30 seconds and you will find mo...](https://t.me/ferretman/315)
-- [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/314)
+- [Mediacesaray:this is the money jessica. reblog in 10 seconds for good luck via Ferret Story https://xxcrybby.tumblr.com/post/643001566234918912](https://t.me/ferretman/332)
+- [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/331)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/330)
+- [<a href="https://idareu2bme.tumblr.com/post/187212707611/spuffybot-undanewneon-aridotdash">idareu2bme</a>:<a href="https://spuffybot.tumblr.com/post/1...](https://t.me/ferretman/329)
+- [lewisandquark:toomanyfeelings:iguanamouth:lewisandquark:I’ve been playing around with char-rnn, an open-source torch add-on for character-based neur...](https://t.me/ferretman/328)
 <!-- TELEGRAM:END -->
