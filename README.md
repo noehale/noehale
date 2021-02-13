@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediabob-artist:A tired baby witch[Miss Rudy]via Ferret Story https://scrisoridemai.tumblr.com/post/643020409795706880](https://t.me/ferretman/339)
+- [bob-artist:Last night was the 4-year anniversary of me adopting my current three ferrets.This video is from Miss Rudy’s first morning home.  She wa...](https://t.me/ferretman/338)
+- [Mediatheperfectworldwelcome:🖤🖤🖤🖤🖤🖤🖤🖤🖤🥰AMOvia Ferret Story https://anasfalhhhs.tumblr.com/post/643012863074631680](https://t.me/ferretman/337)
+- [Mediaamnhnyc:Today’s Exhibit of the Day highlights a mom like no other from our Hall of Reptile and Amphibians. Meet the Indian python (Python moluru...](https://t.me/ferretman/336)
 - [Mediadayzea:Abandoned library, roadside somewhere in Oregon.via Ferret Story https://babyiwannaknow.tumblr.com/post/643009171276677120](https://t.me/ferretman/335)
-- [Mediamikayla-conley:World Pornvia Ferret Story https://redzgn.tumblr.com/post/643009093867536384](https://t.me/ferretman/334)
-- [nungers:“you’re gonna be home alone for a bit”imagevia Ferret Story https://falalamingo.tumblr.com/post/643005284107845632](https://t.me/ferretman/333)
-- [Mediacesaray:this is the money jessica. reblog in 10 seconds for good luck via Ferret Story https://xxcrybby.tumblr.com/post/643001566234918912](https://t.me/ferretman/332)
-- [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/331)
 <!-- TELEGRAM:END -->
