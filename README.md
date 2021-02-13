@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thesweetpianowritingdownmylife:glyndarling:glenn-griffon:star-anise:thepositivecattitude:Mother cat with kittens came to meet an old friend.I can’t b...](https://t.me/ferretman/301)
-- [vivicarstairs:thereschemicalskeepingustogether:mllesouthernbelle:thereschemicalskeepingustogether:thereschemicalskeepingustogether:what do you call a ...](https://t.me/ferretman/300)
-- [Mediacannonball-the-ferret:cannonball-the-ferret:ramblingferret:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferre...](https://t.me/ferretman/299)
-- [theferrets:verdantbones: meskri: armedandgayngerous: samael: ratboigles: myutsuu: ratboigles: ...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/298)
-- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://punkrocknat.tumblr.com/post/642873295999565824](https://t.me/ferretman/297)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediagifsboom:Ferret gifsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/642963843448963072](https://t.me/ferretman/317)
+- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/316)
+- [Mediatheferrets:antonius-maximus:whatareyoudoingferret:What are you doing?This is the money ferret. Reblog in the next 30 seconds and you will find mo...](https://t.me/ferretman/315)
+- [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/314)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/313)
 <!-- TELEGRAM:END -->
