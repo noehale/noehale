@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Clean pee pads must be wrestled on before use](https://come-forth-into-the-light.tumblr.com/post/643024192388956160)
 - [Christmas morning with the gang](https://come-forth-into-the-light.tumblr.com/post/643001576964898816)
 - [Merry Christmas from me boi](https://come-forth-into-the-light.tumblr.com/post/642956237130104832)
 - [elvenferretots:There are no dog beds now. Only ferret beds. ](https://come-forth-into-the-light.tumblr.com/post/642933680135880704)
 - [Playtime!!](https://come-forth-into-the-light.tumblr.com/post/642910950426591232)
-- [Christmas from 6 years ago – Fiona, the cuddliest girl there...](https://come-forth-into-the-light.tumblr.com/post/642865671927136256)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
