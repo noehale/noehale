@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediadayzea:Abandoned library, roadside somewhere in Oregon.via Ferret Story https://babyiwannaknow.tumblr.com/post/643009171276677120](https://t.me/ferretman/335)
+- [Mediamikayla-conley:World Pornvia Ferret Story https://redzgn.tumblr.com/post/643009093867536384](https://t.me/ferretman/334)
+- [nungers:“you’re gonna be home alone for a bit”imagevia Ferret Story https://falalamingo.tumblr.com/post/643005284107845632](https://t.me/ferretman/333)
 - [Mediacesaray:this is the money jessica. reblog in 10 seconds for good luck via Ferret Story https://xxcrybby.tumblr.com/post/643001566234918912](https://t.me/ferretman/332)
 - [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/331)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/330)
-- [<a href="https://idareu2bme.tumblr.com/post/187212707611/spuffybot-undanewneon-aridotdash">idareu2bme</a>:<a href="https://spuffybot.tumblr.com/post/1...](https://t.me/ferretman/329)
-- [lewisandquark:toomanyfeelings:iguanamouth:lewisandquark:I’ve been playing around with char-rnn, an open-source torch add-on for character-based neur...](https://t.me/ferretman/328)
 <!-- TELEGRAM:END -->
