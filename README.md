@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [theferrets:verdantbones: meskri: armedandgayngerous: samael: ratboigles: myutsuu: ratboigles: ...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/298)
-- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://punkrocknat.tumblr.com/post/642873295999565824](https://t.me/ferretman/297)
-- [MediaMy spineless fuzzie Harryvia Ferret Story https://scrisoridemai.tumblr.com/post/642869482760601600](https://t.me/ferretman/296)
-- [Mediaoh goose, however could i do my french homework without you.via Ferret Story https://prettypeterparkr.tumblr.com/post/642869482556145664](https://t.me/ferretman/295)
-- [MediaMediaMediaMediawicdiv:THE WICKED + THE DIVINE ISSUE 23Basically, it’s our Kevin Wada issue, and our solution to the problem of “how to do an is...](https://t.me/ferretman/294)
+- [MediaMediaMediatastefullyoffensive:He’s innocent!via Ferret Story https://falalamingo.tumblr.com/post/642945210498875392](https://t.me/ferretman/309)
+- [lewisandquark:toomanyfeelings:iguanamouth:lewisandquark:I’ve been playing around with char-rnn, an open-source torch add-on for character-based neur...](https://t.me/ferretman/308)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642933666677391360](https://t.me/ferretman/307)
+- [MediaHe’s such a poservia Ferret Story https://scrisoridemai.tumblr.com/post/642929922260844544](https://t.me/ferretman/306)
+- [bob-artist:bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.MediaHe has become one with the extremely soft mat.via...](https://t.me/ferretman/305)
 <!-- TELEGRAM:END -->
