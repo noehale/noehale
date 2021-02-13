@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediatastefullyoffensive:He’s innocent!via Ferret Story https://falalamingo.tumblr.com/post/642945210498875392](https://t.me/ferretman/309)
-- [lewisandquark:toomanyfeelings:iguanamouth:lewisandquark:I’ve been playing around with char-rnn, an open-source torch add-on for character-based neur...](https://t.me/ferretman/308)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/642933666677391360](https://t.me/ferretman/307)
-- [MediaHe’s such a poservia Ferret Story https://scrisoridemai.tumblr.com/post/642929922260844544](https://t.me/ferretman/306)
-- [bob-artist:bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.MediaHe has become one with the extremely soft mat.via...](https://t.me/ferretman/305)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediagifsboom:Ferret gifsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/642963843448963072](https://t.me/ferretman/317)
+- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/316)
+- [Mediatheferrets:antonius-maximus:whatareyoudoingferret:What are you doing?This is the money ferret. Reblog in the next 30 seconds and you will find mo...](https://t.me/ferretman/315)
+- [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/314)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/313)
 <!-- TELEGRAM:END -->
