@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaalienfrick:imageartist btwvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/643039323713945600](https://t.me/ferretman/342)
-- [MediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/643031752108015616](https://t.me/ferretman/341)
-- [MediaA determined noodlevia Ferret Story https://just-a-catastrophy.tumblr.com/post/643024187672444929](https://t.me/ferretman/340)
-- [MediaMediaMediaMediaMediaMediabob-artist:A tired baby witch[Miss Rudy]via Ferret Story https://scrisoridemai.tumblr.com/post/643020409795706880](https://t.me/ferretman/339)
-- [bob-artist:Last night was the 4-year anniversary of me adopting my current three ferrets.This video is from Miss Rudy’s first morning home.  She wa...](https://t.me/ferretman/338)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediagifsboom:Ferret gifsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/642963843448963072](https://t.me/ferretman/317)
+- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/316)
+- [Mediatheferrets:antonius-maximus:whatareyoudoingferret:What are you doing?This is the money ferret. Reblog in the next 30 seconds and you will find mo...](https://t.me/ferretman/315)
+- [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/314)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/313)
 <!-- TELEGRAM:END -->
