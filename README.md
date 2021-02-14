@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [somecutething:](https://come-forth-into-the-light.tumblr.com/post/643092115593871360)
 - [lochnessgaymer:](https://come-forth-into-the-light.tumblr.com/post/643046836588904448)
 - [Clean pee pads must be wrestled on before use](https://come-forth-into-the-light.tumblr.com/post/643024192388956160)
 - [Christmas morning with the gang](https://come-forth-into-the-light.tumblr.com/post/643001576964898816)
 - [Merry Christmas from me boi](https://come-forth-into-the-light.tumblr.com/post/642956237130104832)
-- [elvenferretots:There are no dog beds now. Only ferret beds. ](https://come-forth-into-the-light.tumblr.com/post/642933680135880704)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
