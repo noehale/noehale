@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Media1v1-me-irl:boycomics:true romanceMediaMediaJust so y'all know, there’s more lolvia Ferret Story https://falalamingo.tumblr.com/post/643095899334...](https://t.me/ferretman/355)
+- [becausebirds:Fuck this tree in particular. [source video]via Ferret Story https://xxcrybby.tumblr.com/post/643092115672399873](https://t.me/ferretman/354)
+- [beefnap:Hey, if you still miss your pet that is okay. I don’t care if it is years later and you still cry because they were not there this morning to...](https://t.me/ferretman/353)
 - [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/352)
 - [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/351)
-- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/350)
-- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/349)
-- [MediaCradled like the little fur baby he is 🦦via Ferret Story https://scrisoridemai.tumblr.com/post/643050627349528578](https://t.me/ferretman/348)
 <!-- TELEGRAM:END -->
