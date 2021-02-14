@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/352)
+- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/351)
 - [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/350)
 - [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/349)
 - [MediaCradled like the little fur baby he is 🦦via Ferret Story https://scrisoridemai.tumblr.com/post/643050627349528578](https://t.me/ferretman/348)
-- [MediaMediaMediaMediatheferrets:My babiesvia Ferret Story https://prettypeterparkr.tumblr.com/post/643050627350560768](https://t.me/ferretman/347)
-- [View this post on InstagramA post shared by Brittany (@thelifeofmyferrets)thelifeofmyferrets:mymegahigheye:thelifeofmyferrets:Putting my origami to go...](https://t.me/ferretman/346)
 <!-- TELEGRAM:END -->
