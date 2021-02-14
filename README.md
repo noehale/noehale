@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaalienfrick:imageartist btwvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/643039323713945600](https://t.me/ferretman/342)
+- [MediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/643031752108015616](https://t.me/ferretman/341)
 - [MediaA determined noodlevia Ferret Story https://just-a-catastrophy.tumblr.com/post/643024187672444929](https://t.me/ferretman/340)
 - [MediaMediaMediaMediaMediaMediabob-artist:A tired baby witch[Miss Rudy]via Ferret Story https://scrisoridemai.tumblr.com/post/643020409795706880](https://t.me/ferretman/339)
 - [bob-artist:Last night was the 4-year anniversary of me adopting my current three ferrets.This video is from Miss Rudy’s first morning home.  She wa...](https://t.me/ferretman/338)
-- [Mediatheperfectworldwelcome:🖤🖤🖤🖤🖤🖤🖤🖤🖤🥰AMOvia Ferret Story https://anasfalhhhs.tumblr.com/post/643012863074631680](https://t.me/ferretman/337)
-- [Mediaamnhnyc:Today’s Exhibit of the Day highlights a mom like no other from our Hall of Reptile and Amphibians. Meet the Indian python (Python moluru...](https://t.me/ferretman/336)
 <!-- TELEGRAM:END -->
