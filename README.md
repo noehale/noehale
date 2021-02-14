@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediabookavid:nina–bruja:iwannabeadored:I fucking knew this was about On the Road three screen caps inWa...](https://t.me/ferretman/362)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/361)
-- [tiktokarchive:via Ferret Story https://scrisoridemai.tumblr.com/post/643110992437510144](https://t.me/ferretman/360)
-- [xelamanrique318:SNL - Cut for Time: My Little Step ChildrenWHY WOULD THEY CUT THIS?????via Ferret Story https://anasfalhhhs.tumblr.com/post/6431034634...](https://t.me/ferretman/359)
-- [MediaKingsley is chaosvia Ferret Story https://babyiwannaknow.tumblr.com/post/643099761766973440](https://t.me/ferretman/358)
+- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/352)
+- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/351)
+- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/350)
+- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/349)
+- [MediaCradled like the little fur baby he is 🦦via Ferret Story https://scrisoridemai.tumblr.com/post/643050627349528578](https://t.me/ferretman/348)
 <!-- TELEGRAM:END -->
