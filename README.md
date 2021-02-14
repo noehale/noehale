@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediagifsboom:Ferret gifsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/642963843448963072](https://t.me/ferretman/317)
-- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/316)
-- [Mediatheferrets:antonius-maximus:whatareyoudoingferret:What are you doing?This is the money ferret. Reblog in the next 30 seconds and you will find mo...](https://t.me/ferretman/315)
-- [Mediayou’d think that house could only fit one but ferrets don’t carevia Ferret Story https://prettypeterparkr.tumblr.com/post/642960000846839808](https://t.me/ferretman/314)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/313)
+- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/350)
+- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/349)
+- [MediaCradled like the little fur baby he is 🦦via Ferret Story https://scrisoridemai.tumblr.com/post/643050627349528578](https://t.me/ferretman/348)
+- [MediaMediaMediaMediatheferrets:My babiesvia Ferret Story https://prettypeterparkr.tumblr.com/post/643050627350560768](https://t.me/ferretman/347)
+- [View this post on InstagramA post shared by Brittany (@thelifeofmyferrets)thelifeofmyferrets:mymegahigheye:thelifeofmyferrets:Putting my origami to go...](https://t.me/ferretman/346)
 <!-- TELEGRAM:END -->
