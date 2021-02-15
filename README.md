@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediabookavid:nina–bruja:iwannabeadored:I fucking knew this was about On the Road three screen caps inWa...](https://t.me/ferretman/362)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/361)
-- [tiktokarchive:via Ferret Story https://scrisoridemai.tumblr.com/post/643110992437510144](https://t.me/ferretman/360)
-- [xelamanrique318:SNL - Cut for Time: My Little Step ChildrenWHY WOULD THEY CUT THIS?????via Ferret Story https://anasfalhhhs.tumblr.com/post/6431034634...](https://t.me/ferretman/359)
-- [MediaKingsley is chaosvia Ferret Story https://babyiwannaknow.tumblr.com/post/643099761766973440](https://t.me/ferretman/358)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643145027846012928](https://t.me/ferretman/372)
+- [MediaArchie & Octavia sleeping together for the first time🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/643144968929689600](https://t.me/ferretman/371)
+- [MediaMediaMediaMediaMediaMediaMediabob-artist:Sea cucumbers make great pets.  I have had some wonderful sea cucumbers.via Ferret Story https://scriso...](https://t.me/ferretman/370)
+- [MediaSo truevia Ferret Story https://prettypeterparkr.tumblr.com/post/643141204009156608](https://t.me/ferretman/369)
+- [Mediarandomishnickname:rururinchan:I found sources. The word “man” was gender neutral and referred to both sexes until the 13th centuryThe female ...](https://t.me/ferretman/368)
 <!-- TELEGRAM:END -->
