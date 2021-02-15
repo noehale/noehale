@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643145027846012928](https://t.me/ferretman/372)
+- [MediaArchie & Octavia sleeping together for the first time🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/643144968929689600](https://t.me/ferretman/371)
+- [MediaMediaMediaMediaMediaMediaMediabob-artist:Sea cucumbers make great pets.  I have had some wonderful sea cucumbers.via Ferret Story https://scriso...](https://t.me/ferretman/370)
+- [MediaSo truevia Ferret Story https://prettypeterparkr.tumblr.com/post/643141204009156608](https://t.me/ferretman/369)
 - [Mediarandomishnickname:rururinchan:I found sources. The word “man” was gender neutral and referred to both sexes until the 13th centuryThe female ...](https://t.me/ferretman/368)
-- [Mediayoungalientype:mod2amaryllis:chubby-aphrodite:darthlenaplant:nerdy-pharmacy-daydreams:bluegone:etherealastraea:dihydrogenmonoxideawareness:Why wo...](https://t.me/ferretman/367)
-- [Medianomorefreerandy:now this is how you know America is fucking upvia Ferret Story https://redzgn.tumblr.com/post/643129946995408896](https://t.me/ferretman/366)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643129898381295616](https://t.me/ferretman/365)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaawesome-picz:People Are Sharing Pics Of Their Long Cats That Seem To Stretch ‘Til Infinity.via Ferr...](https://t.me/ferretman/364)
 <!-- TELEGRAM:END -->
