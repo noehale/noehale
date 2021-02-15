@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/352)
-- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/351)
-- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/350)
-- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://just-a-catastrophy.tumblr.com/post/6430...](https://t.me/ferretman/349)
-- [MediaCradled like the little fur baby he is 🦦via Ferret Story https://scrisoridemai.tumblr.com/post/643050627349528578](https://t.me/ferretman/348)
+- [Mediarandomishnickname:rururinchan:I found sources. The word “man” was gender neutral and referred to both sexes until the 13th centuryThe female ...](https://t.me/ferretman/368)
+- [Mediayoungalientype:mod2amaryllis:chubby-aphrodite:darthlenaplant:nerdy-pharmacy-daydreams:bluegone:etherealastraea:dihydrogenmonoxideawareness:Why wo...](https://t.me/ferretman/367)
+- [Medianomorefreerandy:now this is how you know America is fucking upvia Ferret Story https://redzgn.tumblr.com/post/643129946995408896](https://t.me/ferretman/366)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643129898381295616](https://t.me/ferretman/365)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaawesome-picz:People Are Sharing Pics Of Their Long Cats That Seem To Stretch ‘Til Infinity.via Ferr...](https://t.me/ferretman/364)
 <!-- TELEGRAM:END -->
