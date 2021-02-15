@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643145027846012928](https://t.me/ferretman/372)
-- [MediaArchie & Octavia sleeping together for the first time🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/643144968929689600](https://t.me/ferretman/371)
-- [MediaMediaMediaMediaMediaMediaMediabob-artist:Sea cucumbers make great pets.  I have had some wonderful sea cucumbers.via Ferret Story https://scriso...](https://t.me/ferretman/370)
-- [MediaSo truevia Ferret Story https://prettypeterparkr.tumblr.com/post/643141204009156608](https://t.me/ferretman/369)
-- [Mediarandomishnickname:rururinchan:I found sources. The word “man” was gender neutral and referred to both sexes until the 13th centuryThe female ...](https://t.me/ferretman/368)
+- [adventurecore-suggestions:compliment recklessly! say the nice things that come to your head! we’ve got better things to do than resisting the instinc...](https://t.me/ferretman/378)
+- [memories:You ever just… yell about #nyc??via Ferret Story https://redzgn.tumblr.com/post/643190288287940608](https://t.me/ferretman/377)
+- [MediaWater Babyvia Ferret Story https://babyiwannaknow.tumblr.com/post/643190287652585472](https://t.me/ferretman/376)
+- [Mediareseteados:Cuando te haces el machote delante de tu pandilla pero tu caballo sabe que eres un mindundiovia Ferret Story https://falalamingo.tumbl...](https://t.me/ferretman/375)
+- [Mediacadetkawaii:anus:dog and snogMy yearly dog and snog postvia Ferret Story https://xxcrybby.tumblr.com/post/643182727872561153](https://t.me/ferretman/374)
 <!-- TELEGRAM:END -->
