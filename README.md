@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [I am but a humble bed (and would have it no other way)](https://come-forth-into-the-light.tumblr.com/post/643182727733051392)
 - [This was to cute not to share with others, they love snuggling...](https://come-forth-into-the-light.tumblr.com/post/643137473037451264)
 - [Happy New Years from Australia! What are you planning for...](https://come-forth-into-the-light.tumblr.com/post/643114815160811520)
 - [somecutething:](https://come-forth-into-the-light.tumblr.com/post/643092115593871360)
 - [lochnessgaymer:](https://come-forth-into-the-light.tumblr.com/post/643046836588904448)
-- [Clean pee pads must be wrestled on before use](https://come-forth-into-the-light.tumblr.com/post/643024192388956160)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
