@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediasuckdog:aaaaaaaaaAAAAAAAAAAAAAAAAvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643205406871732224](https://t.me/ferretman/382)
+- [MediaSleepy paws 🥰 as many beds as a ferret could want, but under the coffee table is still the best ❤via Ferret Story https://scrisoridemai.tumbl...](https://t.me/ferretman/381)
+- [heteroh:deadcyberbitch:I HATE HORMONES really? i liked her i felt she had an important part in harry pottervia Ferret Story https://prettypeterparkr....](https://t.me/ferretman/380)
+- [MediaMediaMediaMediaMediaMediaMediaMediaredscharlach:Otters Who Look Like Benedict Cumberbatch: A Visual Examination.All otters are from The Daily Ott...](https://t.me/ferretman/379)
 - [adventurecore-suggestions:compliment recklessly! say the nice things that come to your head! we’ve got better things to do than resisting the instinc...](https://t.me/ferretman/378)
-- [memories:You ever just… yell about #nyc??via Ferret Story https://redzgn.tumblr.com/post/643190288287940608](https://t.me/ferretman/377)
-- [MediaWater Babyvia Ferret Story https://babyiwannaknow.tumblr.com/post/643190287652585472](https://t.me/ferretman/376)
-- [Mediareseteados:Cuando te haces el machote delante de tu pandilla pero tu caballo sabe que eres un mindundiovia Ferret Story https://falalamingo.tumbl...](https://t.me/ferretman/375)
-- [Mediacadetkawaii:anus:dog and snogMy yearly dog and snog postvia Ferret Story https://xxcrybby.tumblr.com/post/643182727872561153](https://t.me/ferretman/374)
 <!-- TELEGRAM:END -->
