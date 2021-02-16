@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [disgustinganimals:kazoohira-miller:erraticartist:cupsnake:You know what the Green Heron is basically the best heron because it is like 90% neck so whe...](https://t.me/ferretman/393)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643265760258588672](https://t.me/ferretman/392)
 - [Mediasleeeeepy boiiiivia Ferret Story https://just-a-catastrophy.tumblr.com/post/643235615891128320](https://t.me/ferretman/391)
 - [Mediathelifeofmyferrets:thelifeofmyferrets:Thanksgiving is coming up, please don’t give your pets a treat that is not meant for them.Happy Thanksgivi...](https://t.me/ferretman/390)
 - [element-of-change:theskoomacat:catsbeaversandducks:“Sir, I can has fish?? Thank you, kind Sir!”Translation:[weasel? comes up to a fisherman]Fisherma...](https://t.me/ferretman/389)
+- [MediaMediaMediaMediaMediaMediaMediashinhoseok:moodvia Ferret Story https://prettypeterparkr.tumblr.com/post/643231800440881152](https://t.me/ferretman/388)
+- [limoncellolacroix:“MAYBE IT’S NOT MY WEEKEND, BUT IT’S GONNA BE MY YEAR” I scream at 12 am with tears streaming down my face and a bottle of champ...](https://t.me/ferretman/387)
 <!-- TELEGRAM:END -->
