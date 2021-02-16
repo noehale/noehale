@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediasleeeeepy boiiiivia Ferret Story https://just-a-catastrophy.tumblr.com/post/643235615891128320](https://t.me/ferretman/391)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:Thanksgiving is coming up, please don’t give your pets a treat that is not meant for them.Happy Thanksgivi...](https://t.me/ferretman/390)
+- [element-of-change:theskoomacat:catsbeaversandducks:“Sir, I can has fish?? Thank you, kind Sir!”Translation:[weasel? comes up to a fisherman]Fisherma...](https://t.me/ferretman/389)
+- [MediaMediaMediaMediaMediaMediaMediashinhoseok:moodvia Ferret Story https://prettypeterparkr.tumblr.com/post/643231800440881152](https://t.me/ferretman/388)
 - [limoncellolacroix:“MAYBE IT’S NOT MY WEEKEND, BUT IT’S GONNA BE MY YEAR” I scream at 12 am with tears streaming down my face and a bottle of champ...](https://t.me/ferretman/387)
-- [misselaineofoz:evilkillerpoptarts:everythingfox:The wolf is so done with the fox’s bs 😂Foxes are cat software being run on dog hardware.  Clearly...](https://t.me/ferretman/386)
-- [MediaThis ferret was brought to you by Stella and Chewyvia Ferret Story https://babyiwannaknow.tumblr.com/post/643220491759386624](https://t.me/ferretman/385)
-- [setsunv:via Ferret Story https://falalamingo.tumblr.com/post/643216759050174464](https://t.me/ferretman/384)
-- [MediaMediaMediaitscolossal:A Furry Utopia is Overrun with Delicately Rendered Cats in Kamwei Fong’s New Illustrationvia Ferret Story https://xxcrybby...](https://t.me/ferretman/383)
 <!-- TELEGRAM:END -->
