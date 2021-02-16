@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediasuckdog:aaaaaaaaaAAAAAAAAAAAAAAAAvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643205406871732224](https://t.me/ferretman/382)
-- [MediaSleepy paws 🥰 as many beds as a ferret could want, but under the coffee table is still the best ❤via Ferret Story https://scrisoridemai.tumbl...](https://t.me/ferretman/381)
-- [heteroh:deadcyberbitch:I HATE HORMONES really? i liked her i felt she had an important part in harry pottervia Ferret Story https://prettypeterparkr....](https://t.me/ferretman/380)
-- [MediaMediaMediaMediaMediaMediaMediaMediaredscharlach:Otters Who Look Like Benedict Cumberbatch: A Visual Examination.All otters are from The Daily Ott...](https://t.me/ferretman/379)
-- [adventurecore-suggestions:compliment recklessly! say the nice things that come to your head! we’ve got better things to do than resisting the instinc...](https://t.me/ferretman/378)
+- [limoncellolacroix:“MAYBE IT’S NOT MY WEEKEND, BUT IT’S GONNA BE MY YEAR” I scream at 12 am with tears streaming down my face and a bottle of champ...](https://t.me/ferretman/387)
+- [misselaineofoz:evilkillerpoptarts:everythingfox:The wolf is so done with the fox’s bs 😂Foxes are cat software being run on dog hardware.  Clearly...](https://t.me/ferretman/386)
+- [MediaThis ferret was brought to you by Stella and Chewyvia Ferret Story https://babyiwannaknow.tumblr.com/post/643220491759386624](https://t.me/ferretman/385)
+- [setsunv:via Ferret Story https://falalamingo.tumblr.com/post/643216759050174464](https://t.me/ferretman/384)
+- [MediaMediaMediaitscolossal:A Furry Utopia is Overrun with Delicately Rendered Cats in Kamwei Fong’s New Illustrationvia Ferret Story https://xxcrybby...](https://t.me/ferretman/383)
 <!-- TELEGRAM:END -->
