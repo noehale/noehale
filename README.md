@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediasleeeeepy boiiiivia Ferret Story https://just-a-catastrophy.tumblr.com/post/643235615891128320](https://t.me/ferretman/391)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:Thanksgiving is coming up, please don’t give your pets a treat that is not meant for them.Happy Thanksgivi...](https://t.me/ferretman/390)
-- [element-of-change:theskoomacat:catsbeaversandducks:“Sir, I can has fish?? Thank you, kind Sir!”Translation:[weasel? comes up to a fisherman]Fisherma...](https://t.me/ferretman/389)
-- [MediaMediaMediaMediaMediaMediaMediashinhoseok:moodvia Ferret Story https://prettypeterparkr.tumblr.com/post/643231800440881152](https://t.me/ferretman/388)
-- [limoncellolacroix:“MAYBE IT’S NOT MY WEEKEND, BUT IT’S GONNA BE MY YEAR” I scream at 12 am with tears streaming down my face and a bottle of champ...](https://t.me/ferretman/387)
+- [MediaI love Lily’s garnet eyesvia Ferret Story https://prettypeterparkr.tumblr.com/post/643292218778632192](https://t.me/ferretman/400)
+- [MediaNap time!via Ferret Story https://scrisoridemai.tumblr.com/post/643292200973844480](https://t.me/ferretman/399)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643284650962370560](https://t.me/ferretman/398)
+- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://babyiwannaknow.tumb...](https://t.me/ferretman/397)
+- [geekybibliophile:ya-wn:please for the love of god turn ur sound on@zombeesknees @nursemz87via Ferret Story https://redzgn.tumblr.com/post/643280935265...](https://t.me/ferretman/396)
 <!-- TELEGRAM:END -->
