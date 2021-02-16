@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Big spoon and little spoon 🤗](https://come-forth-into-the-light.tumblr.com/post/643273348223303680)
 - [He loves her so much!](https://come-forth-into-the-light.tumblr.com/post/643228044413288448)
 - [Act casual! *pose*](https://come-forth-into-the-light.tumblr.com/post/643205445671157761)
 - [I am but a humble bed (and would have it no other way)](https://come-forth-into-the-light.tumblr.com/post/643182727733051392)
 - [This was to cute not to share with others, they love snuggling...](https://come-forth-into-the-light.tumblr.com/post/643137473037451264)
-- [Happy New Years from Australia! What are you planning for...](https://come-forth-into-the-light.tumblr.com/post/643114815160811520)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
