@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://punkrocknat.tumblr.com/post/643356352721354752](https://t.me/ferretman/412)
 - [apparatesstageleft:eviesrealitychangesdaily: andwhentheskywasopened: continueplease: louwhis: (◡‿◡...via Ferret Story https://just-a-catastrophy.tu...](https://t.me/ferretman/411)
 - [MediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/643326168642256896](https://t.me/ferretman/410)
 - [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/409)
 - [ferretsofmine:MediaComing home from work like ~via Ferret Story https://prettypeterparkr.tumblr.com/post/643322426470678528](https://t.me/ferretman/408)
+- [Mediawicdiv:kristaferanka:As requested by some, here is my WicDiv 19 variant cover without any of the textPurr, etc.via Ferret Story https://anasfalhh...](https://t.me/ferretman/407)
 <!-- TELEGRAM:END -->
