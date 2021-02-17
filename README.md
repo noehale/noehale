@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643145027846012928](https://t.me/ferretman/372)
-- [MediaArchie & Octavia sleeping together for the first time🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/643144968929689600](https://t.me/ferretman/371)
-- [MediaMediaMediaMediaMediaMediaMediabob-artist:Sea cucumbers make great pets.  I have had some wonderful sea cucumbers.via Ferret Story https://scriso...](https://t.me/ferretman/370)
-- [MediaSo truevia Ferret Story https://prettypeterparkr.tumblr.com/post/643141204009156608](https://t.me/ferretman/369)
-- [Mediarandomishnickname:rururinchan:I found sources. The word “man” was gender neutral and referred to both sexes until the 13th centuryThe female ...](https://t.me/ferretman/368)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:It was 64 degrees today and it is still winter! The grass looks lovely. I had to take the ferrets for a wal...](https://t.me/ferretman/409)
+- [ferretsofmine:MediaComing home from work like ~via Ferret Story https://prettypeterparkr.tumblr.com/post/643322426470678528](https://t.me/ferretman/408)
+- [Mediawicdiv:kristaferanka:As requested by some, here is my WicDiv 19 variant cover without any of the textPurr, etc.via Ferret Story https://anasfalhh...](https://t.me/ferretman/407)
+- [doodleofboredom:Media*blep*via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/643311144684126208](https://t.me/ferretman/406)
+- [Mediaovrjoy:kelssiel:shitmemesforshitteens:Power move of the century.i looked this up cause i wanted to know if you could and you can technically but ...](https://t.me/ferretman/405)
 <!-- TELEGRAM:END -->
