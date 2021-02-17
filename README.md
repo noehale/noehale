@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediajoebeard:there are a lot of things great about this video but the best is that the journalist who threw his shoes at W is on twitter and responds...](https://t.me/ferretman/403)
+- [lucifurby:thick-nena:He’s just trying to helpHe IS helpingvia Ferret Story https://xxcrybby.tumblr.com/post/643303605556969472](https://t.me/ferretman/402)
+- [MediaOne of my boys living his best lifevia Ferret Story https://just-a-catastrophy.tumblr.com/post/643296053031059456](https://t.me/ferretman/401)
 - [MediaI love Lily’s garnet eyesvia Ferret Story https://prettypeterparkr.tumblr.com/post/643292218778632192](https://t.me/ferretman/400)
 - [MediaNap time!via Ferret Story https://scrisoridemai.tumblr.com/post/643292200973844480](https://t.me/ferretman/399)
-- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643284650962370560](https://t.me/ferretman/398)
-- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://babyiwannaknow.tumb...](https://t.me/ferretman/397)
-- [geekybibliophile:ya-wn:please for the love of god turn ur sound on@zombeesknees @nursemz87via Ferret Story https://redzgn.tumblr.com/post/643280935265...](https://t.me/ferretman/396)
 <!-- TELEGRAM:END -->
