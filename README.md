@@ -51,9 +51,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediajoebeard:there are a lot of things great about this video but the best is that the journalist who threw his shoes at W is on twitter and responds...](https://t.me/ferretman/403)
-- [lucifurby:thick-nena:He’s just trying to helpHe IS helpingvia Ferret Story https://xxcrybby.tumblr.com/post/643303605556969472](https://t.me/ferretman/402)
-- [MediaOne of my boys living his best lifevia Ferret Story https://just-a-catastrophy.tumblr.com/post/643296053031059456](https://t.me/ferretman/401)
-- [MediaI love Lily’s garnet eyesvia Ferret Story https://prettypeterparkr.tumblr.com/post/643292218778632192](https://t.me/ferretman/400)
-- [MediaNap time!via Ferret Story https://scrisoridemai.tumblr.com/post/643292200973844480](https://t.me/ferretman/399)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643145027846012928](https://t.me/ferretman/372)
+- [MediaArchie & Octavia sleeping together for the first time🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/643144968929689600](https://t.me/ferretman/371)
+- [MediaMediaMediaMediaMediaMediaMediabob-artist:Sea cucumbers make great pets.  I have had some wonderful sea cucumbers.via Ferret Story https://scriso...](https://t.me/ferretman/370)
+- [MediaSo truevia Ferret Story https://prettypeterparkr.tumblr.com/post/643141204009156608](https://t.me/ferretman/369)
+- [Mediarandomishnickname:rururinchan:I found sources. The word “man” was gender neutral and referred to both sexes until the 13th centuryThe female ...](https://t.me/ferretman/368)
 <!-- TELEGRAM:END -->
