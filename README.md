@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret-flops:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferret:Look at my long boy. So posh, so regal. He is king of the chair. ...](https://t.me/ferretman/426)
-- [nepeta-apologist:yep-thats-a-tree-all-right:becausewhatiam-iswhatimnot:slightly-evil-laughter:totallyforgotyouwerehere:james-sea-lee:write-n-stuff44:l...](https://t.me/ferretman/425)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediadelphinidin4:MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story ...](https://t.me/ferretman/424)
-- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/643398009717211136](https://t.me/ferretman/423)
-- [incisedpottery:me reading my own posts: hmm..  That’s an embarrassing thing 2 post on the internet via Ferret Story https://xxcrybby.tumblr.com/pos...](https://t.me/ferretman/422)
+- [Mediakoda pancakevia Ferret Story https://scrisoridemai.tumblr.com/post/643473441445560320](https://t.me/ferretman/440)
+- [Mediacarouselcarl:More ferrets! This time it’s based on a shaggy mane mushroom. I have a few more designs but I’m open to requests for mushroom spec...](https://t.me/ferretman/439)
+- [snout:being a macroorganism is so stressful. i want to know what my cells are doing. I don’t like how unsupervised they arevia Ferret Story https://a...](https://t.me/ferretman/438)
+- [Mediacome-forth-into-the-light:New arrivals at the shelter! Meet Mia and Marcellus!via Ferret Story https://babyiwannaknow.tumblr.com/post/64346213256...](https://t.me/ferretman/437)
+- [idlnmclean:theworkshopofdreams:What the..?!It’s the herbicide.Otters secrete thick oils in their fur that help them to be more hydrodynamic and water...](https://t.me/ferretman/436)
 <!-- TELEGRAM:END -->
