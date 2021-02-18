@@ -1,4 +1,4 @@
-name: podcast workflow
+name: Latest Podcast Workflow
 on:
   schedule: # Run workflow automatically
     - cron: '0 * * * *' # Runs every hour, on the hour
