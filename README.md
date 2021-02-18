@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaiguanamouth:catharsis (alternate letters)via Ferret Story https://just-a-catastrophy.tumblr.com/post/643416830779768833](https://t.me/ferretman/431)
-- [myheartisbro-ken:thotnoswillreturn:this is the funniest twitter thread i’ve ever seen in my goddamn lifeMediaMediaMediaMediaMediaMediaMediaMediaMedia...](https://t.me/ferretman/430)
-- [MediaTime lapse of the ferrets sleeping in their new “den” that I made over the weekend. This has become on of their favorite places to hide outside...](https://t.me/ferretman/429)
-- [Mediatraceexcalibur:traceexcalibur:I found him. the biggest boyMediathe #reviews are invia Ferret Story https://prettypeterparkr.tumblr.com/post/64341...](https://t.me/ferretman/428)
-- [halfbakedidea:moggettt:Posting readmores likeMediaMediaTumblrvia Ferret Story https://anasfalhhhs.tumblr.com/post/643405521387470848](https://t.me/ferretman/427)
+- [vivialopod:hullaballoons:little-king-john:artwhork:ur gonna die anyway so get that fucking tattoo ur parents and friends hate and eat whatever u want...](https://t.me/ferretman/418)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/643371537643274241](https://t.me/ferretman/417)
+- [stupid-dyke:frogparty:Mediawhat is wrong. like with all of you.Heterosexual pride flagvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/...](https://t.me/ferretman/416)
+- [Mediabeskt:Hands by Horacio Quirozvia Ferret Story https://redzgn.tumblr.com/post/643371476103331840](https://t.me/ferretman/415)
+- [yourplayersaidwhat:Bard (who is dating the dm): Can I flirt with [the wall that is about to crush us]?Dm: No, it’s a wall.Bard: Can I flirt with God?...](https://t.me/ferretman/414)
 <!-- TELEGRAM:END -->
