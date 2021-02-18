@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaiguanamouth:catharsis (alternate letters)via Ferret Story https://just-a-catastrophy.tumblr.com/post/643416830779768833](https://t.me/ferretman/431)
-- [myheartisbro-ken:thotnoswillreturn:this is the funniest twitter thread i’ve ever seen in my goddamn lifeMediaMediaMediaMediaMediaMediaMediaMediaMedia...](https://t.me/ferretman/430)
-- [MediaTime lapse of the ferrets sleeping in their new “den” that I made over the weekend. This has become on of their favorite places to hide outside...](https://t.me/ferretman/429)
-- [Mediatraceexcalibur:traceexcalibur:I found him. the biggest boyMediathe #reviews are invia Ferret Story https://prettypeterparkr.tumblr.com/post/64341...](https://t.me/ferretman/428)
-- [halfbakedidea:moggettt:Posting readmores likeMediaMediaTumblrvia Ferret Story https://anasfalhhhs.tumblr.com/post/643405521387470848](https://t.me/ferretman/427)
+- [Mediaferret-flops:cannonball-the-ferret:cannonball-the-ferret:cannonball-the-ferret:Look at my long boy. So posh, so regal. He is king of the chair. ...](https://t.me/ferretman/426)
+- [nepeta-apologist:yep-thats-a-tree-all-right:becausewhatiam-iswhatimnot:slightly-evil-laughter:totallyforgotyouwerehere:james-sea-lee:write-n-stuff44:l...](https://t.me/ferretman/425)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediadelphinidin4:MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story ...](https://t.me/ferretman/424)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/643398009717211136](https://t.me/ferretman/423)
+- [incisedpottery:me reading my own posts: hmm..  That’s an embarrassing thing 2 post on the internet via Ferret Story https://xxcrybby.tumblr.com/pos...](https://t.me/ferretman/422)
 <!-- TELEGRAM:END -->
