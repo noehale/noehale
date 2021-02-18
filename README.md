@@ -38,6 +38,11 @@
 <!-- YOUTUBE:END -->
 
 ---
+### 📫Latest Podcast
+
+<!-- PODCAST:START -->
+<!-- PODCAST:END -->
+---
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
