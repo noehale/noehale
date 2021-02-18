@@ -41,11 +41,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Baby ferret vs grass](https://come-forth-into-the-light.tumblr.com/post/643409271325868032)
 - [Meet Chonk, the sweetest boy around :) : ferrets](https://come-forth-into-the-light.tumblr.com/post/643386615284269056)
 - [Rory Is A Derp Sometimes :)](https://come-forth-into-the-light.tumblr.com/post/643363941866700800)
 - [Big beautiful eyes](https://come-forth-into-the-light.tumblr.com/post/643318667709497344)
 - [bedtime tickles <3](https://come-forth-into-the-light.tumblr.com/post/643295998427512832)
-- [Big spoon and little spoon 🤗](https://come-forth-into-the-light.tumblr.com/post/643273348223303680)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
