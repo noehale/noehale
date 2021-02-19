@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [adamjk:cumleak:this is probably the best compilation out thereit’s hard to believe this entire moment in our lifetimes has come and gonevia Ferret St...](https://t.me/ferretman/443)
-- [just-things-i-enjoy:official-mugi:immaplatypus:thenatsdorf:Black cats are lucky. (via leahweissmuller)MAN [IN THICK ACCENT]: Black cat bring good luc...](https://t.me/ferretman/442)
-- [phalaenopfish: Please don’t take your pets for granted. Even if you’re frustrated that your dog...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/441)
-- [Mediakoda pancakevia Ferret Story https://scrisoridemai.tumblr.com/post/643473441445560320](https://t.me/ferretman/440)
-- [Mediacarouselcarl:More ferrets! This time it’s based on a shaggy mane mushroom. I have a few more designs but I’m open to requests for mushroom spec...](https://t.me/ferretman/439)
+- [MediaLittle derp was itchyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643567786350772224](https://t.me/ferretman/461)
+- [MediaThe high ground : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/643564048173137920](https://t.me/ferretman/460)
+- [MediaThis happens every time I get out of the showervia Ferret Story https://prettypeterparkr.tumblr.com/post/643564047620571136](https://t.me/ferretman/459)
+- [thelifeofmyferrets:iwatobigreg:mothmaam:panicatthepilotsinbeaconhills:mothmaam:MediaOriginally posted by hechosastrologicosis your name snowman?AnnaMe...](https://t.me/ferretman/458)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643552742671073280](https://t.me/ferretman/457)
 <!-- TELEGRAM:END -->
