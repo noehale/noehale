@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [adamjk:cumleak:this is probably the best compilation out thereit’s hard to believe this entire moment in our lifetimes has come and gonevia Ferret St...](https://t.me/ferretman/443)
+- [just-things-i-enjoy:official-mugi:immaplatypus:thenatsdorf:Black cats are lucky. (via leahweissmuller)MAN [IN THICK ACCENT]: Black cat bring good luc...](https://t.me/ferretman/442)
+- [phalaenopfish: Please don’t take your pets for granted. Even if you’re frustrated that your dog...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/441)
 - [Mediakoda pancakevia Ferret Story https://scrisoridemai.tumblr.com/post/643473441445560320](https://t.me/ferretman/440)
 - [Mediacarouselcarl:More ferrets! This time it’s based on a shaggy mane mushroom. I have a few more designs but I’m open to requests for mushroom spec...](https://t.me/ferretman/439)
-- [snout:being a macroorganism is so stressful. i want to know what my cells are doing. I don’t like how unsupervised they arevia Ferret Story https://a...](https://t.me/ferretman/438)
-- [Mediacome-forth-into-the-light:New arrivals at the shelter! Meet Mia and Marcellus!via Ferret Story https://babyiwannaknow.tumblr.com/post/64346213256...](https://t.me/ferretman/437)
-- [idlnmclean:theworkshopofdreams:What the..?!It’s the herbicide.Otters secrete thick oils in their fur that help them to be more hydrodynamic and water...](https://t.me/ferretman/436)
 <!-- TELEGRAM:END -->
