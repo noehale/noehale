@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Well, I suppose I needed licked.](https://come-forth-into-the-light.tumblr.com/post/643499831607918592)
 - [Ed bringing in the new year in](https://come-forth-into-the-light.tumblr.com/post/643477221704597504)
 - [Happy new year from Floki](https://come-forth-into-the-light.tumblr.com/post/643454531686088704)
 - [Baby ferret vs grass](https://come-forth-into-the-light.tumblr.com/post/643409271325868032)
 - [Meet Chonk, the sweetest boy around :) : ferrets](https://come-forth-into-the-light.tumblr.com/post/643386615284269056)
-- [Rory Is A Derp Sometimes :)](https://come-forth-into-the-light.tumblr.com/post/643363941866700800)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
