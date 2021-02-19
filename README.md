@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thelifeofmyferrets:MediaFirst bath as a little man! He didn’t know what to think.via Ferret Story https://prettypeterparkr.tumblr.com/post/6435036584...](https://t.me/ferretman/449)
-- [MediaThis is Dwight, Dwight bites my feet whenever I clean the litter box. He has stood strong in his protest of turd relocation for two years straigh...](https://t.me/ferretman/448)
-- [emeraldembers:adrianianam:If you do things, fuck you.Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643496043506450432](https://t.me/ferretman/447)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Science PostersKelsey Oseid on Etsyvia Ferret Story https://somewhere-inthe-deepdetai...](https://t.me/ferretman/446)
-- [peroxider:darkwebdad:listening to phil collinsI hope that all internet content is obliterated except for this videovia Ferret Story https://redzgn.tum...](https://t.me/ferretman/445)
+- [adamjk:cumleak:this is probably the best compilation out thereit’s hard to believe this entire moment in our lifetimes has come and gonevia Ferret St...](https://t.me/ferretman/443)
+- [just-things-i-enjoy:official-mugi:immaplatypus:thenatsdorf:Black cats are lucky. (via leahweissmuller)MAN [IN THICK ACCENT]: Black cat bring good luc...](https://t.me/ferretman/442)
+- [phalaenopfish: Please don’t take your pets for granted. Even if you’re frustrated that your dog...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/441)
+- [Mediakoda pancakevia Ferret Story https://scrisoridemai.tumblr.com/post/643473441445560320](https://t.me/ferretman/440)
+- [Mediacarouselcarl:More ferrets! This time it’s based on a shaggy mane mushroom. I have a few more designs but I’m open to requests for mushroom spec...](https://t.me/ferretman/439)
 <!-- TELEGRAM:END -->
