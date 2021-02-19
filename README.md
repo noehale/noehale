@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Dog: WAT DOINGMe: Nothing. I just stood up.Dog: WHERE GOMe: I'm literally walking 3 feet away. I'm not even leaving the room.Dog: CAN I COMEMe: I mean...](https://t.me/ferretman/451)
-- [misioandkinga:no i won’t stop showing u all how cute tad is playing in the bead pitvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643507...](https://t.me/ferretman/450)
 - [thelifeofmyferrets:MediaFirst bath as a little man! He didn’t know what to think.via Ferret Story https://prettypeterparkr.tumblr.com/post/6435036584...](https://t.me/ferretman/449)
 - [MediaThis is Dwight, Dwight bites my feet whenever I clean the litter box. He has stood strong in his protest of turd relocation for two years straigh...](https://t.me/ferretman/448)
 - [emeraldembers:adrianianam:If you do things, fuck you.Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643496043506450432](https://t.me/ferretman/447)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Science PostersKelsey Oseid on Etsyvia Ferret Story https://somewhere-inthe-deepdetai...](https://t.me/ferretman/446)
+- [peroxider:darkwebdad:listening to phil collinsI hope that all internet content is obliterated except for this videovia Ferret Story https://redzgn.tum...](https://t.me/ferretman/445)
 <!-- TELEGRAM:END -->
