@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaLittle derp was itchyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643567786350772224](https://t.me/ferretman/461)
-- [MediaThe high ground : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/643564048173137920](https://t.me/ferretman/460)
-- [MediaThis happens every time I get out of the showervia Ferret Story https://prettypeterparkr.tumblr.com/post/643564047620571136](https://t.me/ferretman/459)
-- [thelifeofmyferrets:iwatobigreg:mothmaam:panicatthepilotsinbeaconhills:mothmaam:MediaOriginally posted by hechosastrologicosis your name snowman?AnnaMe...](https://t.me/ferretman/458)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643552742671073280](https://t.me/ferretman/457)
+- [MediaThat’s a realistic soft toy….via Ferret Story https://just-a-catastrophy.tumblr.com/post/643597960236728320](https://t.me/ferretman/471)
+- [Mediahappy valentine’s day from our tiny cupid💘 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643597960240939008](https://t.me/ferretman/470)
+- [momfricker:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643594191223603200](https://t.me/ferretman/469)
+- [MediaHappy Groundhog’s Day! ⛅️via Ferret Story https://prettypeterparkr.tumblr.com/post/643594191220473856](https://t.me/ferretman/468)
+- [koobaxion:Me: I feel horribly lonely and crappyBrain: dragon tales the tv show dragon talesMe: perfectvia Ferret Story https://anasfalhhhs.tumblr.com/...](https://t.me/ferretman/467)
 <!-- TELEGRAM:END -->
