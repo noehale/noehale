@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [jackism:Mediavia Ferret Story https://xxcrybby.tumblr.com/post/643635745028014080](https://t.me/ferretman/473)
-- [MediaCaught my little girl sleeping in her strawberry : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643628224056885248](https://t.me/ferretman/472)
-- [MediaThat’s a realistic soft toy….via Ferret Story https://just-a-catastrophy.tumblr.com/post/643597960236728320](https://t.me/ferretman/471)
-- [Mediahappy valentine’s day from our tiny cupid💘 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643597960240939008](https://t.me/ferretman/470)
-- [momfricker:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643594191223603200](https://t.me/ferretman/469)
+- [thelifeofmyferrets:MediaYou’ve met Grumpy CatNow meet Grumpy Ferretvia Ferret Story https://prettypeterparkr.tumblr.com/post/643654594968354816](https://t.me/ferretman/480)
+- [thatweirdferretlady:Point madevia Ferret Story https://scrisoridemai.tumblr.com/post/643654589295525888](https://t.me/ferretman/479)
+- [toukos:do u ever wonder how many of ur followers live near uvia Ferret Story https://anasfalhhhs.tumblr.com/post/643647036314484736](https://t.me/ferretman/478)
+- [hawfstuff:heatandapathy:catchymemes:MediaMediaMedia“The purpose of the collar is to protect the dog wearing it when it has to fight the wolves. The c...](https://t.me/ferretman/477)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643643299220029440](https://t.me/ferretman/476)
 <!-- TELEGRAM:END -->
