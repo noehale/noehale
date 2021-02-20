@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [koobaxion:Me: I feel horribly lonely and crappyBrain: dragon tales the tv show dragon talesMe: perfectvia Ferret Story https://anasfalhhhs.tumblr.com/...](https://t.me/ferretman/467)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/466)
-- [MediaMediaMediaMediaMediaMediaMediainsertdisc5:*sweats*via Ferret Story https://redzgn.tumblr.com/post/643582920031928320](https://t.me/ferretman/465)
-- [Mediamaddieonthings:Don’t forget to take yer boots off today 🙌🏼via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/64358288994...](https://t.me/ferretman/464)
-- [cupofsorrows:loveable-korrasami:https-graces:Japanese legend: you have the face of who you loved most in a past lifeMediaMediaMediaMediaTHE NEXT AVATA...](https://t.me/ferretman/463)
+- [MediaLittle derp was itchyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643567786350772224](https://t.me/ferretman/461)
+- [MediaThe high ground : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/643564048173137920](https://t.me/ferretman/460)
+- [MediaThis happens every time I get out of the showervia Ferret Story https://prettypeterparkr.tumblr.com/post/643564047620571136](https://t.me/ferretman/459)
+- [thelifeofmyferrets:iwatobigreg:mothmaam:panicatthepilotsinbeaconhills:mothmaam:MediaOriginally posted by hechosastrologicosis your name snowman?AnnaMe...](https://t.me/ferretman/458)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643552742671073280](https://t.me/ferretman/457)
 <!-- TELEGRAM:END -->
