@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Chunky brothers are just self-heated pillows when you’re a tiny...](https://come-forth-into-the-light.tumblr.com/post/643635712185581568)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/643590488079958016)
 - [My itchy old man loves his scratchy tray : ferrets](https://come-forth-into-the-light.tumblr.com/post/643567785996419072)
 - [Hector loves his face massage.](https://come-forth-into-the-light.tumblr.com/post/643545124038672384)
 - [Well, I suppose I needed licked.](https://come-forth-into-the-light.tumblr.com/post/643499831607918592)
-- [Ed bringing in the new year in](https://come-forth-into-the-light.tumblr.com/post/643477221704597504)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
