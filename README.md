@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [jackism:Mediavia Ferret Story https://xxcrybby.tumblr.com/post/643635745028014080](https://t.me/ferretman/473)
-- [MediaCaught my little girl sleeping in her strawberry : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643628224056885248](https://t.me/ferretman/472)
-- [MediaThat’s a realistic soft toy….via Ferret Story https://just-a-catastrophy.tumblr.com/post/643597960236728320](https://t.me/ferretman/471)
-- [Mediahappy valentine’s day from our tiny cupid💘 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643597960240939008](https://t.me/ferretman/470)
-- [momfricker:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643594191223603200](https://t.me/ferretman/469)
+- [MediaMediaMediatwoy:(wheeze)via Ferret Story https://just-a-catastrophy.tumblr.com/post/643688590543568896](https://t.me/ferretman/491)
+- [MediaI knitted a basket, guess it’s called a ferret nest? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643688590788919296](https://t.me/ferretman/490)
+- [MediaThese two look like I interrupted a very important “business” meeting 🤣via Ferret Story https://prettypeterparkr.tumblr.com/post/64368483085...](https://t.me/ferretman/489)
+- [MediaMediaMediaMediaMediaMediahajandradeye:FYI, Baby Ferrets Are Really Cutevia Ferret Story https://scrisoridemai.tumblr.com/post/643684791024287744](https://t.me/ferretman/488)
+- [catshaming:takerfoxx:thebestoftumbling:Puppy attempts to reclaim bed from catI’ve never seen any animal be so thoroughly unimpressed by the efforts o...](https://t.me/ferretman/487)
 <!-- TELEGRAM:END -->
