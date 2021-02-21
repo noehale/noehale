@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [thelifeofmyferrets:iwatobigreg: mothmaam: panicatthepilotsinbeaconhills: mothmaam: Originally...via Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/501)
+- [thelifeofmyferrets:MediaHe doesn’t know what to do.via Ferret Story https://prettypeterparkr.tumblr.com/post/643745222957924352](https://t.me/ferretman/500)
+- [wildlifewednesdays:A camerashy little weasel!via Ferret Story https://scrisoridemai.tumblr.com/post/643745188133683200](https://t.me/ferretman/499)
 - [Mediapotatochipped:coexistencex:yellowpainteater:wats he doinHis bestvia Ferret Story https://anasfalhhhs.tumblr.com/post/643737643010736128](https://t.me/ferretman/498)
 - [Mediascottlava:“Do animals talk in this dimension? Cause I don’t wanna freak him out.”via Ferret Story https://somewhere-inthe-deepdetails.tumblr.c...](https://t.me/ferretman/497)
-- [<a href="https://i-was-a-naive-antifeminist.tumblr.com/post/157045412791/fandomsandfeminism-yurihoney-psa-the-wage-gap">i-was-a-naive-antifeminist:<a ...](https://t.me/ferretman/496)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643733878575677440](https://t.me/ferretman/495)
-- [MediaDon’t mind the hangers , chaos likes to roll around in piles of old plastic bottles. But I do keep a very close eye on him. : ferretsvia Ferret ...](https://t.me/ferretman/494)
 <!-- TELEGRAM:END -->
