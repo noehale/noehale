@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [ya-wn:please for the love of god turn ur sound onvia Ferret Story https://falalamingo.tumblr.com/post/643669736089059328](https://t.me/ferretman/483)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/643665901610270720](https://t.me/ferretman/482)
+- [MediaSlinkyrinkystinkyweaselstroodlenoodledoodle all day!via Ferret Story https://just-a-catastrophy.tumblr.com/post/643658387739049984](https://t.me/ferretman/481)
 - [thelifeofmyferrets:MediaYou’ve met Grumpy CatNow meet Grumpy Ferretvia Ferret Story https://prettypeterparkr.tumblr.com/post/643654594968354816](https://t.me/ferretman/480)
 - [thatweirdferretlady:Point madevia Ferret Story https://scrisoridemai.tumblr.com/post/643654589295525888](https://t.me/ferretman/479)
-- [toukos:do u ever wonder how many of ur followers live near uvia Ferret Story https://anasfalhhhs.tumblr.com/post/643647036314484736](https://t.me/ferretman/478)
-- [hawfstuff:heatandapathy:catchymemes:MediaMediaMedia“The purpose of the collar is to protect the dog wearing it when it has to fight the wolves. The c...](https://t.me/ferretman/477)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643643299220029440](https://t.me/ferretman/476)
 <!-- TELEGRAM:END -->
