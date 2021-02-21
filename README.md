@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [ya-wn:please for the love of god turn ur sound onvia Ferret Story https://falalamingo.tumblr.com/post/643669736089059328](https://t.me/ferretman/483)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/643665901610270720](https://t.me/ferretman/482)
-- [MediaSlinkyrinkystinkyweaselstroodlenoodledoodle all day!via Ferret Story https://just-a-catastrophy.tumblr.com/post/643658387739049984](https://t.me/ferretman/481)
-- [thelifeofmyferrets:MediaYou’ve met Grumpy CatNow meet Grumpy Ferretvia Ferret Story https://prettypeterparkr.tumblr.com/post/643654594968354816](https://t.me/ferretman/480)
-- [thatweirdferretlady:Point madevia Ferret Story https://scrisoridemai.tumblr.com/post/643654589295525888](https://t.me/ferretman/479)
+- [thelifeofmyferrets:MediaFirst bath as a little man! He didn’t know what to think.via Ferret Story https://prettypeterparkr.tumblr.com/post/6435036584...](https://t.me/ferretman/449)
+- [MediaThis is Dwight, Dwight bites my feet whenever I clean the litter box. He has stood strong in his protest of turd relocation for two years straigh...](https://t.me/ferretman/448)
+- [emeraldembers:adrianianam:If you do things, fuck you.Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643496043506450432](https://t.me/ferretman/447)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Science PostersKelsey Oseid on Etsyvia Ferret Story https://somewhere-inthe-deepdetai...](https://t.me/ferretman/446)
+- [peroxider:darkwebdad:listening to phil collinsI hope that all internet content is obliterated except for this videovia Ferret Story https://redzgn.tum...](https://t.me/ferretman/445)
 <!-- TELEGRAM:END -->
