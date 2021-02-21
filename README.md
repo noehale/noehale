@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediatwoy:(wheeze)via Ferret Story https://just-a-catastrophy.tumblr.com/post/643688590543568896](https://t.me/ferretman/491)
-- [MediaI knitted a basket, guess it’s called a ferret nest? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643688590788919296](https://t.me/ferretman/490)
-- [MediaThese two look like I interrupted a very important “business” meeting 🤣via Ferret Story https://prettypeterparkr.tumblr.com/post/64368483085...](https://t.me/ferretman/489)
-- [MediaMediaMediaMediaMediaMediahajandradeye:FYI, Baby Ferrets Are Really Cutevia Ferret Story https://scrisoridemai.tumblr.com/post/643684791024287744](https://t.me/ferretman/488)
-- [catshaming:takerfoxx:thebestoftumbling:Puppy attempts to reclaim bed from catI’ve never seen any animal be so thoroughly unimpressed by the efforts o...](https://t.me/ferretman/487)
+- [ya-wn:please for the love of god turn ur sound onvia Ferret Story https://falalamingo.tumblr.com/post/643669736089059328](https://t.me/ferretman/483)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/643665901610270720](https://t.me/ferretman/482)
+- [MediaSlinkyrinkystinkyweaselstroodlenoodledoodle all day!via Ferret Story https://just-a-catastrophy.tumblr.com/post/643658387739049984](https://t.me/ferretman/481)
+- [thelifeofmyferrets:MediaYou’ve met Grumpy CatNow meet Grumpy Ferretvia Ferret Story https://prettypeterparkr.tumblr.com/post/643654594968354816](https://t.me/ferretman/480)
+- [thatweirdferretlady:Point madevia Ferret Story https://scrisoridemai.tumblr.com/post/643654589295525888](https://t.me/ferretman/479)
 <!-- TELEGRAM:END -->
