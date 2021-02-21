@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Video](https://come-forth-into-the-light.tumblr.com/post/643726310565347328)
 - [cozy in the blankets](https://come-forth-into-the-light.tumblr.com/post/643681076959756289)
 - [Mlem! I accidentally took a slo-mo of Loki sleepily grooming...](https://come-forth-into-the-light.tumblr.com/post/643658387075317760)
 - [Chunky brothers are just self-heated pillows when you’re a tiny...](https://come-forth-into-the-light.tumblr.com/post/643635712185581568)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/643590488079958016)
-- [My itchy old man loves his scratchy tray : ferrets](https://come-forth-into-the-light.tumblr.com/post/643567785996419072)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
