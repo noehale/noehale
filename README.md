@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediailuvatardis:lightskintboyfriend:wafflebloggies:that first bottle dead ass looks like it’s gonna make you shoot crows out of your handsThe first ...](https://t.me/ferretman/507)
-- [Media🧤🚂 🦡via Ferret Story https://babyiwannaknow.tumblr.com/post/643764122004176898](https://t.me/ferretman/506)
-- [“The ecstasy of solitude comes when you are not frightened to be alone.”- J. Krishnamurti (via subspectrum)via Ferret Story https://somewhere-inthe-...](https://t.me/ferretman/505)
-- [r4cs0:aven-rave:applied-moths:infernalpume:shmeards:supervirgin:dontforgettheclit:iamnotjody:dope-kulture:Tony Hawk lands a 900 at age 48!🐐🐐🐐...](https://t.me/ferretman/504)
-- [MediaHis natural enemy (no we did not let him eat any lol) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643760301674758144](https://t.me/ferretman/503)
+- [MediaMediaMediatwoy:(wheeze)via Ferret Story https://just-a-catastrophy.tumblr.com/post/643688590543568896](https://t.me/ferretman/491)
+- [MediaI knitted a basket, guess it’s called a ferret nest? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643688590788919296](https://t.me/ferretman/490)
+- [MediaThese two look like I interrupted a very important “business” meeting 🤣via Ferret Story https://prettypeterparkr.tumblr.com/post/64368483085...](https://t.me/ferretman/489)
+- [MediaMediaMediaMediaMediaMediahajandradeye:FYI, Baby Ferrets Are Really Cutevia Ferret Story https://scrisoridemai.tumblr.com/post/643684791024287744](https://t.me/ferretman/488)
+- [catshaming:takerfoxx:thebestoftumbling:Puppy attempts to reclaim bed from catI’ve never seen any animal be so thoroughly unimpressed by the efforts o...](https://t.me/ferretman/487)
 <!-- TELEGRAM:END -->
