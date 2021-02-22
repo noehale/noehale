@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediailuvatardis:lightskintboyfriend:wafflebloggies:that first bottle dead ass looks like it’s gonna make you shoot crows out of your handsThe first ...](https://t.me/ferretman/507)
-- [Media🧤🚂 🦡via Ferret Story https://babyiwannaknow.tumblr.com/post/643764122004176898](https://t.me/ferretman/506)
-- [“The ecstasy of solitude comes when you are not frightened to be alone.”- J. Krishnamurti (via subspectrum)via Ferret Story https://somewhere-inthe-...](https://t.me/ferretman/505)
-- [r4cs0:aven-rave:applied-moths:infernalpume:shmeards:supervirgin:dontforgettheclit:iamnotjody:dope-kulture:Tony Hawk lands a 900 at age 48!🐐🐐🐐...](https://t.me/ferretman/504)
-- [MediaHis natural enemy (no we did not let him eat any lol) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643760301674758144](https://t.me/ferretman/503)
+- [MediaEnjoying the chin rubsvia Ferret Story https://scrisoridemai.tumblr.com/post/643835841947598848](https://t.me/ferretman/520)
+- [Mediadaeoneo:updvia Ferret Story https://prettypeterparkr.tumblr.com/post/643835841761968128](https://t.me/ferretman/519)
+- [thelifeofmyferrets:darktauros:thelifeofmyferrets:thelifeofmyferrets:I removed some toys and Lucy just had a field day.Everyone loved Lucy playing in m...](https://t.me/ferretman/518)
+- [ickie:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/643824526104330240](https://t.me/ferretman/517)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/643824510911627264](https://t.me/ferretman/516)
 <!-- TELEGRAM:END -->
