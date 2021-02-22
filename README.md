@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediatwoy:(wheeze)via Ferret Story https://just-a-catastrophy.tumblr.com/post/643688590543568896](https://t.me/ferretman/491)
-- [MediaI knitted a basket, guess it’s called a ferret nest? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643688590788919296](https://t.me/ferretman/490)
-- [MediaThese two look like I interrupted a very important “business” meeting 🤣via Ferret Story https://prettypeterparkr.tumblr.com/post/64368483085...](https://t.me/ferretman/489)
-- [MediaMediaMediaMediaMediaMediahajandradeye:FYI, Baby Ferrets Are Really Cutevia Ferret Story https://scrisoridemai.tumblr.com/post/643684791024287744](https://t.me/ferretman/488)
-- [catshaming:takerfoxx:thebestoftumbling:Puppy attempts to reclaim bed from catI’ve never seen any animal be so thoroughly unimpressed by the efforts o...](https://t.me/ferretman/487)
+- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
+- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
+- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
+- [thelifeofmyferrets:MediaMediaMediaMediaThe Many Faces of Duckyvia Ferret Story https://prettypeterparkr.tumblr.com/post/643775391846318080](https://t.me/ferretman/508)
+- [Mediailuvatardis:lightskintboyfriend:wafflebloggies:that first bottle dead ass looks like it’s gonna make you shoot crows out of your handsThe first ...](https://t.me/ferretman/507)
 <!-- TELEGRAM:END -->
