@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
-- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
-- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
-- [thelifeofmyferrets:MediaMediaMediaMediaThe Many Faces of Duckyvia Ferret Story https://prettypeterparkr.tumblr.com/post/643775391846318080](https://t.me/ferretman/508)
 - [Mediailuvatardis:lightskintboyfriend:wafflebloggies:that first bottle dead ass looks like it’s gonna make you shoot crows out of your handsThe first ...](https://t.me/ferretman/507)
+- [Media🧤🚂 🦡via Ferret Story https://babyiwannaknow.tumblr.com/post/643764122004176898](https://t.me/ferretman/506)
+- [“The ecstasy of solitude comes when you are not frightened to be alone.”- J. Krishnamurti (via subspectrum)via Ferret Story https://somewhere-inthe-...](https://t.me/ferretman/505)
+- [r4cs0:aven-rave:applied-moths:infernalpume:shmeards:supervirgin:dontforgettheclit:iamnotjody:dope-kulture:Tony Hawk lands a 900 at age 48!🐐🐐🐐...](https://t.me/ferretman/504)
+- [MediaHis natural enemy (no we did not let him eat any lol) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643760301674758144](https://t.me/ferretman/503)
 <!-- TELEGRAM:END -->
