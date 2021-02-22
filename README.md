@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaEnjoying the chin rubsvia Ferret Story https://scrisoridemai.tumblr.com/post/643835841947598848](https://t.me/ferretman/520)
-- [Mediadaeoneo:updvia Ferret Story https://prettypeterparkr.tumblr.com/post/643835841761968128](https://t.me/ferretman/519)
-- [thelifeofmyferrets:darktauros:thelifeofmyferrets:thelifeofmyferrets:I removed some toys and Lucy just had a field day.Everyone loved Lucy playing in m...](https://t.me/ferretman/518)
-- [ickie:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/643824526104330240](https://t.me/ferretman/517)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/643824510911627264](https://t.me/ferretman/516)
+- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
+- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
+- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
+- [thelifeofmyferrets:MediaMediaMediaMediaThe Many Faces of Duckyvia Ferret Story https://prettypeterparkr.tumblr.com/post/643775391846318080](https://t.me/ferretman/508)
+- [Mediailuvatardis:lightskintboyfriend:wafflebloggies:that first bottle dead ass looks like it’s gonna make you shoot crows out of your handsThe first ...](https://t.me/ferretman/507)
 <!-- TELEGRAM:END -->
