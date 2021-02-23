@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [But that tail!!!!](https://come-forth-into-the-light.tumblr.com/post/643862268246999040)
 - [Got myself a fancy new hat! It’s called a fe(rret)dora. It...](https://come-forth-into-the-light.tumblr.com/post/643839620708220928)
 - [Gizmo likes to play alone 😂❤️](https://come-forth-into-the-light.tumblr.com/post/643816949286109184)
 - [There’s something wrong with my noodle](https://come-forth-into-the-light.tumblr.com/post/643771658295984128)
 - [Krill oil instead of salmon? I picked some up for my dogs but I...](https://come-forth-into-the-light.tumblr.com/post/643748990984339456)
-- [Video](https://come-forth-into-the-light.tumblr.com/post/643726310565347328)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
