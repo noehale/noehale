@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [vet-and-wild:Apparently when I can’t sleep I get really preachy about exotic pets, so sorry. Have an Alfredo as paymentMediavia Ferret Story https://...](https://t.me/ferretman/529)
-- [MediaMUST STASH!!!via Ferret Story https://prettypeterparkr.tumblr.com/post/643865983861309440](https://t.me/ferretman/528)
-- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643858498866790400](https://t.me/ferretman/527)
-- [pixelatedfrog-deactivated202009:727hz-deactivated20201216:pixelatedfrog-deactivated202009:koobaxion:They’re called “restaurants” because they “res...](https://t.me/ferretman/526)
-- [MediaWaking up after a hard days sleepvia Ferret Story https://babyiwannaknow.tumblr.com/post/643854698093395968](https://t.me/ferretman/525)
+- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://xxcrybby.tumblr.com/post/643816993371439104](https://t.me/ferretman/513)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643809355105550336](https://t.me/ferretman/512)
+- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
+- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
+- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
 <!-- TELEGRAM:END -->
