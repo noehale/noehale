@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://xxcrybby.tumblr.com/post/643816993371439104](https://t.me/ferretman/513)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643809355105550336](https://t.me/ferretman/512)
-- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
-- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
-- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
+- [Media🥺 she decided to crawl up and cuddle in bed with me, how am I supposed to leave the bed now????via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/531)
+- [Mediaxombiedirge:Not Your Princess by Chloe Skowronvia Ferret Story https://punkrocknat.tumblr.com/post/643869789175037952](https://t.me/ferretman/530)
+- [vet-and-wild:Apparently when I can’t sleep I get really preachy about exotic pets, so sorry. Have an Alfredo as paymentMediavia Ferret Story https://...](https://t.me/ferretman/529)
+- [MediaMUST STASH!!!via Ferret Story https://prettypeterparkr.tumblr.com/post/643865983861309440](https://t.me/ferretman/528)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643858498866790400](https://t.me/ferretman/527)
 <!-- TELEGRAM:END -->
