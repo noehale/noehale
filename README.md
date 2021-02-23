@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [vet-and-wild:Apparently when I can’t sleep I get really preachy about exotic pets, so sorry. Have an Alfredo as paymentMediavia Ferret Story https://...](https://t.me/ferretman/535)
-- [MediaEnjoying the chin rubsvia Ferret Story https://scrisoridemai.tumblr.com/post/643835841947598848](https://t.me/ferretman/534)
-- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/533)
-- [MediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/643899964285648896](https://t.me/ferretman/532)
-- [Media🥺 she decided to crawl up and cuddle in bed with me, how am I supposed to leave the bed now????via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/531)
+- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://xxcrybby.tumblr.com/post/643816993371439104](https://t.me/ferretman/513)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643809355105550336](https://t.me/ferretman/512)
+- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
+- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
+- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
 <!-- TELEGRAM:END -->
