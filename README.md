@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://xxcrybby.tumblr.com/post/643816993371439104](https://t.me/ferretman/513)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643809355105550336](https://t.me/ferretman/512)
-- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
-- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
-- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
+- [MediaDraw me like…. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643850947454435328](https://t.me/ferretman/523)
+- [beinggigantic:beinggigantic:beinggigantic:did u guys see the deer with the ribbonimagethis one did u see itdid u see thisvia Ferret Story https://xxcr...](https://t.me/ferretman/522)
+- [revawo: pisswolf: ultrabeast05: OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY...via Ferret Story https://just-a-catastrophy.tumblr.com/post/6438395...](https://t.me/ferretman/521)
+- [MediaEnjoying the chin rubsvia Ferret Story https://scrisoridemai.tumblr.com/post/643835841947598848](https://t.me/ferretman/520)
+- [Mediadaeoneo:updvia Ferret Story https://prettypeterparkr.tumblr.com/post/643835841761968128](https://t.me/ferretman/519)
 <!-- TELEGRAM:END -->
