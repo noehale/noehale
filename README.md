@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Nike (Left) & Bentley (Right) on our way back to Tx from...](https://come-forth-into-the-light.tumblr.com/post/643930218010230784)
 - [The gift that keeps on giving… : ferrets](https://come-forth-into-the-light.tumblr.com/post/643907548584558592)
 - [But that tail!!!!](https://come-forth-into-the-light.tumblr.com/post/643862268246999040)
 - [Got myself a fancy new hat! It’s called a fe(rret)dora. It...](https://come-forth-into-the-light.tumblr.com/post/643839620708220928)
 - [Gizmo likes to play alone 😂❤️](https://come-forth-into-the-light.tumblr.com/post/643816949286109184)
-- [There’s something wrong with my noodle](https://come-forth-into-the-light.tumblr.com/post/643771658295984128)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
