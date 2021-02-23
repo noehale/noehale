@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaEnjoying the chin rubsvia Ferret Story https://scrisoridemai.tumblr.com/post/643835841947598848](https://t.me/ferretman/520)
-- [Mediadaeoneo:updvia Ferret Story https://prettypeterparkr.tumblr.com/post/643835841761968128](https://t.me/ferretman/519)
-- [thelifeofmyferrets:darktauros:thelifeofmyferrets:thelifeofmyferrets:I removed some toys and Lucy just had a field day.Everyone loved Lucy playing in m...](https://t.me/ferretman/518)
-- [ickie:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/643824526104330240](https://t.me/ferretman/517)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/643824510911627264](https://t.me/ferretman/516)
+- [vet-and-wild:Apparently when I can’t sleep I get really preachy about exotic pets, so sorry. Have an Alfredo as paymentMediavia Ferret Story https://...](https://t.me/ferretman/529)
+- [MediaMUST STASH!!!via Ferret Story https://prettypeterparkr.tumblr.com/post/643865983861309440](https://t.me/ferretman/528)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/643858498866790400](https://t.me/ferretman/527)
+- [pixelatedfrog-deactivated202009:727hz-deactivated20201216:pixelatedfrog-deactivated202009:koobaxion:They’re called “restaurants” because they “res...](https://t.me/ferretman/526)
+- [MediaWaking up after a hard days sleepvia Ferret Story https://babyiwannaknow.tumblr.com/post/643854698093395968](https://t.me/ferretman/525)
 <!-- TELEGRAM:END -->
