@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at uvia Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/544)
-- [everythingfox:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643926412573720576](https://t.me/ferretman/543)
-- [MediaRocket says hivia Ferret Story https://prettypeterparkr.tumblr.com/post/643926404176723968](https://t.me/ferretman/542)
-- [catsindoors:“Am I a bad pet owner?”In my opinion what makes a bad pet owner is not what we’ve done, we all start somewhere, we all make mistakes. N...](https://t.me/ferretman/541)
-- [spikespiegell:do ya ever bring your pet up to a mirror and ur like “that you”via Ferret Story https://babyiwannaknow.tumblr.com/post/643915183473000...](https://t.me/ferretman/540)
+- [vet-and-wild:Apparently when I can’t sleep I get really preachy about exotic pets, so sorry. Have an Alfredo as paymentMediavia Ferret Story https://...](https://t.me/ferretman/535)
+- [MediaEnjoying the chin rubsvia Ferret Story https://scrisoridemai.tumblr.com/post/643835841947598848](https://t.me/ferretman/534)
+- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/533)
+- [MediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/643899964285648896](https://t.me/ferretman/532)
+- [Media🥺 she decided to crawl up and cuddle in bed with me, how am I supposed to leave the bed now????via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/531)
 <!-- TELEGRAM:END -->
