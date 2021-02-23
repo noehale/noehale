@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaDraw me like…. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643850947454435328](https://t.me/ferretman/523)
-- [beinggigantic:beinggigantic:beinggigantic:did u guys see the deer with the ribbonimagethis one did u see itdid u see thisvia Ferret Story https://xxcr...](https://t.me/ferretman/522)
-- [revawo: pisswolf: ultrabeast05: OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY...via Ferret Story https://just-a-catastrophy.tumblr.com/post/6438395...](https://t.me/ferretman/521)
 - [MediaEnjoying the chin rubsvia Ferret Story https://scrisoridemai.tumblr.com/post/643835841947598848](https://t.me/ferretman/520)
 - [Mediadaeoneo:updvia Ferret Story https://prettypeterparkr.tumblr.com/post/643835841761968128](https://t.me/ferretman/519)
+- [thelifeofmyferrets:darktauros:thelifeofmyferrets:thelifeofmyferrets:I removed some toys and Lucy just had a field day.Everyone loved Lucy playing in m...](https://t.me/ferretman/518)
+- [ickie:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/643824526104330240](https://t.me/ferretman/517)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/643824510911627264](https://t.me/ferretman/516)
 <!-- TELEGRAM:END -->
