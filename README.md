@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHer name is Smokeyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643960386532556800](https://t.me/ferretman/559)
-- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at uvia Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/558)
-- [Media🥺 she decided to crawl up and cuddle in bed with me, how am I supposed to leave the bed now????via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/557)
-- [Mediahermes-whore:maryburgers:maryburgers:riskpig:luthienebonyx:telanu:britney2007spears:hoodoo-hoodlum:I’m so mad because this workedhelp me rogerRe...](https://t.me/ferretman/556)
-- [MediaGot this toy after seeing it on here. Both my boys love it! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643990561506869248](https://t.me/ferretman/555)
+- [animedads:they call me… 7 Knives. because that’s how many knives it takes me to cook things because I keep puttin em in the fuckin sink without thin...](https://t.me/ferretman/569)
+- [Mediaaskclint:coffeeandcockatiels:maddddddds:korra:awkward how reassuring i find thiswell ya duh society shames speech patterns associated with young ...](https://t.me/ferretman/568)
+- [MediaSnow day = fun day!via Ferret Story https://just-a-catastrophy.tumblr.com/post/644020759162912768](https://t.me/ferretman/567)
+- [Mediaok i did! monker here too! they just woke upvia Ferret Story https://scrisoridemai.tumblr.com/post/644017032441085952](https://t.me/ferretman/566)
+- [“Call me and tell me you miss me. Call me and tell me I’m on your mind as much as you are on mine.”- (via feellng)via Ferret Story https://prettype...](https://t.me/ferretman/565)
 <!-- TELEGRAM:END -->
