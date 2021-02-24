@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at uvia Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/544)
-- [everythingfox:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643926412573720576](https://t.me/ferretman/543)
-- [MediaRocket says hivia Ferret Story https://prettypeterparkr.tumblr.com/post/643926404176723968](https://t.me/ferretman/542)
-- [catsindoors:“Am I a bad pet owner?”In my opinion what makes a bad pet owner is not what we’ve done, we all start somewhere, we all make mistakes. N...](https://t.me/ferretman/541)
-- [spikespiegell:do ya ever bring your pet up to a mirror and ur like “that you”via Ferret Story https://babyiwannaknow.tumblr.com/post/643915183473000...](https://t.me/ferretman/540)
+- [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/550)
+- [1dietcokeinacan:Oh to be, oh to be, oh to be!via Ferret Story https://redzgn.tumblr.com/post/643945373551001600](https://t.me/ferretman/549)
+- [Mediascottlava:“If I told you about her, what would I say? I wonder.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/6439452904...](https://t.me/ferretman/548)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643945287573979136](https://t.me/ferretman/547)
+- [MediaMeet Elizabeth Ann, the First Cloned Black-Footed Ferret : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643941515548360704](https://t.me/ferretman/546)
 <!-- TELEGRAM:END -->
