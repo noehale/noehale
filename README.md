@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://xxcrybby.tumblr.com/post/643816993371439104](https://t.me/ferretman/513)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/643809355105550336](https://t.me/ferretman/512)
-- [MediaFrancis with his favourite jingey ball.via Ferret Story https://just-a-catastrophy.tumblr.com/post/643779210688790528](https://t.me/ferretman/511)
-- [MediaSleepy Sokka : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643779188302725120](https://t.me/ferretman/510)
-- [MediaThis is one of our new furbabies, Conan, with soup on his face.via Ferret Story https://scrisoridemai.tumblr.com/post/643775429238521856](https://t.me/ferretman/509)
+- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at uvia Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/544)
+- [everythingfox:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643926412573720576](https://t.me/ferretman/543)
+- [MediaRocket says hivia Ferret Story https://prettypeterparkr.tumblr.com/post/643926404176723968](https://t.me/ferretman/542)
+- [catsindoors:“Am I a bad pet owner?”In my opinion what makes a bad pet owner is not what we’ve done, we all start somewhere, we all make mistakes. N...](https://t.me/ferretman/541)
+- [spikespiegell:do ya ever bring your pet up to a mirror and ur like “that you”via Ferret Story https://babyiwannaknow.tumblr.com/post/643915183473000...](https://t.me/ferretman/540)
 <!-- TELEGRAM:END -->
