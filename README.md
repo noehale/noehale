@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at uvia Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/544)
-- [everythingfox:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643926412573720576](https://t.me/ferretman/543)
-- [MediaRocket says hivia Ferret Story https://prettypeterparkr.tumblr.com/post/643926404176723968](https://t.me/ferretman/542)
-- [catsindoors:“Am I a bad pet owner?”In my opinion what makes a bad pet owner is not what we’ve done, we all start somewhere, we all make mistakes. N...](https://t.me/ferretman/541)
-- [spikespiegell:do ya ever bring your pet up to a mirror and ur like “that you”via Ferret Story https://babyiwannaknow.tumblr.com/post/643915183473000...](https://t.me/ferretman/540)
+- [MediaAaaand he’s off to stash his prized possession, the dryer ball he stole from us. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/6...](https://t.me/ferretman/554)
+- [MediaHer name is Smokeyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643960386532556800](https://t.me/ferretman/553)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/643956595390349312](https://t.me/ferretman/552)
+- [Mediathelifeofmyferrets:Meet Chef Ducky. His secret ingredient is salmon oil. Just squirt on top of your food for a #foodgasm#chef #ducky #cute #pet #...](https://t.me/ferretman/551)
+- [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/550)
 <!-- TELEGRAM:END -->
