@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/550)
-- [1dietcokeinacan:Oh to be, oh to be, oh to be!via Ferret Story https://redzgn.tumblr.com/post/643945373551001600](https://t.me/ferretman/549)
-- [Mediascottlava:“If I told you about her, what would I say? I wonder.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/6439452904...](https://t.me/ferretman/548)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643945287573979136](https://t.me/ferretman/547)
-- [MediaMeet Elizabeth Ann, the First Cloned Black-Footed Ferret : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643941515548360704](https://t.me/ferretman/546)
+- [MediaHer name is Smokeyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/643960386532556800](https://t.me/ferretman/559)
+- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at uvia Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/558)
+- [Media🥺 she decided to crawl up and cuddle in bed with me, how am I supposed to leave the bed now????via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/557)
+- [Mediahermes-whore:maryburgers:maryburgers:riskpig:luthienebonyx:telanu:britney2007spears:hoodoo-hoodlum:I’m so mad because this workedhelp me rogerRe...](https://t.me/ferretman/556)
+- [MediaGot this toy after seeing it on here. Both my boys love it! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/643990561506869248](https://t.me/ferretman/555)
 <!-- TELEGRAM:END -->
