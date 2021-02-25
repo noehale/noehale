@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaYato didn’t want to have to walk over to her tunnel toy, so she pulled it into her favorite green plastic bag. Bonus Dumpling cameo at the end.v...](https://t.me/ferretman/571)
+- [Mediagivemeinternet:A strong independent dog who don’t need no manvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/64403586305399...](https://t.me/ferretman/570)
 - [animedads:they call me… 7 Knives. because that’s how many knives it takes me to cook things because I keep puttin em in the fuckin sink without thin...](https://t.me/ferretman/569)
 - [Mediaaskclint:coffeeandcockatiels:maddddddds:korra:awkward how reassuring i find thiswell ya duh society shames speech patterns associated with young ...](https://t.me/ferretman/568)
 - [MediaSnow day = fun day!via Ferret Story https://just-a-catastrophy.tumblr.com/post/644020759162912768](https://t.me/ferretman/567)
-- [Mediaok i did! monker here too! they just woke upvia Ferret Story https://scrisoridemai.tumblr.com/post/644017032441085952](https://t.me/ferretman/566)
-- [“Call me and tell me you miss me. Call me and tell me I’m on your mind as much as you are on mine.”- (via feellng)via Ferret Story https://prettype...](https://t.me/ferretman/565)
 <!-- TELEGRAM:END -->
