@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [animedads:they call me… 7 Knives. because that’s how many knives it takes me to cook things because I keep puttin em in the fuckin sink without thin...](https://t.me/ferretman/569)
-- [Mediaaskclint:coffeeandcockatiels:maddddddds:korra:awkward how reassuring i find thiswell ya duh society shames speech patterns associated with young ...](https://t.me/ferretman/568)
-- [MediaSnow day = fun day!via Ferret Story https://just-a-catastrophy.tumblr.com/post/644020759162912768](https://t.me/ferretman/567)
-- [Mediaok i did! monker here too! they just woke upvia Ferret Story https://scrisoridemai.tumblr.com/post/644017032441085952](https://t.me/ferretman/566)
-- [“Call me and tell me you miss me. Call me and tell me I’m on your mind as much as you are on mine.”- (via feellng)via Ferret Story https://prettype...](https://t.me/ferretman/565)
+- [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/550)
+- [1dietcokeinacan:Oh to be, oh to be, oh to be!via Ferret Story https://redzgn.tumblr.com/post/643945373551001600](https://t.me/ferretman/549)
+- [Mediascottlava:“If I told you about her, what would I say? I wonder.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/6439452904...](https://t.me/ferretman/548)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/643945287573979136](https://t.me/ferretman/547)
+- [MediaMeet Elizabeth Ann, the First Cloned Black-Footed Ferret : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/643941515548360704](https://t.me/ferretman/546)
 <!-- TELEGRAM:END -->
