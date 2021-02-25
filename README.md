@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [So far they have no been aggressive and seem to love one another...](https://come-forth-into-the-light.tumblr.com/post/644088735866175488)
 - [sleepy fiona](https://come-forth-into-the-light.tumblr.com/post/644043387820965888)
 - [soft–dogs:some ferret comms for @thatonebisexualbitch!](https://come-forth-into-the-light.tumblr.com/post/644020821809053697)
 - [We had snow. Mei was unimpressed…](https://come-forth-into-the-light.tumblr.com/post/643998077310631937)
 - [Happy Holidays! Enjoy this big box of ferrets!](https://come-forth-into-the-light.tumblr.com/post/643952892343156736)
-- [Nike (Left) & Bentley (Right) on our way back to Tx from...](https://come-forth-into-the-light.tumblr.com/post/643930218010230784)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
