@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [animedads:they call me… 7 Knives. because that’s how many knives it takes me to cook things because I keep puttin em in the fuckin sink without thin...](https://t.me/ferretman/569)
-- [Mediaaskclint:coffeeandcockatiels:maddddddds:korra:awkward how reassuring i find thiswell ya duh society shames speech patterns associated with young ...](https://t.me/ferretman/568)
-- [MediaSnow day = fun day!via Ferret Story https://just-a-catastrophy.tumblr.com/post/644020759162912768](https://t.me/ferretman/567)
-- [Mediaok i did! monker here too! they just woke upvia Ferret Story https://scrisoridemai.tumblr.com/post/644017032441085952](https://t.me/ferretman/566)
-- [“Call me and tell me you miss me. Call me and tell me I’m on your mind as much as you are on mine.”- (via feellng)via Ferret Story https://prettype...](https://t.me/ferretman/565)
+- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://just-a-catastrophy.tumblr.com/post/644051040478609408](https://t.me/ferretman/576)
+- [ferret-flops:soylentnight:MediaOMGvia Ferret Story https://punkrocknat.tumblr.com/post/644051040676823040](https://t.me/ferretman/575)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediailliaccrest:He doesn’t even care if you’re still wearing it…via Ferret Story https://scrisoridemai.tum...](https://t.me/ferretman/574)
+- [MediaMediaMediabob-artist:Miss Rudy is such a chill dood.via Ferret Story https://prettypeterparkr.tumblr.com/post/644047202825764864](https://t.me/ferretman/573)
+- [MediaMediakierongillen:kierongillen:Boom, etc.We’re approaching the pre-order deadline for our return, so now is an excellent time to talk to your re...](https://t.me/ferretman/572)
 <!-- TELEGRAM:END -->
