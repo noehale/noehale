@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaaustinkleon:Peanuts nailing itvia Ferret Story https://anasfalhhhs.tumblr.com/post/644100048171433984](https://t.me/ferretman/580)
-- [wadey-wilson:no offense to 2020 but what the fuckvia Ferret Story https://xxcrybby.tumblr.com/post/644088741123735553](https://t.me/ferretman/579)
 - [MediaDid you have a nice time neglecting me while you were in the shower, human? I demand attention now. : ferretsvia Ferret Story https://falalamingo...](https://t.me/ferretman/578)
 - [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaxombiedirge:Matchbox Art series by Chet Phillips / Tumblr / Store.Prints available HERE.Created an...](https://t.me/ferretman/577)
 - [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://just-a-catastrophy.tumblr.com/post/644051040478609408](https://t.me/ferretman/576)
+- [ferret-flops:soylentnight:MediaOMGvia Ferret Story https://punkrocknat.tumblr.com/post/644051040676823040](https://t.me/ferretman/575)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediailliaccrest:He doesn’t even care if you’re still wearing it…via Ferret Story https://scrisoridemai.tum...](https://t.me/ferretman/574)
 <!-- TELEGRAM:END -->
