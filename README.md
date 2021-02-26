@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediahuggableotter:it-is-bugs:agelfeygelach:roachpatrol:i enjoy that every single human’s reaction to penguin is unrestrained delightAnd penguin...](https://t.me/ferretman/610)
 - [MediaFerret Eating ASMR *pls notice there’s raw meat in Video* : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644141594594934784](https://t.me/ferretman/609)
 - [dopesellsitself:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/644126529868136448](https://t.me/ferretman/608)
 - [tiny–gay-munchkin:soaringsearingphoenix:soaringsearingphoenix:The worst part of human adulthood is being your own zookeeperLike… i have to make sure...](https://t.me/ferretman/607)
 - [frankyourdeath:**eats three raspberries* I can feel my cells multiplying. my blood is cleaner, safer. my skin……less dry. I am well. I am nourished.v...](https://t.me/ferretman/606)
-- [Mediaaustinkleon:Peanuts nailing itvia Ferret Story https://anasfalhhhs.tumblr.com/post/644100048171433984](https://t.me/ferretman/605)
 <!-- TELEGRAM:END -->
