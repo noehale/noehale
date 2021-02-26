@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [frankyourdeath:**eats three raspberries* I can feel my cells multiplying. my blood is cleaner, safer. my skin……less dry. I am well. I am nourished.v...](https://t.me/ferretman/612)
-- [wadey-wilson:no offense to 2020 but what the fuckvia Ferret Story https://xxcrybby.tumblr.com/post/644088741123735553](https://t.me/ferretman/611)
-- [MediaMediahuggableotter:it-is-bugs:agelfeygelach:roachpatrol:i enjoy that every single human’s reaction to penguin is unrestrained delightAnd penguin...](https://t.me/ferretman/610)
-- [MediaFerret Eating ASMR *pls notice there’s raw meat in Video* : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644141594594934784](https://t.me/ferretman/609)
-- [dopesellsitself:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/644126529868136448](https://t.me/ferretman/608)
+- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/617)
+- [Mediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644186860295487488](https://t.me/ferretman/616)
+- [Mediamikayla-conley:Earth Pornvia Ferret Story https://redzgn.tumblr.com/post/644186860375146496](https://t.me/ferretman/615)
+- [MediaI just love when they derp while sleeping 😍 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644183076173398016](https://t.me/ferretman/614)
+- [gallusrostromegalus:thecapslockbrony:luftblumen:malcolm-f-tucker:I wish people would stop saying “It’s July. Well done for wasting half a year.” D...](https://t.me/ferretman/613)
 <!-- TELEGRAM:END -->
