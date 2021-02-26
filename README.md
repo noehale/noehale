@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [cataclysmictranquility: do you ever look at your pet and you can literally feel your heart melting...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/621)
+- [MediaAzula cleaning her big brother, Zuko!via Ferret Story https://scrisoridemai.tumblr.com/post/644198185178480640](https://t.me/ferretman/620)
+- [MediaTook Two Weeks, But Tucker Finally Slept In His Napsack Hammockvia Ferret Story https://prettypeterparkr.tumblr.com/post/644198185175236608](https://t.me/ferretman/619)
+- [foster-the-morning:i love people who get excited about starsvia Ferret Story https://anasfalhhhs.tumblr.com/post/644190653276995584](https://t.me/ferretman/618)
 - [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/617)
-- [Mediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644186860295487488](https://t.me/ferretman/616)
-- [Mediamikayla-conley:Earth Pornvia Ferret Story https://redzgn.tumblr.com/post/644186860375146496](https://t.me/ferretman/615)
-- [MediaI just love when they derp while sleeping 😍 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644183076173398016](https://t.me/ferretman/614)
-- [gallusrostromegalus:thecapslockbrony:luftblumen:malcolm-f-tucker:I wish people would stop saying “It’s July. Well done for wasting half a year.” D...](https://t.me/ferretman/613)
 <!-- TELEGRAM:END -->
