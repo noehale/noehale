@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaDoes anyone else’s ferret do this?via Ferret Story https://just-a-catastrophy.tumblr.com/post/644141559705731072](https://t.me/ferretman/595)
+- [beaniebabyoftheday:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644137821463085056](https://t.me/ferretman/594)
 - [MediaFirst Snow for Beo!via Ferret Story https://prettypeterparkr.tumblr.com/post/644137851461795840](https://t.me/ferretman/593)
 - [snout:being a macroorganism is so stressful. i want to know what my cells are doing. I don’t like how unsupervised they arevia Ferret Story https://a...](https://t.me/ferretman/592)
 - [dopesellsitself:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/644126529868136448](https://t.me/ferretman/591)
-- [tiny–gay-munchkin:soaringsearingphoenix:soaringsearingphoenix:The worst part of human adulthood is being your own zookeeperLike… i have to make sure...](https://t.me/ferretman/590)
-- [Mediadamianimated:Pride was always a protest.via Ferret Story https://redzgn.tumblr.com/post/644126461530456064](https://t.me/ferretman/589)
 <!-- TELEGRAM:END -->
