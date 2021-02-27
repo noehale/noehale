@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediajpechacek:jpechacek:MediaNobody called me but I showed up anyway.Medialiteral years later, a clean versionvia Ferret Story https://xxcrybby.tumbl...](https://t.me/ferretman/633)
-- [okaytrue:*comes across a slight inconvenience*me: you know what would solve this ????? deathvia Ferret Story https://punkrocknat.tumblr.com/post/64426...](https://t.me/ferretman/632)
-- [MediaMy Mochi is sick. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644232220280766464](https://t.me/ferretman/631)
-- [MediaThe Renaissance sub didn’t thing this belonged but myself and stinky boy disagree.via Ferret Story https://just-a-catastrophy.tumblr.com/post/64...](https://t.me/ferretman/630)
-- [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://scrisoridema...](https://t.me/ferretman/629)
+- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/640)
+- [vet-and-wild:MediaBig girlvia Ferret Story https://scrisoridemai.tumblr.com/post/644288789148270592](https://t.me/ferretman/639)
+- [<a href="https://64.media.tumblr.com/ecbc61ef5d89340b5263fb811a35ba66/tumblr_n705kpqAPp1qbrntno1_500.jpg">Media</a><a href="https://jenniferrpovey.tum...](https://t.me/ferretman/638)
+- [MediaA Hello 360via Ferret Story https://babyiwannaknow.tumblr.com/post/644277460232437760](https://t.me/ferretman/637)
+- [driedupsquid:4ek4:MediaMediaIM SCREAMIKNDFISDNFJSDBFvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644277440783548416](https://t.me/ferretman/636)
 <!-- TELEGRAM:END -->
