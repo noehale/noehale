@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMy Mochi is sick. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644232220280766464](https://t.me/ferretman/631)
+- [MediaThe Renaissance sub didn’t thing this belonged but myself and stinky boy disagree.via Ferret Story https://just-a-catastrophy.tumblr.com/post/64...](https://t.me/ferretman/630)
+- [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://scrisoridema...](https://t.me/ferretman/629)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/644228400481976320](https://t.me/ferretman/628)
 - [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644220823833657344](https://t.me/ferretman/627)
-- [avantgaye:today i told my manager “just because i can handle anything doesn’t mean i should have to” and if that isn’t just the motto of my lifevi...](https://t.me/ferretman/626)
-- [patrickdiomedes:elfyourmother:dynastylnoire:adrienvictus-moved:last night I dreamt that there was like a new meme/slang and it was ‘bode’ as in like...](https://t.me/ferretman/625)
-- [thelifeofmyferrets:tellmeifyouknowthissong:The Dandy Warhols - We Used To Be FriendsCome on now, honeyBring it on bring it on, yeahJust remember me wh...](https://t.me/ferretman/624)
-- [MediaDreaming about digging : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644213353366061056](https://t.me/ferretman/623)
 <!-- TELEGRAM:END -->
