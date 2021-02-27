@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644220823833657344](https://t.me/ferretman/627)
-- [avantgaye:today i told my manager “just because i can handle anything doesn’t mean i should have to” and if that isn’t just the motto of my lifevi...](https://t.me/ferretman/626)
-- [patrickdiomedes:elfyourmother:dynastylnoire:adrienvictus-moved:last night I dreamt that there was like a new meme/slang and it was ‘bode’ as in like...](https://t.me/ferretman/625)
-- [thelifeofmyferrets:tellmeifyouknowthissong:The Dandy Warhols - We Used To Be FriendsCome on now, honeyBring it on bring it on, yeahJust remember me wh...](https://t.me/ferretman/624)
-- [MediaDreaming about digging : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644213353366061056](https://t.me/ferretman/623)
+- [cataclysmictranquility: do you ever look at your pet and you can literally feel your heart melting...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/621)
+- [MediaAzula cleaning her big brother, Zuko!via Ferret Story https://scrisoridemai.tumblr.com/post/644198185178480640](https://t.me/ferretman/620)
+- [MediaTook Two Weeks, But Tucker Finally Slept In His Napsack Hammockvia Ferret Story https://prettypeterparkr.tumblr.com/post/644198185175236608](https://t.me/ferretman/619)
+- [foster-the-morning:i love people who get excited about starsvia Ferret Story https://anasfalhhhs.tumblr.com/post/644190653276995584](https://t.me/ferretman/618)
+- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/617)
 <!-- TELEGRAM:END -->
