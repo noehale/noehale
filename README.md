@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMy Mochi is sick. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644232220280766464](https://t.me/ferretman/631)
-- [MediaThe Renaissance sub didn’t thing this belonged but myself and stinky boy disagree.via Ferret Story https://just-a-catastrophy.tumblr.com/post/64...](https://t.me/ferretman/630)
-- [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://scrisoridema...](https://t.me/ferretman/629)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/644228400481976320](https://t.me/ferretman/628)
-- [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644220823833657344](https://t.me/ferretman/627)
+- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://just-a-catastrophy.tumblr.com/post/644051040478609408](https://t.me/ferretman/576)
+- [ferret-flops:soylentnight:MediaOMGvia Ferret Story https://punkrocknat.tumblr.com/post/644051040676823040](https://t.me/ferretman/575)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediailliaccrest:He doesn’t even care if you’re still wearing it…via Ferret Story https://scrisoridemai.tum...](https://t.me/ferretman/574)
+- [MediaMediaMediabob-artist:Miss Rudy is such a chill dood.via Ferret Story https://prettypeterparkr.tumblr.com/post/644047202825764864](https://t.me/ferretman/573)
+- [MediaMediakierongillen:kierongillen:Boom, etc.We’re approaching the pre-order deadline for our return, so now is an excellent time to talk to your re...](https://t.me/ferretman/572)
 <!-- TELEGRAM:END -->
