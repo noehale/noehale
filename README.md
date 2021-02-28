@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediajpechacek:jpechacek:MediaNobody called me but I showed up anyway.Medialiteral years later, a clean versionvia Ferret Story https://xxcrybby.tumbl...](https://t.me/ferretman/633)
+- [okaytrue:*comes across a slight inconvenience*me: you know what would solve this ????? deathvia Ferret Story https://punkrocknat.tumblr.com/post/64426...](https://t.me/ferretman/632)
 - [MediaMy Mochi is sick. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644232220280766464](https://t.me/ferretman/631)
 - [MediaThe Renaissance sub didn’t thing this belonged but myself and stinky boy disagree.via Ferret Story https://just-a-catastrophy.tumblr.com/post/64...](https://t.me/ferretman/630)
 - [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://scrisoridema...](https://t.me/ferretman/629)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/644228400481976320](https://t.me/ferretman/628)
-- [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644220823833657344](https://t.me/ferretman/627)
 <!-- TELEGRAM:END -->
