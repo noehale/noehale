@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediai’m begging you : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644352938798645248](https://t.me/ferretman/651)
-- [ferret-flops:If you listen all the way to the end, you can hear the beginnings of my blood curdling scream because Dexter decided to chomp on my arm ...](https://t.me/ferretman/650)
-- [MediaBigger Bed? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644322782937858048](https://t.me/ferretman/649)
-- [MediaFerret poop help! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/644318999729045504](https://t.me/ferretman/648)
-- [mattynerdock:Pet: *falls asleep*Me: *lies down in front of them, gets three inches from their face, and stares at them for 30 minutes*via Ferret Story...](https://t.me/ferretman/647)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/644383172744953856](https://t.me/ferretman/660)
+- [ferretfarts:LMFAOvia Ferret Story https://prettypeterparkr.tumblr.com/post/644379383915790336](https://t.me/ferretman/659)
+- [MediaMy little Ronnievia Ferret Story https://scrisoridemai.tumblr.com/post/644379364423843840](https://t.me/ferretman/658)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644371808450134016](https://t.me/ferretman/657)
+- [Mediascottlava:“What a dump. When I think of castles, it’s not what I picture.“LEGEND OF THE GREAT SHOWDOWNS exhibition in open at  Gallery 1988 i...](https://t.me/ferretman/656)
 <!-- TELEGRAM:END -->
