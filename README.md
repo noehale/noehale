@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [New Thing!](https://come-forth-into-the-light.tumblr.com/post/644315246089125888)
 - [Long night of hoarding and I’m half in the bag… : ferrets](https://come-forth-into-the-light.tumblr.com/post/644292554336223232)
 - [Vibing with Santa](https://come-forth-into-the-light.tumblr.com/post/644269882349912064)
 - [minerals:freddesferrets on ig](https://come-forth-into-the-light.tumblr.com/post/644224646738214912)
 - [Can someone let my know why my girl makes this noise? I’ve only...](https://come-forth-into-the-light.tumblr.com/post/644202001568317440)
-- [Minerva is Dопμт](https://come-forth-into-the-light.tumblr.com/post/644179331278684160)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
