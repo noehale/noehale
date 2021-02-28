@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Simon says, “oh, no thank you.”](https://come-forth-into-the-light.tumblr.com/post/644383138259369984)
 - [Happy New Year!](https://come-forth-into-the-light.tumblr.com/post/644360475987099648)
 - [New Thing!](https://come-forth-into-the-light.tumblr.com/post/644315246089125888)
 - [Long night of hoarding and I’m half in the bag… : ferrets](https://come-forth-into-the-light.tumblr.com/post/644292554336223232)
 - [Vibing with Santa](https://come-forth-into-the-light.tumblr.com/post/644269882349912064)
-- [minerals:freddesferrets on ig](https://come-forth-into-the-light.tumblr.com/post/644224646738214912)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
