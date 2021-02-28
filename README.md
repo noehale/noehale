@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediajpechacek:jpechacek:MediaNobody called me but I showed up anyway.Medialiteral years later, a clean versionvia Ferret Story https://xxcrybby.tumbl...](https://t.me/ferretman/633)
-- [okaytrue:*comes across a slight inconvenience*me: you know what would solve this ????? deathvia Ferret Story https://punkrocknat.tumblr.com/post/64426...](https://t.me/ferretman/632)
-- [MediaMy Mochi is sick. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644232220280766464](https://t.me/ferretman/631)
-- [MediaThe Renaissance sub didn’t thing this belonged but myself and stinky boy disagree.via Ferret Story https://just-a-catastrophy.tumblr.com/post/64...](https://t.me/ferretman/630)
-- [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://scrisoridema...](https://t.me/ferretman/629)
+- [ferret-flops:If you listen all the way to the end, you can hear the beginnings of my blood curdling scream because Dexter decided to chomp on my arm ...](https://t.me/ferretman/650)
+- [MediaBigger Bed? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644322782937858048](https://t.me/ferretman/649)
+- [MediaFerret poop help! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/644318999729045504](https://t.me/ferretman/648)
+- [mattynerdock:Pet: *falls asleep*Me: *lies down in front of them, gets three inches from their face, and stares at them for 30 minutes*via Ferret Story...](https://t.me/ferretman/647)
+- [carryon94:armedandgayngerous:smallmight:bigstupiduglyogre:thebuttkingpost:zoraiya:It’s cleaning time again only instead of using just the faucet I de...](https://t.me/ferretman/646)
 <!-- TELEGRAM:END -->
