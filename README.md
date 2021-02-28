@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaSomeone got caught on hubby’s desk again… : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644303889451122689](https://t.me/ferretman/642)
+- [claudiazg:legally-a-bastard:dykelliewilliams:willow-wanderings:castle-engineer:all-aboard-the-bane-train:mmmmmistilllikepotatosalad:OMFG.Very curious ...](https://t.me/ferretman/641)
 - [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/640)
 - [vet-and-wild:MediaBig girlvia Ferret Story https://scrisoridemai.tumblr.com/post/644288789148270592](https://t.me/ferretman/639)
 - [<a href="https://64.media.tumblr.com/ecbc61ef5d89340b5263fb811a35ba66/tumblr_n705kpqAPp1qbrntno1_500.jpg">Media</a><a href="https://jenniferrpovey.tum...](https://t.me/ferretman/638)
-- [MediaA Hello 360via Ferret Story https://babyiwannaknow.tumblr.com/post/644277460232437760](https://t.me/ferretman/637)
-- [driedupsquid:4ek4:MediaMediaIM SCREAMIKNDFISDNFJSDBFvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644277440783548416](https://t.me/ferretman/636)
 <!-- TELEGRAM:END -->
