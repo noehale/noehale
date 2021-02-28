@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSomeone got caught on hubby’s desk again… : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644303889451122689](https://t.me/ferretman/642)
-- [claudiazg:legally-a-bastard:dykelliewilliams:willow-wanderings:castle-engineer:all-aboard-the-bane-train:mmmmmistilllikepotatosalad:OMFG.Very curious ...](https://t.me/ferretman/641)
-- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/640)
-- [vet-and-wild:MediaBig girlvia Ferret Story https://scrisoridemai.tumblr.com/post/644288789148270592](https://t.me/ferretman/639)
-- [<a href="https://64.media.tumblr.com/ecbc61ef5d89340b5263fb811a35ba66/tumblr_n705kpqAPp1qbrntno1_500.jpg">Media</a><a href="https://jenniferrpovey.tum...](https://t.me/ferretman/638)
+- [MediaMy Mochi is sick. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644232220280766464](https://t.me/ferretman/631)
+- [MediaThe Renaissance sub didn’t thing this belonged but myself and stinky boy disagree.via Ferret Story https://just-a-catastrophy.tumblr.com/post/64...](https://t.me/ferretman/630)
+- [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://scrisoridema...](https://t.me/ferretman/629)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/644228400481976320](https://t.me/ferretman/628)
+- [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644220823833657344](https://t.me/ferretman/627)
 <!-- TELEGRAM:END -->
