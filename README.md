@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediai’m begging you : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644352938798645248](https://t.me/ferretman/651)
 - [ferret-flops:If you listen all the way to the end, you can hear the beginnings of my blood curdling scream because Dexter decided to chomp on my arm ...](https://t.me/ferretman/650)
 - [MediaBigger Bed? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644322782937858048](https://t.me/ferretman/649)
 - [MediaFerret poop help! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/644318999729045504](https://t.me/ferretman/648)
 - [mattynerdock:Pet: *falls asleep*Me: *lies down in front of them, gets three inches from their face, and stares at them for 30 minutes*via Ferret Story...](https://t.me/ferretman/647)
+- [carryon94:armedandgayngerous:smallmight:bigstupiduglyogre:thebuttkingpost:zoraiya:It’s cleaning time again only instead of using just the faucet I de...](https://t.me/ferretman/646)
 <!-- TELEGRAM:END -->
