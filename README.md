@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediascottlava:“What a dump. When I think of castles, it’s not what I picture.“LEGEND OF THE GREAT SHOWDOWNS exhibition in open at  Gallery 1988 i...](https://t.me/ferretman/656)
-- [miloszsghost:wotervia Ferret Story https://babyiwannaknow.tumblr.com/post/644368061257940992](https://t.me/ferretman/655)
-- [<a href="https://biggest-gaudiest-patronuses.tumblr.com/post/623551224023826432/i-am-a-feeling-madame-mothe">biggest-gaudiest-patronuses</a>:<a href="...](https://t.me/ferretman/654)
-- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/644364266074456064](https://t.me/ferretman/653)
-- [MediaMediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/644360500200849408](https://t.me/ferretman/652)
+- [Mediai’m begging you : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644352938798645248](https://t.me/ferretman/651)
+- [ferret-flops:If you listen all the way to the end, you can hear the beginnings of my blood curdling scream because Dexter decided to chomp on my arm ...](https://t.me/ferretman/650)
+- [MediaBigger Bed? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644322782937858048](https://t.me/ferretman/649)
+- [MediaFerret poop help! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/644318999729045504](https://t.me/ferretman/648)
+- [mattynerdock:Pet: *falls asleep*Me: *lies down in front of them, gets three inches from their face, and stares at them for 30 minutes*via Ferret Story...](https://t.me/ferretman/647)
 <!-- TELEGRAM:END -->
