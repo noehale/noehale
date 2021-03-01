@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [emperorwebrunner:stepancanroll:damnitsizzi:thebuttkingpost:People are replicating the feeling of a Bethesda game IRL so well that I’m scared someone...](https://t.me/ferretman/682)
+- [MediaI swear ferrets are liquid : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644454863555739648](https://t.me/ferretman/681)
 - [purroblematic:purroblematic:purroblematic:purroblematic:imagehappy krimisimageMediaits chrisminthMediaMediamerry criesisMediaMediahappy chrysler Medi...](https://t.me/ferretman/680)
 - [MediaHe’s dreaming of that chicken he and his sister ate for dinner : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644443549361897472](https://t.me/ferretman/679)
 - [beaniebabyoftheday:someone: bear in mind…..me:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644409594196705281](https://t.me/ferretman/678)
-- [via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644398255314173952](https://t.me/ferretman/677)
-- [disubiquity:calliborn:please don’t cosplay at schoolimagevia Ferret Story https://xxcrybby.tumblr.com/post/644390721857699840](https://t.me/ferretman/676)
 <!-- TELEGRAM:END -->
