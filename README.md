@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [bears-official:gigi-tastic:typhoidmeri:why-animals-do-the-thing:n-a-blue-box:11213372:docwithtardisfez:wildlifewednesdays:A porcupine’s Halloween pre...](https://t.me/ferretman/666)
-- [via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644398255314173952](https://t.me/ferretman/665)
-- [MediaMediaMediaMediaMediawriteinblack:I’m handing out full plates of “shut the fuck up” tonight.via Ferret Story https://redzgn.tumblr.com/post/644...](https://t.me/ferretman/664)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies 💔❤️via Ferret Story http...](https://t.me/ferretman/663)
-- [via Ferret Story https://falalamingo.tumblr.com/post/644394489053691904](https://t.me/ferretman/662)
+- [Mediascottlava:“What a dump. When I think of castles, it’s not what I picture.“LEGEND OF THE GREAT SHOWDOWNS exhibition in open at  Gallery 1988 i...](https://t.me/ferretman/656)
+- [miloszsghost:wotervia Ferret Story https://babyiwannaknow.tumblr.com/post/644368061257940992](https://t.me/ferretman/655)
+- [<a href="https://biggest-gaudiest-patronuses.tumblr.com/post/623551224023826432/i-am-a-feeling-madame-mothe">biggest-gaudiest-patronuses</a>:<a href="...](https://t.me/ferretman/654)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/644364266074456064](https://t.me/ferretman/653)
+- [MediaMediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/644360500200849408](https://t.me/ferretman/652)
 <!-- TELEGRAM:END -->
