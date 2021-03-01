@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/644383172744953856](https://t.me/ferretman/660)
-- [ferretfarts:LMFAOvia Ferret Story https://prettypeterparkr.tumblr.com/post/644379383915790336](https://t.me/ferretman/659)
-- [MediaMy little Ronnievia Ferret Story https://scrisoridemai.tumblr.com/post/644379364423843840](https://t.me/ferretman/658)
-- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644371808450134016](https://t.me/ferretman/657)
 - [Mediascottlava:“What a dump. When I think of castles, it’s not what I picture.“LEGEND OF THE GREAT SHOWDOWNS exhibition in open at  Gallery 1988 i...](https://t.me/ferretman/656)
+- [miloszsghost:wotervia Ferret Story https://babyiwannaknow.tumblr.com/post/644368061257940992](https://t.me/ferretman/655)
+- [<a href="https://biggest-gaudiest-patronuses.tumblr.com/post/623551224023826432/i-am-a-feeling-madame-mothe">biggest-gaudiest-patronuses</a>:<a href="...](https://t.me/ferretman/654)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/644364266074456064](https://t.me/ferretman/653)
+- [MediaMediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/644360500200849408](https://t.me/ferretman/652)
 <!-- TELEGRAM:END -->
