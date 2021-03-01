@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [bears-official:gigi-tastic:typhoidmeri:why-animals-do-the-thing:n-a-blue-box:11213372:docwithtardisfez:wildlifewednesdays:A porcupine’s Halloween pre...](https://t.me/ferretman/666)
-- [via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644398255314173952](https://t.me/ferretman/665)
-- [MediaMediaMediaMediaMediawriteinblack:I’m handing out full plates of “shut the fuck up” tonight.via Ferret Story https://redzgn.tumblr.com/post/644...](https://t.me/ferretman/664)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies 💔❤️via Ferret Story http...](https://t.me/ferretman/663)
-- [via Ferret Story https://falalamingo.tumblr.com/post/644394489053691904](https://t.me/ferretman/662)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/644383172744953856](https://t.me/ferretman/660)
+- [ferretfarts:LMFAOvia Ferret Story https://prettypeterparkr.tumblr.com/post/644379383915790336](https://t.me/ferretman/659)
+- [MediaMy little Ronnievia Ferret Story https://scrisoridemai.tumblr.com/post/644379364423843840](https://t.me/ferretman/658)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644371808450134016](https://t.me/ferretman/657)
+- [Mediascottlava:“What a dump. When I think of castles, it’s not what I picture.“LEGEND OF THE GREAT SHOWDOWNS exhibition in open at  Gallery 1988 i...](https://t.me/ferretman/656)
 <!-- TELEGRAM:END -->
