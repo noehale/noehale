@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/644413341264117761](https://t.me/ferretman/670)
-- [MediaShe looks so innocent 😂😂 little devil : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644413341256843264](https://t.me/ferretman/669)
-- [beaniebabyoftheday:someone: bear in mind…..me:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644409594196705281](https://t.me/ferretman/668)
-- [MediaDreaming about treatsvia Ferret Story https://prettypeterparkr.tumblr.com/post/644409557241724929](https://t.me/ferretman/667)
-- [bears-official:gigi-tastic:typhoidmeri:why-animals-do-the-thing:n-a-blue-box:11213372:docwithtardisfez:wildlifewednesdays:A porcupine’s Halloween pre...](https://t.me/ferretman/666)
+- [purroblematic:purroblematic:purroblematic:purroblematic:imagehappy krimisimageMediaits chrisminthMediaMediamerry criesisMediaMediahappy chrysler Medi...](https://t.me/ferretman/680)
+- [MediaHe’s dreaming of that chicken he and his sister ate for dinner : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644443549361897472](https://t.me/ferretman/679)
+- [beaniebabyoftheday:someone: bear in mind…..me:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644409594196705281](https://t.me/ferretman/678)
+- [via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644398255314173952](https://t.me/ferretman/677)
+- [disubiquity:calliborn:please don’t cosplay at schoolimagevia Ferret Story https://xxcrybby.tumblr.com/post/644390721857699840](https://t.me/ferretman/676)
 <!-- TELEGRAM:END -->
