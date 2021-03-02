@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediamustelidmess:Mustelids by Sylfaennvia Ferret Story https://just-a-catastrophy.tumblr.com/post/644504008503017472](https://t.me/ferretman/696)
-- [usbport:I respect bees more than I respect white men in positions of powervia Ferret Story https://punkrocknat.tumblr.com/post/644504008407580672](https://t.me/ferretman/695)
-- [Mediacryoverkiltmilk:mmmcknuckly:Mediafurry noodles vs smooth noodlesvia Ferret Story https://scrisoridemai.tumblr.com/post/644500205138558976](https://t.me/ferretman/694)
-- [MediaHow would you explain it to Martin?via Ferret Story https://prettypeterparkr.tumblr.com/post/644500199480360960](https://t.me/ferretman/693)
-- [via Ferret Story https://babyiwannaknow.tumblr.com/post/644488921308397568](https://t.me/ferretman/692)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediainfjadvice:Credit: Ashley McMinnvia Ferret Story https://xxcrybby.tumblr.com/post/644541695714902016](https://t.me/ferretman/706)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/644534279805779968](https://t.me/ferretman/705)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644371808450134016](https://t.me/ferretman/704)
+- [MediaMediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/644360500200849408](https://t.me/ferretman/703)
+- [carryon94:armedandgayngerous:smallmight:bigstupiduglyogre:thebuttkingpost:zoraiya:It’s cleaning time again only instead of using just the faucet I de...](https://t.me/ferretman/702)
 <!-- TELEGRAM:END -->
