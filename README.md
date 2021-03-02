@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediamustelidmess:Mustelids by Sylfaennvia Ferret Story https://just-a-catastrophy.tumblr.com/post/644504008503017472](https://t.me/ferretman/696)
-- [usbport:I respect bees more than I respect white men in positions of powervia Ferret Story https://punkrocknat.tumblr.com/post/644504008407580672](https://t.me/ferretman/695)
-- [Mediacryoverkiltmilk:mmmcknuckly:Mediafurry noodles vs smooth noodlesvia Ferret Story https://scrisoridemai.tumblr.com/post/644500205138558976](https://t.me/ferretman/694)
-- [MediaHow would you explain it to Martin?via Ferret Story https://prettypeterparkr.tumblr.com/post/644500199480360960](https://t.me/ferretman/693)
 - [via Ferret Story https://babyiwannaknow.tumblr.com/post/644488921308397568](https://t.me/ferretman/692)
+- [Mediaamnhnyc:The largest flower in the world, the stinking corpse lily (Rafflesia arnoldi), may look beautiful, but its rotten-flesh scent will make y...](https://t.me/ferretman/691)
+- [Mediapseudonymjones:whew thanks!!!via Ferret Story https://redzgn.tumblr.com/post/644488903245676544](https://t.me/ferretman/690)
+- [Mediaout of the countless pictures and videos i got of my two babies playing in the snow, my favorite picture ended up being of my third, who’s terri...](https://t.me/ferretman/689)
+- [furiona:hoodies are one of the most powerful and underappreciated articles of clothing. cold? put on a hoodie. raining? put on a hoodie. no bra? put o...](https://t.me/ferretman/688)
 <!-- TELEGRAM:END -->
