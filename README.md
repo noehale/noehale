@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret-flops:thefingerfuckingfemalefury:keepmywhiskeyneat:wyvernchild:lavender-ice:please.That is the exact spot my parents found a stray kitten....](https://t.me/ferretman/687)
-- [artificial-father:bob-artist:bob-artist:I love ferret-fighting etiquette so much.  Like, when ferrets fight, they get so wild and crazy that they cra...](https://t.me/ferretman/686)
-- [Mediatheferrets:theferrets:Traffic jam!I wish I could reverse to this day for just 10 minutes <3via Ferret Story https://prettypeterparkr.tumblr.com/p...](https://t.me/ferretman/685)
-- [MediaMediaMedianoxystem:coffee-and-cogs:dontwasteaspellslot:dontwasteaspellslot:so i sent this email/“essay” to cards against humanity and uhi didn...](https://t.me/ferretman/684)
-- [dch:masonelliott:blackcoffee-brittlebones:new tumblr users:Mediaold tumblr users:Mediai have never seen a more accurate photos setexactlyvia Ferret St...](https://t.me/ferretman/683)
+- [emperorwebrunner:stepancanroll:damnitsizzi:thebuttkingpost:People are replicating the feeling of a Bethesda game IRL so well that I’m scared someone...](https://t.me/ferretman/682)
+- [MediaI swear ferrets are liquid : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644454863555739648](https://t.me/ferretman/681)
+- [purroblematic:purroblematic:purroblematic:purroblematic:imagehappy krimisimageMediaits chrisminthMediaMediamerry criesisMediaMediahappy chrysler Medi...](https://t.me/ferretman/680)
+- [MediaHe’s dreaming of that chicken he and his sister ate for dinner : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644443549361897472](https://t.me/ferretman/679)
+- [beaniebabyoftheday:someone: bear in mind…..me:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644409594196705281](https://t.me/ferretman/678)
 <!-- TELEGRAM:END -->
