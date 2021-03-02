@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [emperorwebrunner:stepancanroll:damnitsizzi:thebuttkingpost:People are replicating the feeling of a Bethesda game IRL so well that I’m scared someone...](https://t.me/ferretman/682)
-- [MediaI swear ferrets are liquid : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644454863555739648](https://t.me/ferretman/681)
-- [purroblematic:purroblematic:purroblematic:purroblematic:imagehappy krimisimageMediaits chrisminthMediaMediamerry criesisMediaMediahappy chrysler Medi...](https://t.me/ferretman/680)
-- [MediaHe’s dreaming of that chicken he and his sister ate for dinner : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644443549361897472](https://t.me/ferretman/679)
-- [beaniebabyoftheday:someone: bear in mind…..me:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644409594196705281](https://t.me/ferretman/678)
+- [via Ferret Story https://babyiwannaknow.tumblr.com/post/644488921308397568](https://t.me/ferretman/692)
+- [Mediaamnhnyc:The largest flower in the world, the stinking corpse lily (Rafflesia arnoldi), may look beautiful, but its rotten-flesh scent will make y...](https://t.me/ferretman/691)
+- [Mediapseudonymjones:whew thanks!!!via Ferret Story https://redzgn.tumblr.com/post/644488903245676544](https://t.me/ferretman/690)
+- [Mediaout of the countless pictures and videos i got of my two babies playing in the snow, my favorite picture ended up being of my third, who’s terri...](https://t.me/ferretman/689)
+- [furiona:hoodies are one of the most powerful and underappreciated articles of clothing. cold? put on a hoodie. raining? put on a hoodie. no bra? put o...](https://t.me/ferretman/688)
 <!-- TELEGRAM:END -->
