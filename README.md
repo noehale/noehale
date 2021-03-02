@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [via Ferret Story https://babyiwannaknow.tumblr.com/post/644488921308397568](https://t.me/ferretman/692)
-- [Mediaamnhnyc:The largest flower in the world, the stinking corpse lily (Rafflesia arnoldi), may look beautiful, but its rotten-flesh scent will make y...](https://t.me/ferretman/691)
-- [Mediapseudonymjones:whew thanks!!!via Ferret Story https://redzgn.tumblr.com/post/644488903245676544](https://t.me/ferretman/690)
-- [Mediaout of the countless pictures and videos i got of my two babies playing in the snow, my favorite picture ended up being of my third, who’s terri...](https://t.me/ferretman/689)
-- [furiona:hoodies are one of the most powerful and underappreciated articles of clothing. cold? put on a hoodie. raining? put on a hoodie. no bra? put o...](https://t.me/ferretman/688)
+- [furiona:hoodies are one of the most powerful and underappreciated articles of clothing. cold? put on a hoodie. raining? put on a hoodie. no bra? put o...](https://t.me/ferretman/701)
+- [MediaMediaMedianoxystem:coffee-and-cogs:dontwasteaspellslot:dontwasteaspellslot:so i sent this email/“essay” to cards against humanity and uhi didn...](https://t.me/ferretman/700)
+- [purroblematic:purroblematic:purroblematic:purroblematic:imagehappy krimisimageMediaits chrisminthMediaMediamerry criesisMediaMediahappy chrysler Medi...](https://t.me/ferretman/699)
+- [bears-official:gigi-tastic:typhoidmeri:why-animals-do-the-thing:n-a-blue-box:11213372:docwithtardisfez:wildlifewednesdays:A porcupine’s Halloween pre...](https://t.me/ferretman/698)
+- [disubiquity:calliborn:please don’t cosplay at schoolimagevia Ferret Story https://xxcrybby.tumblr.com/post/644390721857699840](https://t.me/ferretman/697)
 <!-- TELEGRAM:END -->
