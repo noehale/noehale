@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [furiona:hoodies are one of the most powerful and underappreciated articles of clothing. cold? put on a hoodie. raining? put on a hoodie. no bra? put o...](https://t.me/ferretman/701)
-- [MediaMediaMedianoxystem:coffee-and-cogs:dontwasteaspellslot:dontwasteaspellslot:so i sent this email/“essay” to cards against humanity and uhi didn...](https://t.me/ferretman/700)
-- [purroblematic:purroblematic:purroblematic:purroblematic:imagehappy krimisimageMediaits chrisminthMediaMediamerry criesisMediaMediahappy chrysler Medi...](https://t.me/ferretman/699)
-- [bears-official:gigi-tastic:typhoidmeri:why-animals-do-the-thing:n-a-blue-box:11213372:docwithtardisfez:wildlifewednesdays:A porcupine’s Halloween pre...](https://t.me/ferretman/698)
-- [disubiquity:calliborn:please don’t cosplay at schoolimagevia Ferret Story https://xxcrybby.tumblr.com/post/644390721857699840](https://t.me/ferretman/697)
+- [Mediamustelidmess:Mustelids by Sylfaennvia Ferret Story https://just-a-catastrophy.tumblr.com/post/644504008503017472](https://t.me/ferretman/696)
+- [usbport:I respect bees more than I respect white men in positions of powervia Ferret Story https://punkrocknat.tumblr.com/post/644504008407580672](https://t.me/ferretman/695)
+- [Mediacryoverkiltmilk:mmmcknuckly:Mediafurry noodles vs smooth noodlesvia Ferret Story https://scrisoridemai.tumblr.com/post/644500205138558976](https://t.me/ferretman/694)
+- [MediaHow would you explain it to Martin?via Ferret Story https://prettypeterparkr.tumblr.com/post/644500199480360960](https://t.me/ferretman/693)
+- [via Ferret Story https://babyiwannaknow.tumblr.com/post/644488921308397568](https://t.me/ferretman/692)
 <!-- TELEGRAM:END -->
