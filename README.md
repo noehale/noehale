@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Curious about the outside world](https://come-forth-into-the-light.tumblr.com/post/644496445618225152)
 - [Astoria (right) passed away today. I feel so empty. : ferrets](https://come-forth-into-the-light.tumblr.com/post/644473805920763904)
 - [Jupiter pondering his next reading choice.](https://come-forth-into-the-light.tumblr.com/post/644451136755171328)
 - [Christmas blep from our handsome boy Kipling](https://come-forth-into-the-light.tumblr.com/post/644405783571939330)
 - [Simon says, “oh, no thank you.”](https://come-forth-into-the-light.tumblr.com/post/644383138259369984)
-- [Happy New Year!](https://come-forth-into-the-light.tumblr.com/post/644360475987099648)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
