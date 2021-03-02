@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [lindseyenna:This is my new favorite Tik Tok](https://come-forth-into-the-light.tumblr.com/post/644564371399376896)
 - [thiktok:caption: thera the deaf ferret gets a little ball pit surprise ](https://come-forth-into-the-light.tumblr.com/post/644541726203248640)
 - [Curious about the outside world](https://come-forth-into-the-light.tumblr.com/post/644496445618225152)
 - [Astoria (right) passed away today. I feel so empty. : ferrets](https://come-forth-into-the-light.tumblr.com/post/644473805920763904)
 - [Jupiter pondering his next reading choice.](https://come-forth-into-the-light.tumblr.com/post/644451136755171328)
-- [Christmas blep from our handsome boy Kipling](https://come-forth-into-the-light.tumblr.com/post/644405783571939330)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
