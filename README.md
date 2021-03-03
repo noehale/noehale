@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/644564371727613952](https://t.me/ferretman/714)
-- [MediaSound up for excited dooking (and my heavy breathing due to a cold 😬)via Ferret Story https://prettypeterparkr.tumblr.com/post/644560578498674...](https://t.me/ferretman/713)
-- [Mediagoose says hi <3via Ferret Story https://scrisoridemai.tumblr.com/post/644560542980259840](https://t.me/ferretman/712)
-- [MediaMediaMediaMediaMediaaustinkleon:“Study art” signs by John Waters, 2017 Venice BiennaleThe signs are parodies of a real sign Waters saw in Balt...](https://t.me/ferretman/711)
-- [tropicalhomestead:blondebrainpower:Time Lapse of Plants - Three DaysTfw you realize that much of Earth’s life moves and communicates on a time scale ...](https://t.me/ferretman/710)
+- [ferretsoftiktok:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/644579564572573697](https://t.me/ferretman/719)
+- [MediaMediavia Ferret Story https://redzgn.tumblr.com/post/644579513846644736](https://t.me/ferretman/718)
+- [superdrivel:krystal-prisms:roseverdict:nentuaby:roseverdict:nentuaby:MediaImage ID: OP's tags, reading "#I am deeply sorry to whoever finds out this w...](https://t.me/ferretman/717)
+- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://falalamingo.tumblr.com/post/644575699509919744](https://t.me/ferretman/716)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/644571928964792321](https://t.me/ferretman/715)
 <!-- TELEGRAM:END -->
