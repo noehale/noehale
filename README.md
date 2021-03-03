@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [ferretsoftiktok:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/644579564572573697](https://t.me/ferretman/719)
-- [MediaMediavia Ferret Story https://redzgn.tumblr.com/post/644579513846644736](https://t.me/ferretman/718)
-- [superdrivel:krystal-prisms:roseverdict:nentuaby:roseverdict:nentuaby:MediaImage ID: OP's tags, reading "#I am deeply sorry to whoever finds out this w...](https://t.me/ferretman/717)
-- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://falalamingo.tumblr.com/post/644575699509919744](https://t.me/ferretman/716)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/644571928964792321](https://t.me/ferretman/715)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediainfjadvice:Credit: Ashley McMinnvia Ferret Story https://xxcrybby.tumblr.com/post/644541695714902016](https://t.me/ferretman/706)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/644534279805779968](https://t.me/ferretman/705)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644371808450134016](https://t.me/ferretman/704)
+- [MediaMediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/644360500200849408](https://t.me/ferretman/703)
+- [carryon94:armedandgayngerous:smallmight:bigstupiduglyogre:thebuttkingpost:zoraiya:It’s cleaning time again only instead of using just the faucet I de...](https://t.me/ferretman/702)
 <!-- TELEGRAM:END -->
