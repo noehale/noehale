@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [ferretsoftiktok:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/644579564572573697](https://t.me/ferretman/719)
-- [MediaMediavia Ferret Story https://redzgn.tumblr.com/post/644579513846644736](https://t.me/ferretman/718)
-- [superdrivel:krystal-prisms:roseverdict:nentuaby:roseverdict:nentuaby:MediaImage ID: OP's tags, reading "#I am deeply sorry to whoever finds out this w...](https://t.me/ferretman/717)
-- [sowecoulddance:its christmas eve and look whos on tumblrall of usvia Ferret Story https://falalamingo.tumblr.com/post/644575699509919744](https://t.me/ferretman/716)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/644571928964792321](https://t.me/ferretman/715)
+- [somecutething:via Ferret Story https://punkrocknat.tumblr.com/post/644594582476259328](https://t.me/ferretman/724)
+- [ekoenigs: danchorman: When you think a meme is dying out: This is the worst post I’ve ever seenvia Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/723)
+- [Mediathe-book-ferret:Twitchy little ferret, aren’t you Malfoy?via Ferret Story https://prettypeterparkr.tumblr.com/post/644590777628049408](https://t.me/ferretman/722)
+- [Mediathatweirdferretlady:Always reblogvia Ferret Story https://scrisoridemai.tumblr.com/post/644590776088723456](https://t.me/ferretman/721)
+- [Mediapseudonymjones:whew thanks!!!via Ferret Story https://anasfalhhhs.tumblr.com/post/644583216568745984](https://t.me/ferretman/720)
 <!-- TELEGRAM:END -->
