@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [bromar: *goes to england* me: excuse me, what time is it? brit: time wots that m8? *big ben...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/743)
-- [everythingfox:Nap buddies(via)via Ferret Story https://punkrocknat.tumblr.com/post/644685151794839552](https://t.me/ferretman/742)
-- [Media“Nice marmot”via Ferret Story https://scrisoridemai.tumblr.com/post/644681352953921536](https://t.me/ferretman/741)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644673941906079744](https://t.me/ferretman/740)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/644670130848251904](https://t.me/ferretman/739)
+- [Mediacooncomic:19. Self Controlvia Ferret Story https://scrisoridemai.tumblr.com/post/644741783607246848](https://t.me/ferretman/752)
+- [Mediabob-artist:bob-artist:First time getting Kit’s special weasel jump from this prime angle! :DMediaNow available in  h o r i z o n t a lvia Ferre...](https://t.me/ferretman/751)
+- [apeeled:i love it when things stop bothering you. like two months ago i was totally bitter about so many things and now im like “u know what i don’t...](https://t.me/ferretman/750)
+- [MediaI’m a zombie, herp de derp.via Ferret Story https://babyiwannaknow.tumblr.com/post/644730529508474880](https://t.me/ferretman/749)
+- [Mediathevaultofretroscifi:Gilbert Williams, Message From Beyondvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644730507786125312](https://t.me/ferretman/748)
 <!-- TELEGRAM:END -->
