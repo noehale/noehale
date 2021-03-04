@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [iloveurcat:coolcatgroup:coolcatgroup:When cats stretch and spread their little toebeans out, reblog if you agreeMediaMediaMediaMediaMediaI can’t beli...](https://t.me/ferretman/727)
-- [becausebirds:railroadsoftware:this was filmed 600 years agonaughty birds deserve love toovia Ferret Story https://xxcrybby.tumblr.com/post/64463230286...](https://t.me/ferretman/726)
-- [juniorjewel:baptisms:anyone else fucking LOVE BEING IN BED???bitch im in bed right now!! how did you know!!via Ferret Story https://punkrocknat.tumblr...](https://t.me/ferretman/725)
-- [somecutething:via Ferret Story https://punkrocknat.tumblr.com/post/644594582476259328](https://t.me/ferretman/724)
-- [ekoenigs: danchorman: When you think a meme is dying out: This is the worst post I’ve ever seenvia Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/723)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644673941906079744](https://t.me/ferretman/740)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/644670130848251904](https://t.me/ferretman/739)
+- [MediaMediaMediacatadromously:reasons.via Ferret Story https://redzgn.tumblr.com/post/644670098639044608](https://t.me/ferretman/738)
+- [punkrorschach:mjalti:tilthat:TIL Tchaikovsky had a patron who gave him enough money to quit his job and become a full-time composer, on the condition ...](https://t.me/ferretman/737)
+- [yourplayersaidwhat:Dm: the child starts to scream at the top of her lungsBard: I kneel down to her level and scream loudervia Ferret Story https://fal...](https://t.me/ferretman/736)
 <!-- TELEGRAM:END -->
