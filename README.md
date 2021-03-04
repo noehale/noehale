@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [everythingfox:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644651156462780416](https://t.me/ferretman/733)
-- [misioandkinga:MediaMediaMediaMediaMediaMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/644651156458684416](https://t.me/ferretman/732)
-- [Mediahamotzi:happy hanukkah!!!!via Ferret Story https://anasfalhhhs.tumblr.com/post/644643610916241408](https://t.me/ferretman/731)
-- [MediaMorgana, Merlin, And Galahad Can’t Even Right Now : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/6446399231688540...](https://t.me/ferretman/730)
-- [tsundereglados:via Ferret Story https://redzgn.tumblr.com/post/644639920353312768](https://t.me/ferretman/729)
+- [iloveurcat:coolcatgroup:coolcatgroup:When cats stretch and spread their little toebeans out, reblog if you agreeMediaMediaMediaMediaMediaI can’t beli...](https://t.me/ferretman/727)
+- [becausebirds:railroadsoftware:this was filmed 600 years agonaughty birds deserve love toovia Ferret Story https://xxcrybby.tumblr.com/post/64463230286...](https://t.me/ferretman/726)
+- [juniorjewel:baptisms:anyone else fucking LOVE BEING IN BED???bitch im in bed right now!! how did you know!!via Ferret Story https://punkrocknat.tumblr...](https://t.me/ferretman/725)
+- [somecutething:via Ferret Story https://punkrocknat.tumblr.com/post/644594582476259328](https://t.me/ferretman/724)
+- [ekoenigs: danchorman: When you think a meme is dying out: This is the worst post I’ve ever seenvia Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/723)
 <!-- TELEGRAM:END -->
