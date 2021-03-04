@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Cuddled up for Santa visiting ❤](https://come-forth-into-the-light.tumblr.com/post/644747374479245312)
 - [The tiniest of bed hogs…](https://come-forth-into-the-light.tumblr.com/post/644722899488587776)
 - [Me and my partner got a beautiful gift of a painting of our...](https://come-forth-into-the-light.tumblr.com/post/644677583732080640)
 - [🪠](https://come-forth-into-the-light.tumblr.com/post/644654974217895936)
 - [Just tucked my little fur-babies in bed](https://come-forth-into-the-light.tumblr.com/post/644632337669341184)
-- [Anybody else’s fuzzies try desperately to spill their water no...](https://come-forth-into-the-light.tumblr.com/post/644586978246033408)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
