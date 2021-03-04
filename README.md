@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [bromar: *goes to england* me: excuse me, what time is it? brit: time wots that m8? *big ben...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/743)
+- [everythingfox:Nap buddies(via)via Ferret Story https://punkrocknat.tumblr.com/post/644685151794839552](https://t.me/ferretman/742)
+- [Media“Nice marmot”via Ferret Story https://scrisoridemai.tumblr.com/post/644681352953921536](https://t.me/ferretman/741)
 - [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644673941906079744](https://t.me/ferretman/740)
 - [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/644670130848251904](https://t.me/ferretman/739)
-- [MediaMediaMediacatadromously:reasons.via Ferret Story https://redzgn.tumblr.com/post/644670098639044608](https://t.me/ferretman/738)
-- [punkrorschach:mjalti:tilthat:TIL Tchaikovsky had a patron who gave him enough money to quit his job and become a full-time composer, on the condition ...](https://t.me/ferretman/737)
-- [yourplayersaidwhat:Dm: the child starts to scream at the top of her lungsBard: I kneel down to her level and scream loudervia Ferret Story https://fal...](https://t.me/ferretman/736)
 <!-- TELEGRAM:END -->
