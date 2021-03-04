@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediam0ondust:this fucking never fails to make me laughvia Ferret Story https://falalamingo.tumblr.com/post/644726676013694976](https://t.me/ferretman/746)
+- [frolicious:via Ferret Story https://xxcrybby.tumblr.com/post/644722892819562497](https://t.me/ferretman/745)
+- [MediaHe was scurred at first, but Rocko loved his first snow encounter! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/6447153373146152...](https://t.me/ferretman/744)
 - [bromar: *goes to england* me: excuse me, what time is it? brit: time wots that m8? *big ben...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/743)
 - [everythingfox:Nap buddies(via)via Ferret Story https://punkrocknat.tumblr.com/post/644685151794839552](https://t.me/ferretman/742)
-- [Media“Nice marmot”via Ferret Story https://scrisoridemai.tumblr.com/post/644681352953921536](https://t.me/ferretman/741)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644673941906079744](https://t.me/ferretman/740)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/644670130848251904](https://t.me/ferretman/739)
 <!-- TELEGRAM:END -->
