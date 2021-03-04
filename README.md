@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [bromar: *goes to england* me: excuse me, what time is it? brit: time wots that m8? *big ben...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/743)
-- [everythingfox:Nap buddies(via)via Ferret Story https://punkrocknat.tumblr.com/post/644685151794839552](https://t.me/ferretman/742)
-- [Media“Nice marmot”via Ferret Story https://scrisoridemai.tumblr.com/post/644681352953921536](https://t.me/ferretman/741)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644673941906079744](https://t.me/ferretman/740)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/644670130848251904](https://t.me/ferretman/739)
+- [iloveurcat:coolcatgroup:coolcatgroup:When cats stretch and spread their little toebeans out, reblog if you agreeMediaMediaMediaMediaMediaI can’t beli...](https://t.me/ferretman/727)
+- [becausebirds:railroadsoftware:this was filmed 600 years agonaughty birds deserve love toovia Ferret Story https://xxcrybby.tumblr.com/post/64463230286...](https://t.me/ferretman/726)
+- [juniorjewel:baptisms:anyone else fucking LOVE BEING IN BED???bitch im in bed right now!! how did you know!!via Ferret Story https://punkrocknat.tumblr...](https://t.me/ferretman/725)
+- [somecutething:via Ferret Story https://punkrocknat.tumblr.com/post/644594582476259328](https://t.me/ferretman/724)
+- [ekoenigs: danchorman: When you think a meme is dying out: This is the worst post I’ve ever seenvia Ferret Story https://just-a-catastrophy.tumblr.com...](https://t.me/ferretman/723)
 <!-- TELEGRAM:END -->
