@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [The tiniest of bed hogs…](https://come-forth-into-the-light.tumblr.com/post/644722899488587776)
 - [Me and my partner got a beautiful gift of a painting of our...](https://come-forth-into-the-light.tumblr.com/post/644677583732080640)
 - [🪠](https://come-forth-into-the-light.tumblr.com/post/644654974217895936)
 - [Just tucked my little fur-babies in bed](https://come-forth-into-the-light.tumblr.com/post/644632337669341184)
 - [Anybody else’s fuzzies try desperately to spill their water no...](https://come-forth-into-the-light.tumblr.com/post/644586978246033408)
-- [lindseyenna:This is my new favorite Tik Tok](https://come-forth-into-the-light.tumblr.com/post/644564371399376896)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
