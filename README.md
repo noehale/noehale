@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644673941906079744](https://t.me/ferretman/740)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/644670130848251904](https://t.me/ferretman/739)
-- [MediaMediaMediacatadromously:reasons.via Ferret Story https://redzgn.tumblr.com/post/644670098639044608](https://t.me/ferretman/738)
-- [punkrorschach:mjalti:tilthat:TIL Tchaikovsky had a patron who gave him enough money to quit his job and become a full-time composer, on the condition ...](https://t.me/ferretman/737)
-- [yourplayersaidwhat:Dm: the child starts to scream at the top of her lungsBard: I kneel down to her level and scream loudervia Ferret Story https://fal...](https://t.me/ferretman/736)
+- [Mediamustelidmess:Mustelids by Sylfaennvia Ferret Story https://just-a-catastrophy.tumblr.com/post/644504008503017472](https://t.me/ferretman/696)
+- [usbport:I respect bees more than I respect white men in positions of powervia Ferret Story https://punkrocknat.tumblr.com/post/644504008407580672](https://t.me/ferretman/695)
+- [Mediacryoverkiltmilk:mmmcknuckly:Mediafurry noodles vs smooth noodlesvia Ferret Story https://scrisoridemai.tumblr.com/post/644500205138558976](https://t.me/ferretman/694)
+- [MediaHow would you explain it to Martin?via Ferret Story https://prettypeterparkr.tumblr.com/post/644500199480360960](https://t.me/ferretman/693)
+- [via Ferret Story https://babyiwannaknow.tumblr.com/post/644488921308397568](https://t.me/ferretman/692)
 <!-- TELEGRAM:END -->
