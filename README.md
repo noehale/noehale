@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMoral support : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644756877663748096](https://t.me/ferretman/755)
-- [Mediashmackles:Mediavia Ferret Story https://xxcrybby.tumblr.com/post/644753079205576704](https://t.me/ferretman/754)
-- [casual-caroline: me running after my pets to see what’s in their mouthsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/644747375469101056](https://t.me/ferretman/753)
-- [Mediacooncomic:19. Self Controlvia Ferret Story https://scrisoridemai.tumblr.com/post/644741783607246848](https://t.me/ferretman/752)
-- [Mediabob-artist:bob-artist:First time getting Kit’s special weasel jump from this prime angle! :DMediaNow available in  h o r i z o n t a lvia Ferre...](https://t.me/ferretman/751)
+- [Mediamustelidmess:Mustelids by Sylfaennvia Ferret Story https://just-a-catastrophy.tumblr.com/post/644504008503017472](https://t.me/ferretman/696)
+- [usbport:I respect bees more than I respect white men in positions of powervia Ferret Story https://punkrocknat.tumblr.com/post/644504008407580672](https://t.me/ferretman/695)
+- [Mediacryoverkiltmilk:mmmcknuckly:Mediafurry noodles vs smooth noodlesvia Ferret Story https://scrisoridemai.tumblr.com/post/644500205138558976](https://t.me/ferretman/694)
+- [MediaHow would you explain it to Martin?via Ferret Story https://prettypeterparkr.tumblr.com/post/644500199480360960](https://t.me/ferretman/693)
+- [via Ferret Story https://babyiwannaknow.tumblr.com/post/644488921308397568](https://t.me/ferretman/692)
 <!-- TELEGRAM:END -->
