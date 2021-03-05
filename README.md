@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/644836279130914816](https://t.me/ferretman/773)
+- [wearestillflying:lastgunfighterballad:revawo:pisswolf:ultrabeast05:OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANTMediaMedia!!!!!!!!!!!!@ac...](https://t.me/ferretman/772)
+- [Mediastudy buddy hard at work!via Ferret Story https://prettypeterparkr.tumblr.com/post/644832383722455040](https://t.me/ferretman/771)
+- [Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644824814779006976](https://t.me/ferretman/770)
 - [MediaMy sleepy girl delivering a wink from a pile of her brothers : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644821...](https://t.me/ferretman/769)
-- [MediaMediaMediaMediavia Ferret Story https://redzgn.tumblr.com/post/644821099049353216](https://t.me/ferretman/768)
-- [Mediabutteryplanet:cinemagraph artist: kitchenghostsvia Ferret Story https://babyiwannaknow.tumblr.com/post/644821038088290304](https://t.me/ferretman/767)
-- [MediaKatara! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644817240141742080](https://t.me/ferretman/766)
-- [Mediasomanybird:fencehopping:Showing off a hummingbird’s iridescent headrotate the boyvia Ferret Story https://xxcrybby.tumblr.com/post/6448134932819...](https://t.me/ferretman/765)
 <!-- TELEGRAM:END -->
