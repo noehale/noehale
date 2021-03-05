@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [nutellaslave:blank:If you want cute names for your partner just use ones on candles they’re so beautiful like pumpkin spice or Passion flower or midn...](https://t.me/ferretman/764)
 - [MediaI know have 4.via Ferret Story https://just-a-catastrophy.tumblr.com/post/644775760914186240](https://t.me/ferretman/763)
 - [Mediathebootydiaries:keep fuckin walkin you postman piece of shitvia Ferret Story https://punkrocknat.tumblr.com/post/644775727204532224](https://t.me/ferretman/762)
 - [marjchaos:I almost didn’t unmute this. That would have been a mistake.via Ferret Story https://scrisoridemai.tumblr.com/post/644771994233192448](https://t.me/ferretman/761)
 - [View this post on InstagramA post shared by Brittany (@thelifeofmyferrets)thelifeofmyferrets:Charlie learned a new trick. I knew I didn’t leave those...](https://t.me/ferretman/760)
+- [tytranosaurusrex:becoming an adult is essentially having all your friends in different cities and permanently missing someonevia Ferret Story https://...](https://t.me/ferretman/759)
 <!-- TELEGRAM:END -->
