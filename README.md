@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMoral support : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644756877663748096](https://t.me/ferretman/755)
+- [Mediashmackles:Mediavia Ferret Story https://xxcrybby.tumblr.com/post/644753079205576704](https://t.me/ferretman/754)
+- [casual-caroline: me running after my pets to see what’s in their mouthsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/644747375469101056](https://t.me/ferretman/753)
 - [Mediacooncomic:19. Self Controlvia Ferret Story https://scrisoridemai.tumblr.com/post/644741783607246848](https://t.me/ferretman/752)
 - [Mediabob-artist:bob-artist:First time getting Kit’s special weasel jump from this prime angle! :DMediaNow available in  h o r i z o n t a lvia Ferre...](https://t.me/ferretman/751)
-- [apeeled:i love it when things stop bothering you. like two months ago i was totally bitter about so many things and now im like “u know what i don’t...](https://t.me/ferretman/750)
-- [MediaI’m a zombie, herp de derp.via Ferret Story https://babyiwannaknow.tumblr.com/post/644730529508474880](https://t.me/ferretman/749)
-- [Mediathevaultofretroscifi:Gilbert Williams, Message From Beyondvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644730507786125312](https://t.me/ferretman/748)
 <!-- TELEGRAM:END -->
