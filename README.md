@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [She loves her new hammock](https://come-forth-into-the-light.tumblr.com/post/644836198524813312)
 - [The bed head is strong with this one](https://come-forth-into-the-light.tumblr.com/post/644813493124644864)
 - [Daisy’s new favourite past time… window licking](https://come-forth-into-the-light.tumblr.com/post/644768268594429952)
 - [Cuddled up for Santa visiting ❤](https://come-forth-into-the-light.tumblr.com/post/644747374479245312)
 - [The tiniest of bed hogs…](https://come-forth-into-the-light.tumblr.com/post/644722899488587776)
-- [Me and my partner got a beautiful gift of a painting of our...](https://come-forth-into-the-light.tumblr.com/post/644677583732080640)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
