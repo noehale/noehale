@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI know have 4.via Ferret Story https://just-a-catastrophy.tumblr.com/post/644775760914186240](https://t.me/ferretman/763)
-- [Mediathebootydiaries:keep fuckin walkin you postman piece of shitvia Ferret Story https://punkrocknat.tumblr.com/post/644775727204532224](https://t.me/ferretman/762)
-- [marjchaos:I almost didn’t unmute this. That would have been a mistake.via Ferret Story https://scrisoridemai.tumblr.com/post/644771994233192448](https://t.me/ferretman/761)
-- [View this post on InstagramA post shared by Brittany (@thelifeofmyferrets)thelifeofmyferrets:Charlie learned a new trick. I knew I didn’t leave those...](https://t.me/ferretman/760)
-- [tytranosaurusrex:becoming an adult is essentially having all your friends in different cities and permanently missing someonevia Ferret Story https://...](https://t.me/ferretman/759)
+- [MediaMy sleepy girl delivering a wink from a pile of her brothers : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644821...](https://t.me/ferretman/769)
+- [MediaMediaMediaMediavia Ferret Story https://redzgn.tumblr.com/post/644821099049353216](https://t.me/ferretman/768)
+- [Mediabutteryplanet:cinemagraph artist: kitchenghostsvia Ferret Story https://babyiwannaknow.tumblr.com/post/644821038088290304](https://t.me/ferretman/767)
+- [MediaKatara! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644817240141742080](https://t.me/ferretman/766)
+- [Mediasomanybird:fencehopping:Showing off a hummingbird’s iridescent headrotate the boyvia Ferret Story https://xxcrybby.tumblr.com/post/6448134932819...](https://t.me/ferretman/765)
 <!-- TELEGRAM:END -->
