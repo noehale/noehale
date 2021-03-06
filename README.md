@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/644855017544761344](https://t.me/ferretman/778)
+- [MediaMeet Cyrano our newest rescue and family member. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644851281937252352](https://t.me/ferretman/777)
 - [MediaNoodle pawsvia Ferret Story https://babyiwannaknow.tumblr.com/post/644851281128800256](https://t.me/ferretman/776)
 - [desperatelysingle:Honestly, dating IRL scares the shit out of me. imageI am determined to do everything in my power to keep myself out of spontaneous...](https://t.me/ferretman/775)
 - [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediagyppygirl2021:awesome-picz:Dogs With Their Cute Mini-MesA bunch of precious, proud parents.via Ferre...](https://t.me/ferretman/774)
-- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/644836279130914816](https://t.me/ferretman/773)
-- [wearestillflying:lastgunfighterballad:revawo:pisswolf:ultrabeast05:OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANTMediaMedia!!!!!!!!!!!!@ac...](https://t.me/ferretman/772)
 <!-- TELEGRAM:END -->
