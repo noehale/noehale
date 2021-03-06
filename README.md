@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Shes pretty……and she knows it 🥰🥰](https://come-forth-into-the-light.tumblr.com/post/644904084126728192)
 - [Sleepy Fuzzet. This is Lucy. Shes going on 3 years old. Her...](https://come-forth-into-the-light.tumblr.com/post/644858822806093824)
 - [She loves her new hammock](https://come-forth-into-the-light.tumblr.com/post/644836198524813312)
 - [The bed head is strong with this one](https://come-forth-into-the-light.tumblr.com/post/644813493124644864)
 - [Daisy’s new favourite past time… window licking](https://come-forth-into-the-light.tumblr.com/post/644768268594429952)
-- [Cuddled up for Santa visiting ❤](https://come-forth-into-the-light.tumblr.com/post/644747374479245312)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
