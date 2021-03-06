@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaNoodle pawsvia Ferret Story https://babyiwannaknow.tumblr.com/post/644851281128800256](https://t.me/ferretman/776)
-- [desperatelysingle:Honestly, dating IRL scares the shit out of me. imageI am determined to do everything in my power to keep myself out of spontaneous...](https://t.me/ferretman/775)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediagyppygirl2021:awesome-picz:Dogs With Their Cute Mini-MesA bunch of precious, proud parents.via Ferre...](https://t.me/ferretman/774)
-- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/644836279130914816](https://t.me/ferretman/773)
-- [wearestillflying:lastgunfighterballad:revawo:pisswolf:ultrabeast05:OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANTMediaMedia!!!!!!!!!!!!@ac...](https://t.me/ferretman/772)
+- [thelifeofmyferrets:tellmeifyouknowthissong:The Dandy Warhols - We Used To Be FriendsCome on now, honeyBring it on bring it on, yeahJust remember me wh...](https://t.me/ferretman/801)
+- [bananawitchcraft:personalgremlin:she’s decadent Mediadecadentvia Ferret Story https://redzgn.tumblr.com/post/644911734526722048](https://t.me/ferretman/800)
+- [Illustrator Imagines a World Where Gentle Giant Animals Live Among Humans:melonishus:ofinkblotsandscript:pomrania:mlleclaudine:MediaMediaMediaMediaMed...](https://t.me/ferretman/799)
+- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/798)
+- [View this post on InstagramA post shared by Adrian Rahardja (@arahardj)adrianrahardja:a bit #warm in #california tonight #chihuahua #pet #doghttps://w...](https://t.me/ferretman/797)
 <!-- TELEGRAM:END -->
