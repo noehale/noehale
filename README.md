@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [engage-with-zorp:*sees dog* nice *sees dog wearing a bandana around its neck* nicevia Ferret Story https://just-a-catastrophy.tumblr.com/post/64501740...](https://t.me/ferretman/824)
+- [MediaBimi blepvia Ferret Story https://scrisoridemai.tumblr.com/post/645013580372148224](https://t.me/ferretman/823)
+- [Mediamutilated-by-roses:I am a fur mama to Ferret. His name is Floppy. This positive space ferret reminds me of him :3via Ferret Story https://prettyp...](https://t.me/ferretman/822)
+- [beefnap:Hey, if you still miss your pet that is okay. I don’t care if it is years later and you still cry because they were not there this morning to...](https://t.me/ferretman/821)
 - [trapperweasel:trans-boy-keith:carbisari:teddiursam:KidnappedTaken@trapperweasel boogeyman ferretHe took him to his dark lair! via Ferret Story https:...](https://t.me/ferretman/820)
-- [luisonte:Gámbito en cuarentavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645002230969384960](https://t.me/ferretman/819)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/645002230965157888](https://t.me/ferretman/818)
-- [MediaBandit in her basket : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/644998462397644800](https://t.me/ferretman/817)
-- [liftlikebrittany:Sometimes you fall off the wagon for months. Sometimes you tell yourself you’re gonna start fresh on Monday and by Wednesday you’ve...](https://t.me/ferretman/816)
 <!-- TELEGRAM:END -->
