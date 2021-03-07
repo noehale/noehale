@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWho’s ferret also sleeps like this? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644956917019574272](https://t.me/ferretman/813)
-- [thatweirdferretlady:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644953187232759808](https://t.me/ferretman/812)
-- [MediaMy baby all cuddled up on mamavia Ferret Story https://prettypeterparkr.tumblr.com/post/644953157629329408](https://t.me/ferretman/811)
-- [“Look, man, we’d probably most of us agree that these are dark times, and stupid ones, but do we need fiction that does nothing but dramatize how da...](https://t.me/ferretman/810)
-- [MediaStaring at me like I starve them : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644941896321548288](https://t.me/ferretman/809)
+- [thelifeofmyferrets:tellmeifyouknowthissong:The Dandy Warhols - We Used To Be FriendsCome on now, honeyBring it on bring it on, yeahJust remember me wh...](https://t.me/ferretman/801)
+- [bananawitchcraft:personalgremlin:she’s decadent Mediadecadentvia Ferret Story https://redzgn.tumblr.com/post/644911734526722048](https://t.me/ferretman/800)
+- [Illustrator Imagines a World Where Gentle Giant Animals Live Among Humans:melonishus:ofinkblotsandscript:pomrania:mlleclaudine:MediaMediaMediaMediaMed...](https://t.me/ferretman/799)
+- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/798)
+- [View this post on InstagramA post shared by Adrian Rahardja (@arahardj)adrianrahardja:a bit #warm in #california tonight #chihuahua #pet #doghttps://w...](https://t.me/ferretman/797)
 <!-- TELEGRAM:END -->
