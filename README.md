@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thelifeofmyferrets:tellmeifyouknowthissong:The Dandy Warhols - We Used To Be FriendsCome on now, honeyBring it on bring it on, yeahJust remember me wh...](https://t.me/ferretman/801)
-- [bananawitchcraft:personalgremlin:she’s decadent Mediadecadentvia Ferret Story https://redzgn.tumblr.com/post/644911734526722048](https://t.me/ferretman/800)
-- [Illustrator Imagines a World Where Gentle Giant Animals Live Among Humans:melonishus:ofinkblotsandscript:pomrania:mlleclaudine:MediaMediaMediaMediaMed...](https://t.me/ferretman/799)
-- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/798)
-- [View this post on InstagramA post shared by Adrian Rahardja (@arahardj)adrianrahardja:a bit #warm in #california tonight #chihuahua #pet #doghttps://w...](https://t.me/ferretman/797)
+- [MediaThis is Belle and her fish. Every day, Belle moves her fish into the closet when I wake her up to play. She then moves it back. She has 6 other f...](https://t.me/ferretman/806)
+- [<a href="https://aiweirdness.com/post/185339301987/once-again-a-neural-net-tries-to-name-cats">lewisandquark</a>:<a href="https://64.media.tumblr.com/...](https://t.me/ferretman/805)
+- [Mediaferret-flops:Sorry for potato quality but I put this tshirt on Helo and he is too “puffy” for it lmao 😂😂😂Don’t worry, I took it off a...](https://t.me/ferretman/804)
+- [MediaMs. Ellie being a silly, playful goofball of a Floof-Snake. She roll. She attack!via Ferret Story https://prettypeterparkr.tumblr.com/post/644922...](https://t.me/ferretman/803)
+- [swindle94:eric-coldfire:spaghettisaurusrex:ferretsoftiktok:let him cook!“No it mine!”He wants to make noodles because he is one!!!via Ferret Story h...](https://t.me/ferretman/802)
 <!-- TELEGRAM:END -->
