@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Medianew favorite picture. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644987151813099520](https://t.me/ferretman/815)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/644956917002878977](https://t.me/ferretman/814)
 - [MediaWho’s ferret also sleeps like this? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644956917019574272](https://t.me/ferretman/813)
 - [thatweirdferretlady:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644953187232759808](https://t.me/ferretman/812)
 - [MediaMy baby all cuddled up on mamavia Ferret Story https://prettypeterparkr.tumblr.com/post/644953157629329408](https://t.me/ferretman/811)
+- [“Look, man, we’d probably most of us agree that these are dark times, and stupid ones, but do we need fiction that does nothing but dramatize how da...](https://t.me/ferretman/810)
+- [MediaStaring at me like I starve them : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644941896321548288](https://t.me/ferretman/809)
 <!-- TELEGRAM:END -->
