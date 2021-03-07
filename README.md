@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Does he have a “wardy face”? He also displays some...](https://come-forth-into-the-light.tumblr.com/post/644949421085310976)
 - [Just hear those sleigh bells jingling, ring tingle tingling too!...](https://come-forth-into-the-light.tumblr.com/post/644926780081324032)
 - [Shes pretty……and she knows it 🥰🥰](https://come-forth-into-the-light.tumblr.com/post/644904084126728192)
 - [Sleepy Fuzzet. This is Lucy. Shes going on 3 years old. Her...](https://come-forth-into-the-light.tumblr.com/post/644858822806093824)
 - [She loves her new hammock](https://come-forth-into-the-light.tumblr.com/post/644836198524813312)
-- [The bed head is strong with this one](https://come-forth-into-the-light.tumblr.com/post/644813493124644864)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
