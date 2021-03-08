@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [snuv:copywriteddad:hustlerose:notlikingbestgirl:Out of TouchOut of Touch ThursdayOUT OF TOUCH THURSDAYbut im out of my head when you’re not around…v...](https://t.me/ferretman/840)
+- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645092838390054912](https://t.me/ferretman/839)
+- [aconsilio:“When I was a student at Cambridge I remember an anthropology professor holding up a picture of a bone with 28 incisions carved in it. “Th...](https://t.me/ferretman/838)
+- [antifasuccubus:petey-protection-pack:great-tweets:Mediaomgggggthat kitty really wentMediaimagevia Ferret Story https://falalamingo.tumblr.com/post/645...](https://t.me/ferretman/837)
 - [bob-artist:By the way, Kit REALLY likes dig boxes.via Ferret Story https://babyiwannaknow.tumblr.com/post/645092852952694784](https://t.me/ferretman/836)
-- [meatbicyclevevo:thetowndrugdealer:precumming:I JUST PUT MY SHIRT ON AND THERE WAS A SPIDER IN IT!!!!!!!!or did you just put a shirt on that a spider w...](https://t.me/ferretman/835)
-- [via Ferret Story https://punkrocknat.tumblr.com/post/645077706525016064](https://t.me/ferretman/834)
-- [homevvrecker: if i haven’t embarrassed myself in front of you don’t worry it will happen via Ferret Story https://just-a-catastrophy.tumblr.com/pos...](https://t.me/ferretman/833)
-- [MediaMediaMediastar-anise:tastefullyoffensive:He’s innocent!UNJUSTLY IMPRISONEDvia Ferret Story https://scrisoridemai.tumblr.com/post/645043760942759...](https://t.me/ferretman/832)
 <!-- TELEGRAM:END -->
