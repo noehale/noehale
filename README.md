@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [engage-with-zorp:*sees dog* nice *sees dog wearing a bandana around its neck* nicevia Ferret Story https://just-a-catastrophy.tumblr.com/post/64501740...](https://t.me/ferretman/824)
-- [MediaBimi blepvia Ferret Story https://scrisoridemai.tumblr.com/post/645013580372148224](https://t.me/ferretman/823)
-- [Mediamutilated-by-roses:I am a fur mama to Ferret. His name is Floppy. This positive space ferret reminds me of him :3via Ferret Story https://prettyp...](https://t.me/ferretman/822)
-- [beefnap:Hey, if you still miss your pet that is okay. I don’t care if it is years later and you still cry because they were not there this morning to...](https://t.me/ferretman/821)
-- [trapperweasel:trans-boy-keith:carbisari:teddiursam:KidnappedTaken@trapperweasel boogeyman ferretHe took him to his dark lair! via Ferret Story https:...](https://t.me/ferretman/820)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/829)
+- [MediaComfort life : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645032432148643840](https://t.me/ferretman/828)
+- [MediaMediaMediaMediaadulthoodisokay:adulthoodisokay:renasanse:coolfrogdude:original thread by @pukicho and several other usersI always love seeing th...](https://t.me/ferretman/827)
+- [MediaShe peek 👀 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645028645532991488](https://t.me/ferretman/826)
+- [thebloggerbloggerfun:Cas: Dean do you love meDean:Mediavia Ferret Story https://xxcrybby.tumblr.com/post/645024917647130624](https://t.me/ferretman/825)
 <!-- TELEGRAM:END -->
