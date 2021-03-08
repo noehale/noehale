@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [homevvrecker: if i haven’t embarrassed myself in front of you don’t worry it will happen via Ferret Story https://just-a-catastrophy.tumblr.com/pos...](https://t.me/ferretman/833)
-- [MediaMediaMediastar-anise:tastefullyoffensive:He’s innocent!UNJUSTLY IMPRISONEDvia Ferret Story https://scrisoridemai.tumblr.com/post/645043760942759...](https://t.me/ferretman/832)
-- [MediaMediaMediacannonball-the-ferret:Happy Saturday!!!! It’s really cold out here in the northeast, so remember to keep warm by staying in bed.This h...](https://t.me/ferretman/831)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/830)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/829)
+- [MediaWho’s ferret also sleeps like this? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644956917019574272](https://t.me/ferretman/813)
+- [thatweirdferretlady:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644953187232759808](https://t.me/ferretman/812)
+- [MediaMy baby all cuddled up on mamavia Ferret Story https://prettypeterparkr.tumblr.com/post/644953157629329408](https://t.me/ferretman/811)
+- [“Look, man, we’d probably most of us agree that these are dark times, and stupid ones, but do we need fiction that does nothing but dramatize how da...](https://t.me/ferretman/810)
+- [MediaStaring at me like I starve them : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644941896321548288](https://t.me/ferretman/809)
 <!-- TELEGRAM:END -->
