@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [homevvrecker: if i haven’t embarrassed myself in front of you don’t worry it will happen via Ferret Story https://just-a-catastrophy.tumblr.com/pos...](https://t.me/ferretman/833)
-- [MediaMediaMediastar-anise:tastefullyoffensive:He’s innocent!UNJUSTLY IMPRISONEDvia Ferret Story https://scrisoridemai.tumblr.com/post/645043760942759...](https://t.me/ferretman/832)
-- [MediaMediaMediacannonball-the-ferret:Happy Saturday!!!! It’s really cold out here in the northeast, so remember to keep warm by staying in bed.This h...](https://t.me/ferretman/831)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/830)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/829)
+- [engage-with-zorp:*sees dog* nice *sees dog wearing a bandana around its neck* nicevia Ferret Story https://just-a-catastrophy.tumblr.com/post/64501740...](https://t.me/ferretman/824)
+- [MediaBimi blepvia Ferret Story https://scrisoridemai.tumblr.com/post/645013580372148224](https://t.me/ferretman/823)
+- [Mediamutilated-by-roses:I am a fur mama to Ferret. His name is Floppy. This positive space ferret reminds me of him :3via Ferret Story https://prettyp...](https://t.me/ferretman/822)
+- [beefnap:Hey, if you still miss your pet that is okay. I don’t care if it is years later and you still cry because they were not there this morning to...](https://t.me/ferretman/821)
+- [trapperweasel:trans-boy-keith:carbisari:teddiursam:KidnappedTaken@trapperweasel boogeyman ferretHe took him to his dark lair! via Ferret Story https:...](https://t.me/ferretman/820)
 <!-- TELEGRAM:END -->
