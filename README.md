@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/830)
 - [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/829)
 - [MediaComfort life : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645032432148643840](https://t.me/ferretman/828)
 - [MediaMediaMediaMediaadulthoodisokay:adulthoodisokay:renasanse:coolfrogdude:original thread by @pukicho and several other usersI always love seeing th...](https://t.me/ferretman/827)
 - [MediaShe peek 👀 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645028645532991488](https://t.me/ferretman/826)
-- [thebloggerbloggerfun:Cas: Dean do you love meDean:Mediavia Ferret Story https://xxcrybby.tumblr.com/post/645024917647130624](https://t.me/ferretman/825)
 <!-- TELEGRAM:END -->
