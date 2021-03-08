@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thelifeofmyferrets:tellmeifyouknowthissong:The Dandy Warhols - We Used To Be FriendsCome on now, honeyBring it on bring it on, yeahJust remember me wh...](https://t.me/ferretman/801)
-- [bananawitchcraft:personalgremlin:she’s decadent Mediadecadentvia Ferret Story https://redzgn.tumblr.com/post/644911734526722048](https://t.me/ferretman/800)
-- [Illustrator Imagines a World Where Gentle Giant Animals Live Among Humans:melonishus:ofinkblotsandscript:pomrania:mlleclaudine:MediaMediaMediaMediaMed...](https://t.me/ferretman/799)
-- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/798)
-- [View this post on InstagramA post shared by Adrian Rahardja (@arahardj)adrianrahardja:a bit #warm in #california tonight #chihuahua #pet #doghttps://w...](https://t.me/ferretman/797)
+- [engage-with-zorp:*sees dog* nice *sees dog wearing a bandana around its neck* nicevia Ferret Story https://just-a-catastrophy.tumblr.com/post/64501740...](https://t.me/ferretman/824)
+- [MediaBimi blepvia Ferret Story https://scrisoridemai.tumblr.com/post/645013580372148224](https://t.me/ferretman/823)
+- [Mediamutilated-by-roses:I am a fur mama to Ferret. His name is Floppy. This positive space ferret reminds me of him :3via Ferret Story https://prettyp...](https://t.me/ferretman/822)
+- [beefnap:Hey, if you still miss your pet that is okay. I don’t care if it is years later and you still cry because they were not there this morning to...](https://t.me/ferretman/821)
+- [trapperweasel:trans-boy-keith:carbisari:teddiursam:KidnappedTaken@trapperweasel boogeyman ferretHe took him to his dark lair! via Ferret Story https:...](https://t.me/ferretman/820)
 <!-- TELEGRAM:END -->
