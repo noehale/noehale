@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Someones enjoying her Christmas presents](https://come-forth-into-the-light.tumblr.com/post/645107925973663744)
 - [Getting snuggles 🥰](https://come-forth-into-the-light.tumblr.com/post/645085263720251392)
 - [Also bedtime](https://come-forth-into-the-light.tumblr.com/post/645040103346044928)
 - [bob-artist:I love ferret-fighting etiquette so much.  Like, when ferrets fight, they get so wild and...](https://come-forth-into-the-light.tumblr.com/post/645017381587058688)
 - [A rare photo of my ferret being still!](https://come-forth-into-the-light.tumblr.com/post/644994691243360256)
-- [Does he have a “wardy face”? He also displays some...](https://come-forth-into-the-light.tumblr.com/post/644949421085310976)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
