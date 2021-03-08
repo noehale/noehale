@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [bob-artist:By the way, Kit REALLY likes dig boxes.via Ferret Story https://babyiwannaknow.tumblr.com/post/645092852952694784](https://t.me/ferretman/836)
+- [meatbicyclevevo:thetowndrugdealer:precumming:I JUST PUT MY SHIRT ON AND THERE WAS A SPIDER IN IT!!!!!!!!or did you just put a shirt on that a spider w...](https://t.me/ferretman/835)
+- [via Ferret Story https://punkrocknat.tumblr.com/post/645077706525016064](https://t.me/ferretman/834)
 - [homevvrecker: if i haven’t embarrassed myself in front of you don’t worry it will happen via Ferret Story https://just-a-catastrophy.tumblr.com/pos...](https://t.me/ferretman/833)
 - [MediaMediaMediastar-anise:tastefullyoffensive:He’s innocent!UNJUSTLY IMPRISONEDvia Ferret Story https://scrisoridemai.tumblr.com/post/645043760942759...](https://t.me/ferretman/832)
-- [MediaMediaMediacannonball-the-ferret:Happy Saturday!!!! It’s really cold out here in the northeast, so remember to keep warm by staying in bed.This h...](https://t.me/ferretman/831)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/830)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/829)
 <!-- TELEGRAM:END -->
