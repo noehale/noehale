@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWho’s ferret also sleeps like this? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/644956917019574272](https://t.me/ferretman/813)
-- [thatweirdferretlady:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/644953187232759808](https://t.me/ferretman/812)
-- [MediaMy baby all cuddled up on mamavia Ferret Story https://prettypeterparkr.tumblr.com/post/644953157629329408](https://t.me/ferretman/811)
-- [“Look, man, we’d probably most of us agree that these are dark times, and stupid ones, but do we need fiction that does nothing but dramatize how da...](https://t.me/ferretman/810)
-- [MediaStaring at me like I starve them : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/644941896321548288](https://t.me/ferretman/809)
+- [engage-with-zorp:*sees dog* nice *sees dog wearing a bandana around its neck* nicevia Ferret Story https://just-a-catastrophy.tumblr.com/post/64501740...](https://t.me/ferretman/824)
+- [MediaBimi blepvia Ferret Story https://scrisoridemai.tumblr.com/post/645013580372148224](https://t.me/ferretman/823)
+- [Mediamutilated-by-roses:I am a fur mama to Ferret. His name is Floppy. This positive space ferret reminds me of him :3via Ferret Story https://prettyp...](https://t.me/ferretman/822)
+- [beefnap:Hey, if you still miss your pet that is okay. I don’t care if it is years later and you still cry because they were not there this morning to...](https://t.me/ferretman/821)
+- [trapperweasel:trans-boy-keith:carbisari:teddiursam:KidnappedTaken@trapperweasel boogeyman ferretHe took him to his dark lair! via Ferret Story https:...](https://t.me/ferretman/820)
 <!-- TELEGRAM:END -->
