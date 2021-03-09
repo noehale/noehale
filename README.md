@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photogenic boi](https://come-forth-into-the-light.tumblr.com/post/645198582893494272)
 - [Big Snooze😴](https://come-forth-into-the-light.tumblr.com/post/645175859610779648)
 - [Roper getting a cozy yawn](https://come-forth-into-the-light.tumblr.com/post/645130586065895424)
 - [Someones enjoying her Christmas presents](https://come-forth-into-the-light.tumblr.com/post/645107925973663744)
 - [Getting snuggles 🥰](https://come-forth-into-the-light.tumblr.com/post/645085263720251392)
-- [Also bedtime](https://come-forth-into-the-light.tumblr.com/post/645040103346044928)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
