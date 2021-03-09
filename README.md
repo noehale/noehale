@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [misioandkinga:lovely-jolteon: Me when I’m thinking about you:...via Ferret Story https://just-a-catastrophy.tumblr.com/post/645138117085544448](https://t.me/ferretman/856)
 - [Medialets go bro : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645138117079252992](https://t.me/ferretman/855)
 - [via Ferret Story https://scrisoridemai.tumblr.com/post/645134335447564288](https://t.me/ferretman/854)
 - [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/645134335446548480](https://t.me/ferretman/853)
 - [elvenferretots:MediaThey’re affectionate,MediaAnd playful,MediaSilly,MediaAnd clever,MediaTenacious little thieves,MediaAnd clumsy as all hell.MediaS...](https://t.me/ferretman/852)
-- [tikkety-tok:The music really takes it to a new level 😂via Ferret Story https://babyiwannaknow.tumblr.com/post/645123058617679872](https://t.me/ferretman/851)
 <!-- TELEGRAM:END -->
