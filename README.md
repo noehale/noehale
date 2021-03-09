@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHow do I not get him to play/chew on his litter pellets? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645119347582484480](https://t.me/ferretman/845)
-- [lewisandquark:Around Valentine’s Day in the US and UK, these things called candy hearts (or conversation hearts or sweethearts) appear: small and sug...](https://t.me/ferretman/844)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://jus...](https://t.me/ferretman/843)
-- [MediaCutest boy <3 sometimes he’ll fall asleep holding my hand after some good scratchesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645...](https://t.me/ferretman/842)
-- [MediaHe caused me a heart attack😅 He’s okay thought!via Ferret Story https://scrisoridemai.tumblr.com/post/645104162769698816](https://t.me/ferretman/841)
+- [Medialets go bro : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645138117079252992](https://t.me/ferretman/855)
+- [via Ferret Story https://scrisoridemai.tumblr.com/post/645134335447564288](https://t.me/ferretman/854)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/645134335446548480](https://t.me/ferretman/853)
+- [elvenferretots:MediaThey’re affectionate,MediaAnd playful,MediaSilly,MediaAnd clever,MediaTenacious little thieves,MediaAnd clumsy as all hell.MediaS...](https://t.me/ferretman/852)
+- [tikkety-tok:The music really takes it to a new level 😂via Ferret Story https://babyiwannaknow.tumblr.com/post/645123058617679872](https://t.me/ferretman/851)
 <!-- TELEGRAM:END -->
