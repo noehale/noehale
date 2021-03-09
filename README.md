@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaitscolossal:Archaeologists Unearth a Nearly 2,000-Year-Old Cat Geoglyph Lounging on a Peruvian Hillsidevia Ferret Story https://somewhere-inthe-d...](https://t.me/ferretman/861)
+- [ryssa-aquicoine:tanou123:☺Enjoys scritches then cries when he drops his stick!HOW CAN YOU NOTvia Ferret Story https://redzgn.tumblr.com/post/64518346...](https://t.me/ferretman/860)
+- [MediaSolis found herself a new apartment! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645179647093555200](https://t.me/ferretman/859)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/645175881362538496](https://t.me/ferretman/858)
 - [Mediabarney likes it more than fred 😂 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645168353273692160](https://t.me/ferretman/857)
-- [misioandkinga:lovely-jolteon: Me when I’m thinking about you:...via Ferret Story https://just-a-catastrophy.tumblr.com/post/645138117085544448](https://t.me/ferretman/856)
-- [Medialets go bro : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645138117079252992](https://t.me/ferretman/855)
-- [via Ferret Story https://scrisoridemai.tumblr.com/post/645134335447564288](https://t.me/ferretman/854)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/645134335446548480](https://t.me/ferretman/853)
 <!-- TELEGRAM:END -->
