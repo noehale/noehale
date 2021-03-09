@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [snuv:copywriteddad:hustlerose:notlikingbestgirl:Out of TouchOut of Touch ThursdayOUT OF TOUCH THURSDAYbut im out of my head when you’re not around…v...](https://t.me/ferretman/840)
-- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645092838390054912](https://t.me/ferretman/839)
-- [aconsilio:“When I was a student at Cambridge I remember an anthropology professor holding up a picture of a bone with 28 incisions carved in it. “Th...](https://t.me/ferretman/838)
-- [antifasuccubus:petey-protection-pack:great-tweets:Mediaomgggggthat kitty really wentMediaimagevia Ferret Story https://falalamingo.tumblr.com/post/645...](https://t.me/ferretman/837)
-- [bob-artist:By the way, Kit REALLY likes dig boxes.via Ferret Story https://babyiwannaknow.tumblr.com/post/645092852952694784](https://t.me/ferretman/836)
+- [MediaHow do I not get him to play/chew on his litter pellets? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645119347582484480](https://t.me/ferretman/845)
+- [lewisandquark:Around Valentine’s Day in the US and UK, these things called candy hearts (or conversation hearts or sweethearts) appear: small and sug...](https://t.me/ferretman/844)
+- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://jus...](https://t.me/ferretman/843)
+- [MediaCutest boy <3 sometimes he’ll fall asleep holding my hand after some good scratchesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645...](https://t.me/ferretman/842)
+- [MediaHe caused me a heart attack😅 He’s okay thought!via Ferret Story https://scrisoridemai.tumblr.com/post/645104162769698816](https://t.me/ferretman/841)
 <!-- TELEGRAM:END -->
