@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/846)
 - [MediaHow do I not get him to play/chew on his litter pellets? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645119347582484480](https://t.me/ferretman/845)
 - [lewisandquark:Around Valentine’s Day in the US and UK, these things called candy hearts (or conversation hearts or sweethearts) appear: small and sug...](https://t.me/ferretman/844)
 - [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://jus...](https://t.me/ferretman/843)
 - [MediaCutest boy <3 sometimes he’ll fall asleep holding my hand after some good scratchesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645...](https://t.me/ferretman/842)
+- [MediaHe caused me a heart attack😅 He’s okay thought!via Ferret Story https://scrisoridemai.tumblr.com/post/645104162769698816](https://t.me/ferretman/841)
 <!-- TELEGRAM:END -->
