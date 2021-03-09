@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [thegirlwhocouldntread: lilrabbitssong: dearbluetravelers: kernezelda: nofreetrees: moddeydhoo: ...via Ferret Story https://just-a-catastrophy.tumblr.c...](https://t.me/ferretman/866)
+- [MediaSnuggles!via Ferret Story https://prettypeterparkr.tumblr.com/post/645194761570009088](https://t.me/ferretman/865)
+- [MediaThis is my pet ferret Rosie.. she loves the beachvia Ferret Story https://scrisoridemai.tumblr.com/post/645194741795995648](https://t.me/ferretman/864)
+- [Mediamako-symptoms:I always have to start the New Years with this picture.via Ferret Story https://anasfalhhhs.tumblr.com/post/645187233616379904](https://t.me/ferretman/863)
 - [rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyvia Ferret Story https://babyiwannaknow.tumblr....](https://t.me/ferretman/862)
-- [Mediaitscolossal:Archaeologists Unearth a Nearly 2,000-Year-Old Cat Geoglyph Lounging on a Peruvian Hillsidevia Ferret Story https://somewhere-inthe-d...](https://t.me/ferretman/861)
-- [ryssa-aquicoine:tanou123:☺Enjoys scritches then cries when he drops his stick!HOW CAN YOU NOTvia Ferret Story https://redzgn.tumblr.com/post/64518346...](https://t.me/ferretman/860)
-- [MediaSolis found herself a new apartment! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645179647093555200](https://t.me/ferretman/859)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/645175881362538496](https://t.me/ferretman/858)
 <!-- TELEGRAM:END -->
