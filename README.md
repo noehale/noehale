@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [When Bo, Luna and Kenai got their first dig box! They’re in a...](https://come-forth-into-the-light.tumblr.com/post/645221194730176512)
 - [Photogenic boi](https://come-forth-into-the-light.tumblr.com/post/645198582893494272)
 - [Big Snooze😴](https://come-forth-into-the-light.tumblr.com/post/645175859610779648)
 - [Roper getting a cozy yawn](https://come-forth-into-the-light.tumblr.com/post/645130586065895424)
 - [Someones enjoying her Christmas presents](https://come-forth-into-the-light.tumblr.com/post/645107925973663744)
-- [Getting snuggles 🥰](https://come-forth-into-the-light.tumblr.com/post/645085263720251392)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
