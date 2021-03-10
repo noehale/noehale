@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI love when they’re both down for cuddlesvia Ferret Story https://babyiwannaknow.tumblr.com/post/645274037542633472](https://t.me/ferretman/878)
-- [MediaHappy Valentine’s Day! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645258911549652992](https://t.me/ferretman/877)
-- [Mediajacks hooman here – this morning our handsome jack left for the rainbow bridge on his own terms. right now, i don’t have many words but i wante...](https://t.me/ferretman/876)
-- [Mediamy two chonks playing in the snow! Loki loves being “thrown”, don’t worry. There is so much snow that nothing can happen ♡via Ferret Story ht...](https://t.me/ferretman/875)
-- [vet-and-wild:You have too many animals if…1. You exceed the legal limit for your area.2. You are unable to physically or financially care for the ani...](https://t.me/ferretman/874)
+- [judgejudyofficial:notlikingbestgirl:Out of TouchLast Out of Touch Thursday of 2020 ladies and gaysvia Ferret Story https://anasfalhhhs.tumblr.com/post...](https://t.me/ferretman/883)
+- [Mediaamnhnyc:Compared to other colors found in nature, true blues are pretty rare—but the indigo milk cap (Lactarius indigo) has just that! This vibr...](https://t.me/ferretman/882)
+- [<a href="https://64.media.tumblr.com/d6e45076e016ec526a83c6308ebb5c67/tumblr_nk9446jadW1u6xetto1_500.jpg">Media</a><a href="https://64.media.tumblr.co...](https://t.me/ferretman/881)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/645270244027416576](https://t.me/ferretman/880)
+- [Mediarandomslasher:thecutestcatever:hardtosaythesethings:the-red-paladins:bug-step:MediaLmfaoMediaMediaMediaThis post honestly keeps getting bettervia...](https://t.me/ferretman/879)
 <!-- TELEGRAM:END -->
