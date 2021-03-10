@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaI love when they’re both down for cuddlesvia Ferret Story https://babyiwannaknow.tumblr.com/post/645274037542633472](https://t.me/ferretman/878)
+- [MediaHappy Valentine’s Day! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645258911549652992](https://t.me/ferretman/877)
 - [Mediajacks hooman here – this morning our handsome jack left for the rainbow bridge on his own terms. right now, i don’t have many words but i wante...](https://t.me/ferretman/876)
 - [Mediamy two chonks playing in the snow! Loki loves being “thrown”, don’t worry. There is so much snow that nothing can happen ♡via Ferret Story ht...](https://t.me/ferretman/875)
 - [vet-and-wild:You have too many animals if…1. You exceed the legal limit for your area.2. You are unable to physically or financially care for the ani...](https://t.me/ferretman/874)
-- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/873)
-- [<a href="http://smartasshat.tumblr.com/post/177869194394/post-more-as-you-wish-just-when-you-think-it">smartasshat</a>:<a href="https://songersingwrit...](https://t.me/ferretman/872)
 <!-- TELEGRAM:END -->
