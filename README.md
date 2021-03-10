@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaintergalactic-romantic:♡ ferret fairy ring ♡buy originalvia Ferret Story https://babyiwannaknow.tumblr.com/post/645213667112189952](https://t.me/ferretman/871)
-- [MediaTommy adjusts his mirrors for a safe drive. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645213657943375872](https://t.me/ferretman/870)
-- [jonrislinger:stimman4000:lizzardbirdMe thinking this was just gonna be an embroidery video: 👁👄👁via Ferret Story https://redzgn.tumblr.com/pos...](https://t.me/ferretman/869)
-- [everythingfox:Face to face with a 90 year old turtle🎥: Nicholas Breauxvia Ferret Story https://falalamingo.tumblr.com/post/645209918640635904](https://t.me/ferretman/868)
-- [mtthwlttl:meeb:notlorenzo:totallyatomic:halharl-infigar:This is honestly my whole outlook on lifeMY FAVORITE VIDEO IS BACKThe range of emotions..“ha...](https://t.me/ferretman/867)
+- [thegirlwhocouldntread: lilrabbitssong: dearbluetravelers: kernezelda: nofreetrees: moddeydhoo: ...via Ferret Story https://just-a-catastrophy.tumblr.c...](https://t.me/ferretman/866)
+- [MediaSnuggles!via Ferret Story https://prettypeterparkr.tumblr.com/post/645194761570009088](https://t.me/ferretman/865)
+- [MediaThis is my pet ferret Rosie.. she loves the beachvia Ferret Story https://scrisoridemai.tumblr.com/post/645194741795995648](https://t.me/ferretman/864)
+- [Mediamako-symptoms:I always have to start the New Years with this picture.via Ferret Story https://anasfalhhhs.tumblr.com/post/645187233616379904](https://t.me/ferretman/863)
+- [rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyvia Ferret Story https://babyiwannaknow.tumblr....](https://t.me/ferretman/862)
 <!-- TELEGRAM:END -->
