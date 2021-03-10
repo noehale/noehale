@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Can we pleeease play ball again ?](https://come-forth-into-the-light.tumblr.com/post/645289113893863424)
 - [But father… I can help build too : ferrets](https://come-forth-into-the-light.tumblr.com/post/645266483028656130)
 - [When Bo, Luna and Kenai got their first dig box! They’re in a...](https://come-forth-into-the-light.tumblr.com/post/645221194730176512)
 - [Photogenic boi](https://come-forth-into-the-light.tumblr.com/post/645198582893494272)
 - [Big Snooze😴](https://come-forth-into-the-light.tumblr.com/post/645175859610779648)
-- [Roper getting a cozy yawn](https://come-forth-into-the-light.tumblr.com/post/645130586065895424)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
