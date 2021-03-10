@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [judgejudyofficial:notlikingbestgirl:Out of TouchLast Out of Touch Thursday of 2020 ladies and gaysvia Ferret Story https://anasfalhhhs.tumblr.com/post...](https://t.me/ferretman/883)
-- [Mediaamnhnyc:Compared to other colors found in nature, true blues are pretty rare—but the indigo milk cap (Lactarius indigo) has just that! This vibr...](https://t.me/ferretman/882)
-- [<a href="https://64.media.tumblr.com/d6e45076e016ec526a83c6308ebb5c67/tumblr_nk9446jadW1u6xetto1_500.jpg">Media</a><a href="https://64.media.tumblr.co...](https://t.me/ferretman/881)
-- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/645270244027416576](https://t.me/ferretman/880)
-- [Mediarandomslasher:thecutestcatever:hardtosaythesethings:the-red-paladins:bug-step:MediaLmfaoMediaMediaMediaThis post honestly keeps getting bettervia...](https://t.me/ferretman/879)
+- [MediaLilly, Queen of da ottoman : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645300483771236352](https://t.me/ferretman/888)
+- [angryschnauzer:crazyaboutlefandoms:dutchster:when it’s november 1stSongs with the same bpm but played over different than original video tracks give ...](https://t.me/ferretman/887)
+- [MediaLockdown Essentials: One Large Ferretvia Ferret Story https://just-a-catastrophy.tumblr.com/post/645289153795325952](https://t.me/ferretman/886)
+- [Mediatheferrets:theferrets:Almost my whole business.All in heaven now.. miss you  - love Momvia Ferret Story https://scrisoridemai.tumblr.com/post/6...](https://t.me/ferretman/885)
+- [everythingfox:Super detailed painting, truly stunningvia Ferret Story https://prettypeterparkr.tumblr.com/post/645285356569313281](https://t.me/ferretman/884)
 <!-- TELEGRAM:END -->
