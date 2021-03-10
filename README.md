@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyvia Ferret Story https://babyiwannaknow.tumblr....](https://t.me/ferretman/862)
-- [Mediaitscolossal:Archaeologists Unearth a Nearly 2,000-Year-Old Cat Geoglyph Lounging on a Peruvian Hillsidevia Ferret Story https://somewhere-inthe-d...](https://t.me/ferretman/861)
-- [ryssa-aquicoine:tanou123:☺Enjoys scritches then cries when he drops his stick!HOW CAN YOU NOTvia Ferret Story https://redzgn.tumblr.com/post/64518346...](https://t.me/ferretman/860)
-- [MediaSolis found herself a new apartment! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645179647093555200](https://t.me/ferretman/859)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/645175881362538496](https://t.me/ferretman/858)
+- [judgejudyofficial:notlikingbestgirl:Out of TouchLast Out of Touch Thursday of 2020 ladies and gaysvia Ferret Story https://anasfalhhhs.tumblr.com/post...](https://t.me/ferretman/883)
+- [Mediaamnhnyc:Compared to other colors found in nature, true blues are pretty rare—but the indigo milk cap (Lactarius indigo) has just that! This vibr...](https://t.me/ferretman/882)
+- [<a href="https://64.media.tumblr.com/d6e45076e016ec526a83c6308ebb5c67/tumblr_nk9446jadW1u6xetto1_500.jpg">Media</a><a href="https://64.media.tumblr.co...](https://t.me/ferretman/881)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/645270244027416576](https://t.me/ferretman/880)
+- [Mediarandomslasher:thecutestcatever:hardtosaythesethings:the-red-paladins:bug-step:MediaLmfaoMediaMediaMediaThis post honestly keeps getting bettervia...](https://t.me/ferretman/879)
 <!-- TELEGRAM:END -->
