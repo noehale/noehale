@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediascientxsts:emiratizayn-deactivated20150816:and the Iraqi people welcomed the Americans with flowers....](https://t.me/ferretman/898)
+- [MediaWe know who the Chonk is… : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645349529860849664](https://t.me/ferretman/897)
 - [MediaFish goes full crack mode when I use the death metal voicevia Ferret Story https://just-a-catastrophy.tumblr.com/post/645319317982953472](https://t.me/ferretman/896)
 - [MediaAfter 3 days without power in sub-freezing temperature, a busted pipe and collapsed ceiling, and iced over roads, we are safe and warm with light...](https://t.me/ferretman/895)
 - [thelifeofmyferrets:MediaMediaMediaAs you know, shedding season is upon us! One of my biggest fears is a hair ball blockage.I came across SleekEZ and d...](https://t.me/ferretman/894)
-- [MediaMy Ferret Sleeps On Me While I Workvia Ferret Story https://scrisoridemai.tumblr.com/post/645315542195011584](https://t.me/ferretman/893)
-- [Mediawicdiv:The Bryan Lee O'Malley variant for issue 1.If you want this, I suggest you talk to your local comic shop and pre-order before Monday (i.e....](https://t.me/ferretman/892)
 <!-- TELEGRAM:END -->
