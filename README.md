@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/645387259062992896](https://t.me/ferretman/907)
+- [Mediafuzzy ferret butt 🙈via Ferret Story https://just-a-catastrophy.tumblr.com/post/645379728257286144](https://t.me/ferretman/906)
+- [MediaLove youz Mama 💜 Ooo burbz!! 🦅 🐦 🕊via Ferret Story https://scrisoridemai.tumblr.com/post/645375944523235328](https://t.me/ferretman/905)
+- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://pre...](https://t.me/ferretman/904)
 - [bairnsidhe:maikanna:wolfstarforever:major-mitty:yaoi-smasher6969:anyway, my older sister was adopted when she was almost 16 (kinda on accident too), a...](https://t.me/ferretman/903)
-- [MediaMediaMediaspencer-ferret:Little shitvia Ferret Story https://babyiwannaknow.tumblr.com/post/645364667307425792](https://t.me/ferretman/902)
-- [cherrypiereadytodie:cherrypiereadytodie:cherrypiereadytodie:despaMediavia Ferret Story https://redzgn.tumblr.com/post/645364630891511808](https://t.me/ferretman/901)
-- [MediaEveryone say hi to Mozzie! Little guy had his first visit to the vet and second and final round of vaccinations for the year and did so so good! ...](https://t.me/ferretman/900)
-- [Mediapdlcomics:Welcomevia Ferret Story https://falalamingo.tumblr.com/post/645360821652815872](https://t.me/ferretman/899)
 <!-- TELEGRAM:END -->
