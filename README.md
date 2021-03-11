@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMerlin sleeping in his cloud blanketvia Ferret Story https://babyiwannaknow.tumblr.com/post/645304314774110208](https://t.me/ferretman/889)
 - [MediaLilly, Queen of da ottoman : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645300483771236352](https://t.me/ferretman/888)
 - [angryschnauzer:crazyaboutlefandoms:dutchster:when it’s november 1stSongs with the same bpm but played over different than original video tracks give ...](https://t.me/ferretman/887)
 - [MediaLockdown Essentials: One Large Ferretvia Ferret Story https://just-a-catastrophy.tumblr.com/post/645289153795325952](https://t.me/ferretman/886)
 - [Mediatheferrets:theferrets:Almost my whole business.All in heaven now.. miss you  - love Momvia Ferret Story https://scrisoridemai.tumblr.com/post/6...](https://t.me/ferretman/885)
-- [everythingfox:Super detailed painting, truly stunningvia Ferret Story https://prettypeterparkr.tumblr.com/post/645285356569313281](https://t.me/ferretman/884)
 <!-- TELEGRAM:END -->
