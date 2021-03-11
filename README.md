@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thelifeofmyferrets:MediaMediaMediaAs you know, shedding season is upon us! One of my biggest fears is a hair ball blockage.I came across SleekEZ and d...](https://t.me/ferretman/894)
-- [MediaMy Ferret Sleeps On Me While I Workvia Ferret Story https://scrisoridemai.tumblr.com/post/645315542195011584](https://t.me/ferretman/893)
-- [Mediawicdiv:The Bryan Lee O'Malley variant for issue 1.If you want this, I suggest you talk to your local comic shop and pre-order before Monday (i.e....](https://t.me/ferretman/892)
-- [hakimo2015:thresholdofzero:wyomingsmustache:directium:They posted it late at night and want people to see it in the daytimeThey want others to reblog ...](https://t.me/ferretman/891)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediayouthoughtiwasasleepdidntyou:I feel these in my soulvia Ferret Story https://redzgn.tumblr.com/post/...](https://t.me/ferretman/890)
+- [MediaLilly, Queen of da ottoman : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645300483771236352](https://t.me/ferretman/888)
+- [angryschnauzer:crazyaboutlefandoms:dutchster:when it’s november 1stSongs with the same bpm but played over different than original video tracks give ...](https://t.me/ferretman/887)
+- [MediaLockdown Essentials: One Large Ferretvia Ferret Story https://just-a-catastrophy.tumblr.com/post/645289153795325952](https://t.me/ferretman/886)
+- [Mediatheferrets:theferrets:Almost my whole business.All in heaven now.. miss you  - love Momvia Ferret Story https://scrisoridemai.tumblr.com/post/6...](https://t.me/ferretman/885)
+- [everythingfox:Super detailed painting, truly stunningvia Ferret Story https://prettypeterparkr.tumblr.com/post/645285356569313281](https://t.me/ferretman/884)
 <!-- TELEGRAM:END -->
