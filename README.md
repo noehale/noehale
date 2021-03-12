@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/645387259062992896](https://t.me/ferretman/907)
-- [Mediafuzzy ferret butt 🙈via Ferret Story https://just-a-catastrophy.tumblr.com/post/645379728257286144](https://t.me/ferretman/906)
-- [MediaLove youz Mama 💜 Ooo burbz!! 🦅 🐦 🕊via Ferret Story https://scrisoridemai.tumblr.com/post/645375944523235328](https://t.me/ferretman/905)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://pre...](https://t.me/ferretman/904)
-- [bairnsidhe:maikanna:wolfstarforever:major-mitty:yaoi-smasher6969:anyway, my older sister was adopted when she was almost 16 (kinda on accident too), a...](https://t.me/ferretman/903)
+- [MediaGus-Gus got into a box that had some Styrofoam in it… this is the result. Silly boy! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/po...](https://t.me/ferretman/915)
+- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/914)
+- [MediaWonton playing around in his tunnel from IKEA!! He’s gotten so big :) : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645409999329...](https://t.me/ferretman/913)
+- [MediaHurley crossed the rainbow bridge today. I hope he’s enjoying the warm sun up there. ❤️via Ferret Story https://prettypeterparkr.tumblr.com/po...](https://t.me/ferretman/912)
+- [Mediayoungalientype:mod2amaryllis:chubby-aphrodite:darthlenaplant:nerdy-pharmacy-daydreams:bluegone:etherealastraea:dihydrogenmonoxideawareness:Why wo...](https://t.me/ferretman/911)
 <!-- TELEGRAM:END -->
