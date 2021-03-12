@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaGus-Gus got into a box that had some Styrofoam in it… this is the result. Silly boy! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/po...](https://t.me/ferretman/915)
-- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/914)
-- [MediaWonton playing around in his tunnel from IKEA!! He’s gotten so big :) : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645409999329...](https://t.me/ferretman/913)
-- [MediaHurley crossed the rainbow bridge today. I hope he’s enjoying the warm sun up there. ❤️via Ferret Story https://prettypeterparkr.tumblr.com/po...](https://t.me/ferretman/912)
-- [Mediayoungalientype:mod2amaryllis:chubby-aphrodite:darthlenaplant:nerdy-pharmacy-daydreams:bluegone:etherealastraea:dihydrogenmonoxideawareness:Why wo...](https://t.me/ferretman/911)
+- [ferretsof:Hyper noodlesvia Ferret Story https://babyiwannaknow.tumblr.com/post/645455220739031040](https://t.me/ferretman/920)
+- [MediaHELP. THIEF. LONG BOY STEAL. 😭 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645455221283225600](https://t.me/ferretman/919)
+- [paintdeath:confess your love for me via paypalvia Ferret Story https://redzgn.tumblr.com/post/645455221290680320](https://t.me/ferretman/918)
+- [MediaBro, get here! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645451436470190080](https://t.me/ferretman/917)
+- [classical-memeician:freakxwannaxbe:I feel like I am being held hostageFancy winevia Ferret Story https://xxcrybby.tumblr.com/post/645447660133859328](https://t.me/ferretman/916)
 <!-- TELEGRAM:END -->
