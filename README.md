@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/645387259062992896](https://t.me/ferretman/907)
-- [Mediafuzzy ferret butt 🙈via Ferret Story https://just-a-catastrophy.tumblr.com/post/645379728257286144](https://t.me/ferretman/906)
-- [MediaLove youz Mama 💜 Ooo burbz!! 🦅 🐦 🕊via Ferret Story https://scrisoridemai.tumblr.com/post/645375944523235328](https://t.me/ferretman/905)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://pre...](https://t.me/ferretman/904)
-- [bairnsidhe:maikanna:wolfstarforever:major-mitty:yaoi-smasher6969:anyway, my older sister was adopted when she was almost 16 (kinda on accident too), a...](https://t.me/ferretman/903)
+- [MediaFish goes full crack mode when I use the death metal voicevia Ferret Story https://just-a-catastrophy.tumblr.com/post/645319317982953472](https://t.me/ferretman/896)
+- [MediaAfter 3 days without power in sub-freezing temperature, a busted pipe and collapsed ceiling, and iced over roads, we are safe and warm with light...](https://t.me/ferretman/895)
+- [thelifeofmyferrets:MediaMediaMediaAs you know, shedding season is upon us! One of my biggest fears is a hair ball blockage.I came across SleekEZ and d...](https://t.me/ferretman/894)
+- [MediaMy Ferret Sleeps On Me While I Workvia Ferret Story https://scrisoridemai.tumblr.com/post/645315542195011584](https://t.me/ferretman/893)
+- [Mediawicdiv:The Bryan Lee O'Malley variant for issue 1.If you want this, I suggest you talk to your local comic shop and pre-order before Monday (i.e....](https://t.me/ferretman/892)
 <!-- TELEGRAM:END -->
