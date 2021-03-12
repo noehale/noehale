@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [CURSED OZZY](https://come-forth-into-the-light.tumblr.com/post/645447659787894784)
 - [Sweet babies.](https://come-forth-into-the-light.tumblr.com/post/645402439965638656)
 - [Peek a boop](https://come-forth-into-the-light.tumblr.com/post/645379741718855680)
 - [gigglepox:my friend commissioned me to draw fluffy ferrets ](https://come-forth-into-the-light.tumblr.com/post/645357075416940544)
 - [My ferret keeps using the bathroom in the wrong corner in her...](https://come-forth-into-the-light.tumblr.com/post/645311818088218624)
-- [Can we pleeease play ball again ?](https://come-forth-into-the-light.tumblr.com/post/645289113893863424)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
