@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [misioandkinga:ice-block: So animal misinformation is very common within society so I thought about...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/924)
+- [MediaWe brought this guy home yesterday! Everyone meet Pango!via Ferret Story https://scrisoridemai.tumblr.com/post/645466563345022976](https://t.me/ferretman/923)
+- [Mediathis is my favorite picture I’ve ever taken of himvia Ferret Story https://prettypeterparkr.tumblr.com/post/645466563342893056](https://t.me/ferretman/922)
+- [sabotabby:s4wdust:plantconstellations:i imagine getting my own place all the time and going down to the grocery store early in the morning before ever...](https://t.me/ferretman/921)
 - [ferretsof:Hyper noodlesvia Ferret Story https://babyiwannaknow.tumblr.com/post/645455220739031040](https://t.me/ferretman/920)
-- [MediaHELP. THIEF. LONG BOY STEAL. 😭 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645455221283225600](https://t.me/ferretman/919)
-- [paintdeath:confess your love for me via paypalvia Ferret Story https://redzgn.tumblr.com/post/645455221290680320](https://t.me/ferretman/918)
-- [MediaBro, get here! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645451436470190080](https://t.me/ferretman/917)
-- [classical-memeician:freakxwannaxbe:I feel like I am being held hostageFancy winevia Ferret Story https://xxcrybby.tumblr.com/post/645447660133859328](https://t.me/ferretman/916)
 <!-- TELEGRAM:END -->
