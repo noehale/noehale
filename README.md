@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [miloszsghost:wotervia Ferret Story https://punkrocknat.tumblr.com/post/645530694573064193](https://t.me/ferretman/935)
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/645500587175231488](https://t.me/ferretman/934)
-- [MediaMediaMediaMediaMediabensears:some cat designs I did for Midnight Gospel episode 2colors by Nick Nazzarovia Ferret Story https://punkrocknat.tumbl...](https://t.me/ferretman/933)
-- [MediaLittle princess has come for morning cuddlesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645496786938675200](https://t.me/ferretman/932)
-- [Mediatheferrets:theferrets:Niku enjoying the Holiday, and the crisp cool weather outside! Mommy misses you babyvia Ferret Story https://scrisoridemai...](https://t.me/ferretman/931)
+- [Mediapseudonymjones:the paper airplane competition ➿✈️via Ferret Story https://anasfalhhhs.tumblr.com/post/645549582265221120](https://t.me/ferretman/941)
+- [MediaArguing over a chicken wing..when there are 3 more upstairs.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/6455458382869299...](https://t.me/ferretman/940)
+- [Mediadietaryfiber:mayordog:a warningwe have Ten Daysvia Ferret Story https://redzgn.tumblr.com/post/645545837558153216](https://t.me/ferretman/939)
+- [MediaCaption please? 🙋🏼‍♂️via Ferret Story https://babyiwannaknow.tumblr.com/post/645545804191449088](https://t.me/ferretman/938)
+- [Mediasleepy pancake : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645542027889623040](https://t.me/ferretman/937)
 <!-- TELEGRAM:END -->
