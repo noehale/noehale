@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFelix! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645485549700939776](https://t.me/ferretman/929)
-- [MediaMediaMediaMediaordeal:rudelyfe:nevaehtyler:26-year-old Jamarion Robinson’s grandmother Beverly Nixon said her grandson was bipolar and schizophr...](https://t.me/ferretman/928)
-- [MediaMy girls are in need of new toys! I need some recommendations for some fun and safe toys that don’t require supervision. Any help is appreciated...](https://t.me/ferretman/927)
-- [MediaWas worried my 6 month old girl Ling Ling (short for Linguine) wouldn’t take to the new 4 month old boy Alfie (short for Alfredo), but day 3 she...](https://t.me/ferretman/926)
-- [MediaMediaMediaMediamother-entropy:lastnightspants:bluebeetletedkord:MediaMediathat photo is one of the sexiest things i have ever seen.via Ferret Sto...](https://t.me/ferretman/925)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/645500587175231488](https://t.me/ferretman/934)
+- [MediaMediaMediaMediaMediabensears:some cat designs I did for Midnight Gospel episode 2colors by Nick Nazzarovia Ferret Story https://punkrocknat.tumbl...](https://t.me/ferretman/933)
+- [MediaLittle princess has come for morning cuddlesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645496786938675200](https://t.me/ferretman/932)
+- [Mediatheferrets:theferrets:Niku enjoying the Holiday, and the crisp cool weather outside! Mommy misses you babyvia Ferret Story https://scrisoridemai...](https://t.me/ferretman/931)
+- [prospitdreamer:chickenstab:chickenstab:happy new bears!!wait no don’t reblog this i meant yearsMediavia Ferret Story https://anasfalhhhs.tumblr.com/p...](https://t.me/ferretman/930)
 <!-- TELEGRAM:END -->
