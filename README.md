@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Today is my cake day so here is a picture of our newest baby...](https://come-forth-into-the-light.tumblr.com/post/645538257976934400)
 - [Now I’m not allowed to move😂 : ferrets](https://come-forth-into-the-light.tumblr.com/post/645492997313724416)
 - [Ferret and Cherry Blossom](https://come-forth-into-the-light.tumblr.com/post/645470338852012032)
 - [CURSED OZZY](https://come-forth-into-the-light.tumblr.com/post/645447659787894784)
 - [Sweet babies.](https://come-forth-into-the-light.tumblr.com/post/645402439965638656)
-- [Peek a boop](https://come-forth-into-the-light.tumblr.com/post/645379741718855680)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
