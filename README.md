@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Baby Theo’s first Christmas 🥺](https://come-forth-into-the-light.tumblr.com/post/645651508268072960)
 - [somecutething:A very relaxed ferret! (via noodletheferret127)](https://come-forth-into-the-light.tumblr.com/post/645628893237329920)
 - [Any ferret owners who use these types of pens for a ferret play...](https://come-forth-into-the-light.tumblr.com/post/645583612829401088)
 - [stardust-on-the-moon:Ferret in love&hellip;. when will they kiss?](https://come-forth-into-the-light.tumblr.com/post/645560908022710272)
 - [Today is my cake day so here is a picture of our newest baby...](https://come-forth-into-the-light.tumblr.com/post/645538257976934400)
-- [Now I’m not allowed to move😂 : ferrets](https://come-forth-into-the-light.tumblr.com/post/645492997313724416)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
