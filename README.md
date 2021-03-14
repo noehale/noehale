@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [miloszsghost:wotervia Ferret Story https://punkrocknat.tumblr.com/post/645530694573064193](https://t.me/ferretman/935)
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/645500587175231488](https://t.me/ferretman/934)
-- [MediaMediaMediaMediaMediabensears:some cat designs I did for Midnight Gospel episode 2colors by Nick Nazzarovia Ferret Story https://punkrocknat.tumbl...](https://t.me/ferretman/933)
-- [MediaLittle princess has come for morning cuddlesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645496786938675200](https://t.me/ferretman/932)
-- [Mediatheferrets:theferrets:Niku enjoying the Holiday, and the crisp cool weather outside! Mommy misses you babyvia Ferret Story https://scrisoridemai...](https://t.me/ferretman/931)
+- [Mediaflovvright:me trying to comprehend anything anyone says to mevia Ferret Story https://just-a-catastrophy.tumblr.com/post/645591146494672896](https://t.me/ferretman/956)
+- [destielfricklefrackle:have you ever had to restart a song because you spaced out and weren’t appreciating it enoughvia Ferret Story https://punkrockn...](https://t.me/ferretman/955)
+- [MediaWe’re new to tik tok 😳via Ferret Story https://prettypeterparkr.tumblr.com/post/645587356204810240](https://t.me/ferretman/954)
+- [lesbwian:Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/645579794535317504](https://t.me/ferretman/953)
+- [MediaSluuuuuurp. Sound up. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645576037808406528](https://t.me/ferretman/952)
 <!-- TELEGRAM:END -->
