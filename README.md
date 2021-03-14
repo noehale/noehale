@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaflovvright:me trying to comprehend anything anyone says to mevia Ferret Story https://just-a-catastrophy.tumblr.com/post/645591146494672896](https://t.me/ferretman/956)
+- [destielfricklefrackle:have you ever had to restart a song because you spaced out and weren’t appreciating it enoughvia Ferret Story https://punkrockn...](https://t.me/ferretman/955)
 - [MediaWe’re new to tik tok 😳via Ferret Story https://prettypeterparkr.tumblr.com/post/645587356204810240](https://t.me/ferretman/954)
 - [lesbwian:Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/645579794535317504](https://t.me/ferretman/953)
 - [MediaSluuuuuurp. Sound up. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645576037808406528](https://t.me/ferretman/952)
-- [cloudfreed:uglyrad:thebestoftumbling:a ferret making a nesti need this, and this, and this, and this, and this, and thismust… aim… butt… correctly...](https://t.me/ferretman/951)
-- [Mediachrishallbeck:Long.via Ferret Story https://falalamingo.tumblr.com/post/645572285650157568](https://t.me/ferretman/950)
 <!-- TELEGRAM:END -->
