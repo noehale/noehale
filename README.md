@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [miloszsghost:wotervia Ferret Story https://punkrocknat.tumblr.com/post/645530694573064193](https://t.me/ferretman/935)
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/645500587175231488](https://t.me/ferretman/934)
-- [MediaMediaMediaMediaMediabensears:some cat designs I did for Midnight Gospel episode 2colors by Nick Nazzarovia Ferret Story https://punkrocknat.tumbl...](https://t.me/ferretman/933)
-- [MediaLittle princess has come for morning cuddlesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645496786938675200](https://t.me/ferretman/932)
-- [Mediatheferrets:theferrets:Niku enjoying the Holiday, and the crisp cool weather outside! Mommy misses you babyvia Ferret Story https://scrisoridemai...](https://t.me/ferretman/931)
+- [Mediaawsomecutecats:He loves getting raked by the back scratcher. He is my zen gardenvia Ferret Story https://redzgn.tumblr.com/post/64557612868853760...](https://t.me/ferretman/949)
+- [Mediadietaryfiber:mayordog:a warningwe have Ten Daysvia Ferret Story https://redzgn.tumblr.com/post/645545837558153216](https://t.me/ferretman/948)
+- [MediaMediaMediaMediaordeal:rudelyfe:nevaehtyler:26-year-old Jamarion Robinson’s grandmother Beverly Nixon said her grandson was bipolar and schizophr...](https://t.me/ferretman/947)
+- [paintdeath:confess your love for me via paypalvia Ferret Story https://redzgn.tumblr.com/post/645455221290680320](https://t.me/ferretman/946)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/645568444687892480](https://t.me/ferretman/945)
 <!-- TELEGRAM:END -->
