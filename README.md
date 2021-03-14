@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/645568444687892480](https://t.me/ferretman/945)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediagasaii:trappedinsanity:Buttercup appreciation post (◡‿◡✿)my favorite. basically mevia Ferret Story h...](https://t.me/ferretman/944)
-- [Click here to support Poe needs surgery. by Cassandra Dunn:theferrets:deceiverofgods:Poe is my 4 year old ferret. He is my baby and he needs help.We t...](https://t.me/ferretman/943)
-- [MediaI have no words….via Ferret Story https://prettypeterparkr.tumblr.com/post/645557117707812864](https://t.me/ferretman/942)
-- [Mediapseudonymjones:the paper airplane competition ➿✈️via Ferret Story https://anasfalhhhs.tumblr.com/post/645549582265221120](https://t.me/ferretman/941)
+- [miloszsghost:wotervia Ferret Story https://punkrocknat.tumblr.com/post/645530694573064193](https://t.me/ferretman/935)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/645500587175231488](https://t.me/ferretman/934)
+- [MediaMediaMediaMediaMediabensears:some cat designs I did for Midnight Gospel episode 2colors by Nick Nazzarovia Ferret Story https://punkrocknat.tumbl...](https://t.me/ferretman/933)
+- [MediaLittle princess has come for morning cuddlesvia Ferret Story https://prettypeterparkr.tumblr.com/post/645496786938675200](https://t.me/ferretman/932)
+- [Mediatheferrets:theferrets:Niku enjoying the Holiday, and the crisp cool weather outside! Mommy misses you babyvia Ferret Story https://scrisoridemai...](https://t.me/ferretman/931)
 <!-- TELEGRAM:END -->
