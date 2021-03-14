@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediabuffleheadcabin:[Is it frog friday yet?]via Ferret Story https://falalamingo.tumblr.com/post/645662895051538432](https://t.me/ferretman/968)
+- [becausebirds:The best thing you’ll ever see.via Ferret Story https://xxcrybby.tumblr.com/post/645659067947302912](https://t.me/ferretman/967)
+- [MediaI just put some flea medicine on my ferrets! (ferret advantage) There is a slight blue tint in one patch of where I put the medicine on one of my...](https://t.me/ferretman/966)
 - [Mediabambuzl:ferrets for character design classvia Ferret Story https://scrisoridemai.tumblr.com/post/645647740074852353](https://t.me/ferretman/965)
 - [MediaWheezing HELPvia Ferret Story https://prettypeterparkr.tumblr.com/post/645647740082290689](https://t.me/ferretman/964)
-- [MediaJacqueline Emerson as AmaterasuMediaMediaMediaAmber Heard as LuciferMediaKaya Scodelario as Badb, Macha, and Gentle Annie of the MorriganMediaMed...](https://t.me/ferretman/963)
-- [Mediathevaultofretroscifi:Gilbert Williams, Message From Beyondvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645636428337971201](https://t.me/ferretman/962)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645636417543979008](https://t.me/ferretman/961)
 <!-- TELEGRAM:END -->
