@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [fruitcrocs:criacow:pearwaldorf:#cow! #omg #DOES THAT MACHINE SAY HAPPYCOW ON IT #OMGGGG #ded of cute #videoyes that does indeed say happycow. so. ther...](https://t.me/ferretman/959)
+- [<a href="https://iamthecutestofborg.tumblr.com/post/629927436551929856/intersex-mhacha-shipitbabyonemoretime">iamthecutestofborg</a>:<a href="https://...](https://t.me/ferretman/958)
+- [MediaMediaMediaMediabensears:I drew issue 3 of Garfield: Homecoming, which came out yesterday. It was written by Scott Nickel, colored by Lisa Moore, ...](https://t.me/ferretman/957)
 - [Mediaflovvright:me trying to comprehend anything anyone says to mevia Ferret Story https://just-a-catastrophy.tumblr.com/post/645591146494672896](https://t.me/ferretman/956)
 - [destielfricklefrackle:have you ever had to restart a song because you spaced out and weren’t appreciating it enoughvia Ferret Story https://punkrockn...](https://t.me/ferretman/955)
-- [MediaWe’re new to tik tok 😳via Ferret Story https://prettypeterparkr.tumblr.com/post/645587356204810240](https://t.me/ferretman/954)
-- [lesbwian:Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/645579794535317504](https://t.me/ferretman/953)
-- [MediaSluuuuuurp. Sound up. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645576037808406528](https://t.me/ferretman/952)
 <!-- TELEGRAM:END -->
