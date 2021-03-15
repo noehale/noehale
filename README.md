@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaselki:My favourite toy is my: beenneebabeI like it because: it is sofdvia Ferret Story https://scrisoridemai.tumblr.com/post/645677915654258688](https://t.me/ferretman/973)
-- [MediaOri loves the ball pit 😆via Ferret Story https://prettypeterparkr.tumblr.com/post/645677915640676352](https://t.me/ferretman/972)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:random-ferret:bard, ranger, fighter,druid, cleric, paladin,sorcerer, warlock, wizardYo...](https://t.me/ferretman/971)
-- [MediaKids at play. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645666670969552896](https://t.me/ferretman/970)
-- [Medialikeaflowerfullybloomed:Me taking a nap after I just woke upvia Ferret Story https://redzgn.tumblr.com/post/645666681022251008](https://t.me/ferretman/969)
+- [<a href="https://64.media.tumblr.com/06e5e3e23e49f988cbca247770f57922/tumblr_n5dm2lHLvT1qav3uso1_500.gifv">Media</a><a href="https://64.media.tumblr.c...](https://t.me/ferretman/981)
+- [plague-of-insomnia:eldritchblaast:When there are 0 fanfics with the pairing you wantimageFollowed by the realization you have to write it yourselfMedi...](https://t.me/ferretman/980)
+- [MediaMediaMediaMediapseudonymjones:Christ on a bike, I can’t believe this post has over 10K notes now. I had to turn off anon messages because every ...](https://t.me/ferretman/979)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645723246787985408](https://t.me/ferretman/978)
+- [a-soft-suicide:tupacabra:a soulmate is a person that won’t complain about any of my music when i put my ipod on shufflei complain about my own music ...](https://t.me/ferretman/977)
 <!-- TELEGRAM:END -->
