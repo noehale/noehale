@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [bob-artist:“You wanna go crazy?”Kit politely asks me to play...](https://come-forth-into-the-light.tumblr.com/post/645738322306744320)
 - [I looked over to see what they were doing and I see this](https://come-forth-into-the-light.tumblr.com/post/645715659617075200)
 - [The only way I want to enter the new year is while holding a...](https://come-forth-into-the-light.tumblr.com/post/645674145419493376)
 - [Baby Theo’s first Christmas 🥺](https://come-forth-into-the-light.tumblr.com/post/645651508268072960)
 - [somecutething:A very relaxed ferret! (via noodletheferret127)](https://come-forth-into-the-light.tumblr.com/post/645628893237329920)
-- [Any ferret owners who use these types of pens for a ferret play...](https://come-forth-into-the-light.tumblr.com/post/645583612829401088)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
