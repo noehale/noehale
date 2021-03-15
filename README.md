@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaKids at play. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645666670969552896](https://t.me/ferretman/970)
 - [Medialikeaflowerfullybloomed:Me taking a nap after I just woke upvia Ferret Story https://redzgn.tumblr.com/post/645666681022251008](https://t.me/ferretman/969)
 - [Mediabuffleheadcabin:[Is it frog friday yet?]via Ferret Story https://falalamingo.tumblr.com/post/645662895051538432](https://t.me/ferretman/968)
 - [becausebirds:The best thing you’ll ever see.via Ferret Story https://xxcrybby.tumblr.com/post/645659067947302912](https://t.me/ferretman/967)
 - [MediaI just put some flea medicine on my ferrets! (ferret advantage) There is a slight blue tint in one patch of where I put the medicine on one of my...](https://t.me/ferretman/966)
-- [Mediabambuzl:ferrets for character design classvia Ferret Story https://scrisoridemai.tumblr.com/post/645647740074852353](https://t.me/ferretman/965)
 <!-- TELEGRAM:END -->
