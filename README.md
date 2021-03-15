@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaselki:My favourite toy is my: beenneebabeI like it because: it is sofdvia Ferret Story https://scrisoridemai.tumblr.com/post/645677915654258688](https://t.me/ferretman/973)
-- [MediaOri loves the ball pit 😆via Ferret Story https://prettypeterparkr.tumblr.com/post/645677915640676352](https://t.me/ferretman/972)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:random-ferret:bard, ranger, fighter,druid, cleric, paladin,sorcerer, warlock, wizardYo...](https://t.me/ferretman/971)
-- [MediaKids at play. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645666670969552896](https://t.me/ferretman/970)
-- [Medialikeaflowerfullybloomed:Me taking a nap after I just woke upvia Ferret Story https://redzgn.tumblr.com/post/645666681022251008](https://t.me/ferretman/969)
+- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://just-a-catastrophy....](https://t.me/ferretman/985)
+- [MediaWhat was that!?via Ferret Story https://scrisoridemai.tumblr.com/post/645734566255083520](https://t.me/ferretman/984)
+- [thelifeofmyferrets:MediaDucky is freaking out!via Ferret Story https://prettypeterparkr.tumblr.com/post/645734547742457856](https://t.me/ferretman/983)
+- [Mediamoriartystayingalive:orangejuiceblogging:moriartystayingalive:My Irish friend didn’t believe me when I told him that in Florida there is literal...](https://t.me/ferretman/982)
+- [<a href="https://64.media.tumblr.com/06e5e3e23e49f988cbca247770f57922/tumblr_n5dm2lHLvT1qav3uso1_500.gifv">Media</a><a href="https://64.media.tumblr.c...](https://t.me/ferretman/981)
 <!-- TELEGRAM:END -->
