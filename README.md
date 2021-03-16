@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHe was ok but omg I can’t believe I got a photo of this!via Ferret Story https://just-a-catastrophy.tumblr.com/post/645829003675074560](https://t.me/ferretman/1005)
-- [MediaMeeko is working on learning proper table etiquette. First step: figure out how to hold utensils without opposable thumbs.via Ferret Story https:...](https://t.me/ferretman/1004)
-- [sugarcat-sae:Please don’t buy a pet for a Christmas gift to a child. Animals should be family members, not gifts. I know pet smart advises tiny anim...](https://t.me/ferretman/1003)
-- [MediaMediajimmymarks:artekka:I realized that some of recovering from depression is changing your perspective on things. So I made my very first two-si...](https://t.me/ferretman/1002)
-- [Mediabuffleheadcabin:[Is it frog friday yet?]via Ferret Story https://redzgn.tumblr.com/post/645813899284938752](https://t.me/ferretman/1001)
+- [princvsx:anonymously (or not) ask me any question you’d like to know about mevia Ferret Story https://punkrocknat.tumblr.com/post/645772282910900224](https://t.me/ferretman/995)
+- [MediaSnuggle blissvia Ferret Story https://just-a-catastrophy.tumblr.com/post/645768592097427456](https://t.me/ferretman/994)
+- [MediaBlepvia Ferret Story https://scrisoridemai.tumblr.com/post/645764769576566784](https://t.me/ferretman/993)
+- [Mediamoggs broke…via Ferret Story https://prettypeterparkr.tumblr.com/post/645764769572339712](https://t.me/ferretman/992)
+- [liftlikebrittany:Sometimes you fall off the wagon for months. Sometimes you tell yourself you’re gonna start fresh on Monday and by Wednesday you’ve...](https://t.me/ferretman/991)
 <!-- TELEGRAM:END -->
