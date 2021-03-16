@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [princvsx:anonymously (or not) ask me any question you’d like to know about mevia Ferret Story https://punkrocknat.tumblr.com/post/645772282910900224](https://t.me/ferretman/995)
+- [MediaSnuggle blissvia Ferret Story https://just-a-catastrophy.tumblr.com/post/645768592097427456](https://t.me/ferretman/994)
+- [MediaBlepvia Ferret Story https://scrisoridemai.tumblr.com/post/645764769576566784](https://t.me/ferretman/993)
+- [Mediamoggs broke…via Ferret Story https://prettypeterparkr.tumblr.com/post/645764769572339712](https://t.me/ferretman/992)
 - [liftlikebrittany:Sometimes you fall off the wagon for months. Sometimes you tell yourself you’re gonna start fresh on Monday and by Wednesday you’ve...](https://t.me/ferretman/991)
-- [Mediaterriblerealestateagentphotos:If that thing gets accidentally hoovered up it could damage the vacuum cleaner.via Ferret Story https://somewhere-i...](https://t.me/ferretman/990)
-- [Mediaacoolguy:foosili:confyMediavia Ferret Story https://redzgn.tumblr.com/post/645753554944016384](https://t.me/ferretman/989)
-- [MediaCyrano used to fall asleep in my purse after a day out. You are missed and loved 🤍via Ferret Story https://babyiwannaknow.tumblr.com/post/6457...](https://t.me/ferretman/988)
-- [MediaMediawellthatsadorable:thefrogman:[video]Only click through to that video if you want your life to light up and be filled with joy.via Ferret Sto...](https://t.me/ferretman/987)
 <!-- TELEGRAM:END -->
