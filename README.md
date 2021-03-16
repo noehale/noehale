@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://just-a-catastrophy....](https://t.me/ferretman/985)
-- [MediaWhat was that!?via Ferret Story https://scrisoridemai.tumblr.com/post/645734566255083520](https://t.me/ferretman/984)
-- [thelifeofmyferrets:MediaDucky is freaking out!via Ferret Story https://prettypeterparkr.tumblr.com/post/645734547742457856](https://t.me/ferretman/983)
-- [Mediamoriartystayingalive:orangejuiceblogging:moriartystayingalive:My Irish friend didn’t believe me when I told him that in Florida there is literal...](https://t.me/ferretman/982)
-- [<a href="https://64.media.tumblr.com/06e5e3e23e49f988cbca247770f57922/tumblr_n5dm2lHLvT1qav3uso1_500.gifv">Media</a><a href="https://64.media.tumblr.c...](https://t.me/ferretman/981)
+- [liftlikebrittany:Sometimes you fall off the wagon for months. Sometimes you tell yourself you’re gonna start fresh on Monday and by Wednesday you’ve...](https://t.me/ferretman/991)
+- [Mediaterriblerealestateagentphotos:If that thing gets accidentally hoovered up it could damage the vacuum cleaner.via Ferret Story https://somewhere-i...](https://t.me/ferretman/990)
+- [Mediaacoolguy:foosili:confyMediavia Ferret Story https://redzgn.tumblr.com/post/645753554944016384](https://t.me/ferretman/989)
+- [MediaCyrano used to fall asleep in my purse after a day out. You are missed and loved 🤍via Ferret Story https://babyiwannaknow.tumblr.com/post/6457...](https://t.me/ferretman/988)
+- [MediaMediawellthatsadorable:thefrogman:[video]Only click through to that video if you want your life to light up and be filled with joy.via Ferret Sto...](https://t.me/ferretman/987)
 <!-- TELEGRAM:END -->
