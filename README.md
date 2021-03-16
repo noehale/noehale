@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [bob-artist:The #1 fun thing to do to a pointy ferret face.](https://come-forth-into-the-light.tumblr.com/post/645828961850490880)
 - [Merry Christmas from Gromit :)](https://come-forth-into-the-light.tumblr.com/post/645806284157992960)
 - [I hope you’re all this comfortable during the holiday season.](https://come-forth-into-the-light.tumblr.com/post/645761043290882048)
 - [bob-artist:“You wanna go crazy?”Kit politely asks me to play...](https://come-forth-into-the-light.tumblr.com/post/645738322306744320)
 - [I looked over to see what they were doing and I see this](https://come-forth-into-the-light.tumblr.com/post/645715659617075200)
-- [The only way I want to enter the new year is while holding a...](https://come-forth-into-the-light.tumblr.com/post/645674145419493376)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
