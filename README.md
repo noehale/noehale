@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [perpetualvelocity:becausebirds:“My parrot is a squeaky toy”   [via Facebook]This is the only thing you need to teach a birdvia Ferret Story https:/...](https://t.me/ferretman/997)
+- [egberts:where can i buy that for freevia Ferret Story https://punkrocknat.tumblr.com/post/645802490802192384](https://t.me/ferretman/996)
 - [princvsx:anonymously (or not) ask me any question you’d like to know about mevia Ferret Story https://punkrocknat.tumblr.com/post/645772282910900224](https://t.me/ferretman/995)
 - [MediaSnuggle blissvia Ferret Story https://just-a-catastrophy.tumblr.com/post/645768592097427456](https://t.me/ferretman/994)
 - [MediaBlepvia Ferret Story https://scrisoridemai.tumblr.com/post/645764769576566784](https://t.me/ferretman/993)
-- [Mediamoggs broke…via Ferret Story https://prettypeterparkr.tumblr.com/post/645764769572339712](https://t.me/ferretman/992)
-- [liftlikebrittany:Sometimes you fall off the wagon for months. Sometimes you tell yourself you’re gonna start fresh on Monday and by Wednesday you’ve...](https://t.me/ferretman/991)
 <!-- TELEGRAM:END -->
