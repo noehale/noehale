@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSS Paisley hard at work : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/645900642822619136](https://t.me/ferretman/1017)
-- [MediaBuck hated the tactical vest. Lol : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645893066898784257](https://t.me/ferretman/1016)
-- [Mediaborlax:now this is what Im talkin about via Ferret Story https://punkrocknat.tumblr.com/post/645862911201427456](https://t.me/ferretman/1015)
-- [MediaI can’t think of anything better to see to start my day.via Ferret Story https://just-a-catastrophy.tumblr.com/post/645859168202457088](https://t.me/ferretman/1014)
-- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1013)
+- [MediaMy boys making a heartvia Ferret Story https://prettypeterparkr.tumblr.com/post/645915765017575424](https://t.me/ferretman/1023)
+- [MediaShe dose this every time I make them food.via Ferret Story https://scrisoridemai.tumblr.com/post/645915731258671104](https://t.me/ferretman/1022)
+- [lepidopterium:HmMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/645911957718892545](https://t.me/ferretman/1021)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645904493664485376](https://t.me/ferretman/1020)
+- [MediaBailey cleaning up a bit : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645904435140345856](https://t.me/ferretman/1019)
 <!-- TELEGRAM:END -->
