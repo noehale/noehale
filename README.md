@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [princvsx:anonymously (or not) ask me any question you’d like to know about mevia Ferret Story https://punkrocknat.tumblr.com/post/645772282910900224](https://t.me/ferretman/995)
-- [MediaSnuggle blissvia Ferret Story https://just-a-catastrophy.tumblr.com/post/645768592097427456](https://t.me/ferretman/994)
-- [MediaBlepvia Ferret Story https://scrisoridemai.tumblr.com/post/645764769576566784](https://t.me/ferretman/993)
-- [Mediamoggs broke…via Ferret Story https://prettypeterparkr.tumblr.com/post/645764769572339712](https://t.me/ferretman/992)
-- [liftlikebrittany:Sometimes you fall off the wagon for months. Sometimes you tell yourself you’re gonna start fresh on Monday and by Wednesday you’ve...](https://t.me/ferretman/991)
+- [“I will end… with a little scene that took place in the last months of peace. They were the most terrible months of my life, for, helplessly and hop...](https://t.me/ferretman/1011)
+- [MediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/645844140904660992](https://t.me/ferretman/1010)
+- [unpretty:unpretty:solitarelee:maxheimer:royallyanxious:unpretty:burning-mind:flawlessglamazon:unpretty:unpretty:unpretty:i turned on the light in the ...](https://t.me/ferretman/1009)
+- [Mediascottlava:“For Wakanda? Without Question.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645844123699544064](https://t.me/ferretman/1008)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645844067700359168](https://t.me/ferretman/1007)
 <!-- TELEGRAM:END -->
