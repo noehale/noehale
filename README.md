@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaborlax:now this is what Im talkin about via Ferret Story https://punkrocknat.tumblr.com/post/645862911201427456](https://t.me/ferretman/1015)
-- [MediaI can’t think of anything better to see to start my day.via Ferret Story https://just-a-catastrophy.tumblr.com/post/645859168202457088](https://t.me/ferretman/1014)
-- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1013)
-- [thelifeofmyferrets:MediaDucky’s First Christmas as a little man.via Ferret Story https://prettypeterparkr.tumblr.com/post/645855339447713792](https://t.me/ferretman/1012)
 - [“I will end… with a little scene that took place in the last months of peace. They were the most terrible months of my life, for, helplessly and hop...](https://t.me/ferretman/1011)
+- [MediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/645844140904660992](https://t.me/ferretman/1010)
+- [unpretty:unpretty:solitarelee:maxheimer:royallyanxious:unpretty:burning-mind:flawlessglamazon:unpretty:unpretty:unpretty:i turned on the light in the ...](https://t.me/ferretman/1009)
+- [Mediascottlava:“For Wakanda? Without Question.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645844123699544064](https://t.me/ferretman/1008)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645844067700359168](https://t.me/ferretman/1007)
 <!-- TELEGRAM:END -->
