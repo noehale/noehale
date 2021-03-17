@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [bob-artist:No April Fool’s jokes this year.  Just a fool.](https://come-forth-into-the-light.tumblr.com/post/645919549639753729)
 - [The Stinky Dab](https://come-forth-into-the-light.tumblr.com/post/645896858113376258)
 - [Ferret I drew with my dip pen.](https://come-forth-into-the-light.tumblr.com/post/645851585298235392)
 - [bob-artist:The #1 fun thing to do to a pointy ferret face.](https://come-forth-into-the-light.tumblr.com/post/645828961850490880)
 - [Merry Christmas from Gromit :)](https://come-forth-into-the-light.tumblr.com/post/645806284157992960)
-- [I hope you’re all this comfortable during the holiday season.](https://come-forth-into-the-light.tumblr.com/post/645761043290882048)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
