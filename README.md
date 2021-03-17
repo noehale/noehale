@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSS Paisley hard at work : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/645900642822619136](https://t.me/ferretman/1017)
-- [MediaBuck hated the tactical vest. Lol : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/645893066898784257](https://t.me/ferretman/1016)
 - [Mediaborlax:now this is what Im talkin about via Ferret Story https://punkrocknat.tumblr.com/post/645862911201427456](https://t.me/ferretman/1015)
 - [MediaI can’t think of anything better to see to start my day.via Ferret Story https://just-a-catastrophy.tumblr.com/post/645859168202457088](https://t.me/ferretman/1014)
 - [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1013)
+- [thelifeofmyferrets:MediaDucky’s First Christmas as a little man.via Ferret Story https://prettypeterparkr.tumblr.com/post/645855339447713792](https://t.me/ferretman/1012)
+- [“I will end… with a little scene that took place in the last months of peace. They were the most terrible months of my life, for, helplessly and hop...](https://t.me/ferretman/1011)
 <!-- TELEGRAM:END -->
