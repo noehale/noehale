@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [tiktokarchive:via Ferret Story https://punkrocknat.tumblr.com/post/645953503650562048](https://t.me/ferretman/1034)
-- [misioandkinga:🙈via Ferret Story https://just-a-catastrophy.tumblr.com/post/645949759324078080](https://t.me/ferretman/1033)
-- [MediaMediaMediawarriormale:warriormale:Say hello to Burger King!A follower on Twitter drew me and Burger King together.Train and fight!WarriorMaleOne ...](https://t.me/ferretman/1032)
-- [thenatsdorf:“I’m coming for ya…[sploot] eh, nevermind” (via themodernferret)via Ferret Story https://prettypeterparkr.tumblr.com/post/64594597874...](https://t.me/ferretman/1031)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediafoodfightme:awesome-picz:Dangerous Dogs Behind “Beware Of Dog” Signs.Joey has killed more than you can ...](https://t.me/ferretman/1030)
+- [MediaMedianymphdomi:andy065:Fuck your house.OMG I’m dyingvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645995096562647040](https://t.me/ferretman/1040)
+- [<a href="https://greekgods.tumblr.com/post/619659812311007232/ways-to-help-protestors-if-you-are-unable-to">greekgods:everybody has to do their part. ...](https://t.me/ferretman/1039)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645995055122890752](https://t.me/ferretman/1038)
+- [MediaAll five of our furry babies eating duck soup : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645995038672814080](https://t.me/ferretman/1037)
+- [Medianemertea:vaginacore:A Fin whale carcass the bears have been feeding on for the past year lies beneath the surface of the water, Svalbard, Norway....](https://t.me/ferretman/1036)
 <!-- TELEGRAM:END -->
