@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediapersitentmanlyagitation:c-orgiis:catwithbenefits:benepla:bumblebeebats:MediaMediaMediaMediaARE YOU FUCKING KIDDING MEvia Ferret Story https://xxc...](https://t.me/ferretman/1025)
-- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://just-a-catastrophy.tumblr.com/post/645919550170398720](https://t.me/ferretman/1024)
-- [MediaMy boys making a heartvia Ferret Story https://prettypeterparkr.tumblr.com/post/645915765017575424](https://t.me/ferretman/1023)
-- [MediaShe dose this every time I make them food.via Ferret Story https://scrisoridemai.tumblr.com/post/645915731258671104](https://t.me/ferretman/1022)
-- [lepidopterium:HmMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/645911957718892545](https://t.me/ferretman/1021)
+- [misioandkinga:🙈via Ferret Story https://just-a-catastrophy.tumblr.com/post/645949759324078080](https://t.me/ferretman/1033)
+- [MediaMediaMediawarriormale:warriormale:Say hello to Burger King!A follower on Twitter drew me and Burger King together.Train and fight!WarriorMaleOne ...](https://t.me/ferretman/1032)
+- [thenatsdorf:“I’m coming for ya…[sploot] eh, nevermind” (via themodernferret)via Ferret Story https://prettypeterparkr.tumblr.com/post/64594597874...](https://t.me/ferretman/1031)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediafoodfightme:awesome-picz:Dangerous Dogs Behind “Beware Of Dog” Signs.Joey has killed more than you can ...](https://t.me/ferretman/1030)
+- [Mediai just think everyone deserves to see this video of my ferret going down the stairs… that’s all : ferretsvia Ferret Story https://falalamingo.t...](https://t.me/ferretman/1029)
 <!-- TELEGRAM:END -->
