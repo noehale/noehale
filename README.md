@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [trapperweasel:trans-boy-keith:carbisari:teddiursam:KidnappedTaken@trapperweasel boogeyman ferretHe took him to his dark lair! via Ferret Story https:...](https://t.me/ferretman/1044)
+- [catsindoors:“Am I a bad pet owner?”In my opinion what makes a bad pet owner is not what we’ve done, we all start somewhere, we all make mistakes. N...](https://t.me/ferretman/1043)
+- [thelifeofmyferrets:No matter how careful we think we are, accidents will happen.Ferrets: where there is a will, there is a way.Ferret proofing is a ne...](https://t.me/ferretman/1042)
+- [Mediajonbutter:jonbutter:reblog this to have a Happy Wildcat New Year™not enough people reblogged this last year we gotta really try this time to hav...](https://t.me/ferretman/1041)
 - [MediaMedianymphdomi:andy065:Fuck your house.OMG I’m dyingvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645995096562647040](https://t.me/ferretman/1040)
-- [<a href="https://greekgods.tumblr.com/post/619659812311007232/ways-to-help-protestors-if-you-are-unable-to">greekgods:everybody has to do their part. ...](https://t.me/ferretman/1039)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645995055122890752](https://t.me/ferretman/1038)
-- [MediaAll five of our furry babies eating duck soup : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645995038672814080](https://t.me/ferretman/1037)
-- [Medianemertea:vaginacore:A Fin whale carcass the bears have been feeding on for the past year lies beneath the surface of the water, Svalbard, Norway....](https://t.me/ferretman/1036)
 <!-- TELEGRAM:END -->
