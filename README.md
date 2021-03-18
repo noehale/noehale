@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediapersitentmanlyagitation:c-orgiis:catwithbenefits:benepla:bumblebeebats:MediaMediaMediaMediaARE YOU FUCKING KIDDING MEvia Ferret Story https://xxc...](https://t.me/ferretman/1025)
+- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://just-a-catastrophy.tumblr.com/post/645919550170398720](https://t.me/ferretman/1024)
 - [MediaMy boys making a heartvia Ferret Story https://prettypeterparkr.tumblr.com/post/645915765017575424](https://t.me/ferretman/1023)
 - [MediaShe dose this every time I make them food.via Ferret Story https://scrisoridemai.tumblr.com/post/645915731258671104](https://t.me/ferretman/1022)
 - [lepidopterium:HmMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/645911957718892545](https://t.me/ferretman/1021)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/645904493664485376](https://t.me/ferretman/1020)
-- [MediaBailey cleaning up a bit : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/645904435140345856](https://t.me/ferretman/1019)
 <!-- TELEGRAM:END -->
