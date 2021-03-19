@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaPEEK-A-NOO : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646081835676434433](https://t.me/ferretman/1056)
-- [i-am-fert:den-father:fawkes-y:ferretsoftiktok:@clockworkapostleSomeone who knows ferrets, explain what this creature is doingoh! i can explane!the sti...](https://t.me/ferretman/1055)
-- [peri-space-dorito:thesewomenrulemyworld:phils-mum-and-llama-placentas:bangtidyniall:I HEAR THOSE SLEIGH BELLS JINGLINGimageRING TING TINGLING TOOOOOOO...](https://t.me/ferretman/1054)
-- [MediaHey everyone! Olive Studio Au made this super cute ferret plate and I thought you’d all appreciate. There’s a giveaway on our Instagram incase ...](https://t.me/ferretman/1053)
-- [thatweirdferretlady:foxgal:bugpussy:foxgal:hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAAMediashut upMediaAlways reblogvia Ferret Story https://scrisoride...](https://t.me/ferretman/1052)
+- [MediaMediariasteria:Leiden (Netherlands) in the mist.via Ferret Story https://just-a-catastrophy.tumblr.com/post/646100726902341632](https://t.me/ferretman/1064)
+- [MediaSurprise in my drawervia Ferret Story https://scrisoridemai.tumblr.com/post/646096945539072000](https://t.me/ferretman/1063)
+- [bob-artist:“You wanna go crazy?”Kit politely asks me to play with him.  Our morning ritual is tea and flailing.via Ferret Story https://prettypeter...](https://t.me/ferretman/1062)
+- [MediaMediadouglaswolk:Corvids, man.via Ferret Story https://anasfalhhhs.tumblr.com/post/646093161301753856](https://t.me/ferretman/1061)
+- [Mediajohnnycheeseburger:mevia Ferret Story https://falalamingo.tumblr.com/post/646085691536736256](https://t.me/ferretman/1060)
 <!-- TELEGRAM:END -->
