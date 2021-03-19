@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Media“Sup?” -Talbit (probably) : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646025283547398144](https://t.me/ferretman/1049)
-- [MediaMediachocolate1721:servicek9s:thatincompetentperson:starspangledscarf:fooshfoosh:janedoodles:gilboron:Story idea when you try to actually write i...](https://t.me/ferretman/1048)
-- [Mediavictoriascanlonw:my mom took this nearly 10 years ago. she was outside and just happened to have her camera when some newlyweds went by on a bicy...](https://t.me/ferretman/1047)
-- [MediaIt’s a hard knock life for usvia Ferret Story https://babyiwannaknow.tumblr.com/post/646025251987259393](https://t.me/ferretman/1046)
-- [Mediagallusrostromegalus:sh8-bit-angora:needthisbook:Ten Major Artists:Wong Wong & Lu LuWong Wong & LuluPepper gazing into the mirror before a self-po...](https://t.me/ferretman/1045)
+- [MediaPEEK-A-NOO : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646081835676434433](https://t.me/ferretman/1056)
+- [i-am-fert:den-father:fawkes-y:ferretsoftiktok:@clockworkapostleSomeone who knows ferrets, explain what this creature is doingoh! i can explane!the sti...](https://t.me/ferretman/1055)
+- [peri-space-dorito:thesewomenrulemyworld:phils-mum-and-llama-placentas:bangtidyniall:I HEAR THOSE SLEIGH BELLS JINGLINGimageRING TING TINGLING TOOOOOOO...](https://t.me/ferretman/1054)
+- [MediaHey everyone! Olive Studio Au made this super cute ferret plate and I thought you’d all appreciate. There’s a giveaway on our Instagram incase ...](https://t.me/ferretman/1053)
+- [thatweirdferretlady:foxgal:bugpussy:foxgal:hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAAMediashut upMediaAlways reblogvia Ferret Story https://scrisoride...](https://t.me/ferretman/1052)
 <!-- TELEGRAM:END -->
