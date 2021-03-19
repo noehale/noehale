@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [trapperweasel:trans-boy-keith:carbisari:teddiursam:KidnappedTaken@trapperweasel boogeyman ferretHe took him to his dark lair! via Ferret Story https:...](https://t.me/ferretman/1044)
-- [catsindoors:“Am I a bad pet owner?”In my opinion what makes a bad pet owner is not what we’ve done, we all start somewhere, we all make mistakes. N...](https://t.me/ferretman/1043)
-- [thelifeofmyferrets:No matter how careful we think we are, accidents will happen.Ferrets: where there is a will, there is a way.Ferret proofing is a ne...](https://t.me/ferretman/1042)
-- [Mediajonbutter:jonbutter:reblog this to have a Happy Wildcat New Year™not enough people reblogged this last year we gotta really try this time to hav...](https://t.me/ferretman/1041)
-- [MediaMedianymphdomi:andy065:Fuck your house.OMG I’m dyingvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/645995096562647040](https://t.me/ferretman/1040)
+- [Media“Sup?” -Talbit (probably) : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646025283547398144](https://t.me/ferretman/1049)
+- [MediaMediachocolate1721:servicek9s:thatincompetentperson:starspangledscarf:fooshfoosh:janedoodles:gilboron:Story idea when you try to actually write i...](https://t.me/ferretman/1048)
+- [Mediavictoriascanlonw:my mom took this nearly 10 years ago. she was outside and just happened to have her camera when some newlyweds went by on a bicy...](https://t.me/ferretman/1047)
+- [MediaIt’s a hard knock life for usvia Ferret Story https://babyiwannaknow.tumblr.com/post/646025251987259393](https://t.me/ferretman/1046)
+- [Mediagallusrostromegalus:sh8-bit-angora:needthisbook:Ten Major Artists:Wong Wong & Lu LuWong Wong & LuluPepper gazing into the mirror before a self-po...](https://t.me/ferretman/1045)
 <!-- TELEGRAM:END -->
