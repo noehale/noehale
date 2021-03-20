@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thatweirdferretlady:Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646134714436026369](https://t.me/ferretman/1074)
-- [squidpop: thejazzykittykat: verbivore8642: brigwife: kidouyuuto: how did they learn to translate...via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/1073)
-- [axe-fx:babyanimalgifs:I don’t know what’s funnier.. the baby elephant chasing the birds, or when he fell and ran to his mom xD@nectarinerdvia Ferret...](https://t.me/ferretman/1072)
-- [vferret:MediaMediaMediaMediaA little forest spirit 🌲 🌟via Ferret Story https://scrisoridemai.tumblr.com/post/646127116763709440](https://t.me/ferretman/1071)
-- [miss-chicken:MediaMediaMediaMediaMediatchaikovskaya:sometimes its just like *street lights reflecting off the wet asphalt at night* maybe life isnt so...](https://t.me/ferretman/1070)
+- [MediaMediadailyferret:by WabbyTwaxxvia Ferret Story https://babyiwannaknow.tumblr.com/post/646115916878331904](https://t.me/ferretman/1069)
+- [skatle-skootle-demon-noodle:two-cats-in-a-trench-coat:ultimatebottom69:sleepy-sphinx:hclark70:fuckyeahchinesefashion:©一边航来一遍拍MediaWATCH TILL T...](https://t.me/ferretman/1068)
+- [MediaSnuggle time during lunch break! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646115834247462912](https://t.me/ferretman/1067)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/646115834241089536](https://t.me/ferretman/1066)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/646112105018408960](https://t.me/ferretman/1065)
 <!-- TELEGRAM:END -->
