@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [peri-space-dorito:thesewomenrulemyworld:phils-mum-and-llama-placentas:bangtidyniall:I HEAR THOSE SLEIGH BELLS JINGLINGimageRING TING TINGLING TOOOOOOO...](https://t.me/ferretman/1054)
-- [MediaHey everyone! Olive Studio Au made this super cute ferret plate and I thought you’d all appreciate. There’s a giveaway on our Instagram incase ...](https://t.me/ferretman/1053)
-- [thatweirdferretlady:foxgal:bugpussy:foxgal:hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAAMediashut upMediaAlways reblogvia Ferret Story https://scrisoride...](https://t.me/ferretman/1052)
-- [MediaPost-bath time zoomiesvia Ferret Story https://prettypeterparkr.tumblr.com/post/646036592118661120](https://t.me/ferretman/1051)
-- [Mediahaomin0:明けましておめでとうございます。今年もうちのいたちをよろしくお願いします。via Ferret Story https://anasfalhhhs.tumblr.com/post/6460327594...](https://t.me/ferretman/1050)
+- [thatweirdferretlady:Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646134714436026369](https://t.me/ferretman/1074)
+- [squidpop: thejazzykittykat: verbivore8642: brigwife: kidouyuuto: how did they learn to translate...via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/1073)
+- [axe-fx:babyanimalgifs:I don’t know what’s funnier.. the baby elephant chasing the birds, or when he fell and ran to his mom xD@nectarinerdvia Ferret...](https://t.me/ferretman/1072)
+- [vferret:MediaMediaMediaMediaA little forest spirit 🌲 🌟via Ferret Story https://scrisoridemai.tumblr.com/post/646127116763709440](https://t.me/ferretman/1071)
+- [miss-chicken:MediaMediaMediaMediaMediatchaikovskaya:sometimes its just like *street lights reflecting off the wet asphalt at night* maybe life isnt so...](https://t.me/ferretman/1070)
 <!-- TELEGRAM:END -->
