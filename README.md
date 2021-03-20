@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [vet-and-wild:Look at this little hoarder](https://come-forth-into-the-light.tumblr.com/post/646191385765199872)
 - [My Christmas present was my baby’s surgery going well. We even...](https://come-forth-into-the-light.tumblr.com/post/646168643106947072)
 - [Caramel 💚](https://come-forth-into-the-light.tumblr.com/post/646123431627227136)
 - [christmas ferret](https://come-forth-into-the-light.tumblr.com/post/646100725974319105)
 - [mallgothsapphic:reaction images!💖like or rb if you use please!💖](https://come-forth-into-the-light.tumblr.com/post/646078073809354752)
-- [Meet Smith & Wesson](https://come-forth-into-the-light.tumblr.com/post/646032759147593728)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
