@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediariasteria:Leiden (Netherlands) in the mist.via Ferret Story https://just-a-catastrophy.tumblr.com/post/646100726902341632](https://t.me/ferretman/1064)
-- [MediaSurprise in my drawervia Ferret Story https://scrisoridemai.tumblr.com/post/646096945539072000](https://t.me/ferretman/1063)
-- [bob-artist:“You wanna go crazy?”Kit politely asks me to play with him.  Our morning ritual is tea and flailing.via Ferret Story https://prettypeter...](https://t.me/ferretman/1062)
-- [MediaMediadouglaswolk:Corvids, man.via Ferret Story https://anasfalhhhs.tumblr.com/post/646093161301753856](https://t.me/ferretman/1061)
-- [Mediajohnnycheeseburger:mevia Ferret Story https://falalamingo.tumblr.com/post/646085691536736256](https://t.me/ferretman/1060)
+- [MediaMediadailyferret:by WabbyTwaxxvia Ferret Story https://babyiwannaknow.tumblr.com/post/646115916878331904](https://t.me/ferretman/1069)
+- [skatle-skootle-demon-noodle:two-cats-in-a-trench-coat:ultimatebottom69:sleepy-sphinx:hclark70:fuckyeahchinesefashion:©一边航来一遍拍MediaWATCH TILL T...](https://t.me/ferretman/1068)
+- [MediaSnuggle time during lunch break! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646115834247462912](https://t.me/ferretman/1067)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/646115834241089536](https://t.me/ferretman/1066)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/646112105018408960](https://t.me/ferretman/1065)
 <!-- TELEGRAM:END -->
