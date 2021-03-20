@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMy boy Oscar! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646164888204541952](https://t.me/ferretman/1075)
 - [thatweirdferretlady:Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646134714436026369](https://t.me/ferretman/1074)
 - [squidpop: thejazzykittykat: verbivore8642: brigwife: kidouyuuto: how did they learn to translate...via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/1073)
 - [axe-fx:babyanimalgifs:I don’t know what’s funnier.. the baby elephant chasing the birds, or when he fell and ran to his mom xD@nectarinerdvia Ferret...](https://t.me/ferretman/1072)
 - [vferret:MediaMediaMediaMediaA little forest spirit 🌲 🌟via Ferret Story https://scrisoridemai.tumblr.com/post/646127116763709440](https://t.me/ferretman/1071)
-- [miss-chicken:MediaMediaMediaMediaMediatchaikovskaya:sometimes its just like *street lights reflecting off the wet asphalt at night* maybe life isnt so...](https://t.me/ferretman/1070)
 <!-- TELEGRAM:END -->
