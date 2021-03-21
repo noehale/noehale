@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFerret Down! Abort! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646225300436467712](https://t.me/ferretman/1094)
-- [MediaTonka’s spazzesvia Ferret Story https://just-a-catastrophy.tumblr.com/post/646221558310912000](https://t.me/ferretman/1093)
-- [toktiks:by @ friendlyquest on tiktokvia Ferret Story https://scrisoridemai.tumblr.com/post/646217755191803904](https://t.me/ferretman/1092)
-- [Mediabob-artist:That is not his food bowl.He knocked over the recycling bin in the kitchen, pulled that random black container out of the kitchen and ...](https://t.me/ferretman/1091)
-- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1090)
+- [laughingnancy:“I CANT BREATHE” i typed as i breathed via Ferret Story https://just-a-catastrophy.tumblr.com/post/646281911335026689](https://t.me/ferretman/1104)
+- [thatweirdferretlady:thnksfrthmania:saintmilady:pearlisapear:crazysenji:Just so you all know..This blog is 100% anti PETA.We love our vegetarian and ve...](https://t.me/ferretman/1103)
+- [thelifeofmyferrets:Lucy stole my hairbrushvia Ferret Story https://prettypeterparkr.tumblr.com/post/646278147814424576](https://t.me/ferretman/1102)
+- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1101)
+- [MediaAppa almost forgot to take his meds! 💊 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646266837370273792](https://t.me/ferretman/1100)
 <!-- TELEGRAM:END -->
