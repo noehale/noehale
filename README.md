@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWelcome home Baby Bowser : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646202724023664640](https://t.me/ferretman/1085)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/646191345203101696](https://t.me/ferretman/1084)
 - [MediaMediahis-shining-tears:You are what you eat.via Ferret Story https://scrisoridemai.tumblr.com/post/646187544346787840](https://t.me/ferretman/1083)
 - [Medialori-em:She looks like a murderer but man that’s hot.via Ferret Story https://prettypeterparkr.tumblr.com/post/646187528275329024](https://t.me/ferretman/1082)
 - [titaniagigante:soundssimpleright:3go:i downloaded this god damn episode just so everyone could watch this fukkin clipThe feedback bit is inspired.Keeg...](https://t.me/ferretman/1081)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Pride Bird PlushiesYinza on Etsyvia Ferret Story https://somewhere-inthe-deepdetails....](https://t.me/ferretman/1080)
+- [MediaJust wanted to share my noodle Frida in her fabulous pose 🐾 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646176219291877376](https://t.me/ferretman/1079)
 <!-- TELEGRAM:END -->
