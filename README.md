@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [toktiks:by @ friendlyquest on tiktokvia Ferret Story https://scrisoridemai.tumblr.com/post/646217755191803904](https://t.me/ferretman/1092)
-- [Mediabob-artist:That is not his food bowl.He knocked over the recycling bin in the kitchen, pulled that random black container out of the kitchen and ...](https://t.me/ferretman/1091)
-- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1090)
-- [MediaRoz is on laxatives for a blockage and will require another X-ray and exam in 2 weeks to check both the blockage progress and a stone in her uret...](https://t.me/ferretman/1089)
-- [MediaMy boy Shelby has an s-shaped birthmark on his belly : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646206492609069056](https://t.me/ferretman/1088)
+- [MediaWelcome home Baby Bowser : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646202724023664640](https://t.me/ferretman/1085)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/646191345203101696](https://t.me/ferretman/1084)
+- [MediaMediahis-shining-tears:You are what you eat.via Ferret Story https://scrisoridemai.tumblr.com/post/646187544346787840](https://t.me/ferretman/1083)
+- [Medialori-em:She looks like a murderer but man that’s hot.via Ferret Story https://prettypeterparkr.tumblr.com/post/646187528275329024](https://t.me/ferretman/1082)
+- [titaniagigante:soundssimpleright:3go:i downloaded this god damn episode just so everyone could watch this fukkin clipThe feedback bit is inspired.Keeg...](https://t.me/ferretman/1081)
 <!-- TELEGRAM:END -->
