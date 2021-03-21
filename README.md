@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediahis-shining-tears:You are what you eat.via Ferret Story https://scrisoridemai.tumblr.com/post/646187544346787840](https://t.me/ferretman/1083)
-- [Medialori-em:She looks like a murderer but man that’s hot.via Ferret Story https://prettypeterparkr.tumblr.com/post/646187528275329024](https://t.me/ferretman/1082)
-- [titaniagigante:soundssimpleright:3go:i downloaded this god damn episode just so everyone could watch this fukkin clipThe feedback bit is inspired.Keeg...](https://t.me/ferretman/1081)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Pride Bird PlushiesYinza on Etsyvia Ferret Story https://somewhere-inthe-deepdetails....](https://t.me/ferretman/1080)
-- [MediaJust wanted to share my noodle Frida in her fabulous pose 🐾 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646176219291877376](https://t.me/ferretman/1079)
+- [thatweirdferretlady:Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646134714436026369](https://t.me/ferretman/1074)
+- [squidpop: thejazzykittykat: verbivore8642: brigwife: kidouyuuto: how did they learn to translate...via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/1073)
+- [axe-fx:babyanimalgifs:I don’t know what’s funnier.. the baby elephant chasing the birds, or when he fell and ran to his mom xD@nectarinerdvia Ferret...](https://t.me/ferretman/1072)
+- [vferret:MediaMediaMediaMediaA little forest spirit 🌲 🌟via Ferret Story https://scrisoridemai.tumblr.com/post/646127116763709440](https://t.me/ferretman/1071)
+- [miss-chicken:MediaMediaMediaMediaMediatchaikovskaya:sometimes its just like *street lights reflecting off the wet asphalt at night* maybe life isnt so...](https://t.me/ferretman/1070)
 <!-- TELEGRAM:END -->
