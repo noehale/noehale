@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaAppa almost forgot to take his meds! 💊 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646266837370273792](https://t.me/ferretman/1100)
-- [MediaSleepy man, Rocket 🥺 he looks so comfy 💖 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646266815412060162](https://t.me/ferretman/1099)
-- [Mediamikayla-conley:Landscapevia Ferret Story https://redzgn.tumblr.com/post/646266815410061312](https://t.me/ferretman/1098)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/646266814540775424](https://t.me/ferretman/1097)
-- [MediaFarouk, in all his chonky glory. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646263047142408192](https://t.me/ferretman/1096)
+- [MediaFerret Down! Abort! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646225300436467712](https://t.me/ferretman/1094)
+- [MediaTonka’s spazzesvia Ferret Story https://just-a-catastrophy.tumblr.com/post/646221558310912000](https://t.me/ferretman/1093)
+- [toktiks:by @ friendlyquest on tiktokvia Ferret Story https://scrisoridemai.tumblr.com/post/646217755191803904](https://t.me/ferretman/1092)
+- [Mediabob-artist:That is not his food bowl.He knocked over the recycling bin in the kitchen, pulled that random black container out of the kitchen and ...](https://t.me/ferretman/1091)
+- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1090)
 <!-- TELEGRAM:END -->
