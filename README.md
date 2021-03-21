@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [laughingnancy:“I CANT BREATHE” i typed as i breathed via Ferret Story https://just-a-catastrophy.tumblr.com/post/646281911335026689](https://t.me/ferretman/1104)
-- [thatweirdferretlady:thnksfrthmania:saintmilady:pearlisapear:crazysenji:Just so you all know..This blog is 100% anti PETA.We love our vegetarian and ve...](https://t.me/ferretman/1103)
-- [thelifeofmyferrets:Lucy stole my hairbrushvia Ferret Story https://prettypeterparkr.tumblr.com/post/646278147814424576](https://t.me/ferretman/1102)
-- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1101)
 - [MediaAppa almost forgot to take his meds! 💊 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646266837370273792](https://t.me/ferretman/1100)
+- [MediaSleepy man, Rocket 🥺 he looks so comfy 💖 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646266815412060162](https://t.me/ferretman/1099)
+- [Mediamikayla-conley:Landscapevia Ferret Story https://redzgn.tumblr.com/post/646266815410061312](https://t.me/ferretman/1098)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/646266814540775424](https://t.me/ferretman/1097)
+- [MediaFarouk, in all his chonky glory. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646263047142408192](https://t.me/ferretman/1096)
 <!-- TELEGRAM:END -->
