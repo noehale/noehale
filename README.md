@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thatweirdferretlady:Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646134714436026369](https://t.me/ferretman/1074)
-- [squidpop: thejazzykittykat: verbivore8642: brigwife: kidouyuuto: how did they learn to translate...via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/1073)
-- [axe-fx:babyanimalgifs:I don’t know what’s funnier.. the baby elephant chasing the birds, or when he fell and ran to his mom xD@nectarinerdvia Ferret...](https://t.me/ferretman/1072)
-- [vferret:MediaMediaMediaMediaA little forest spirit 🌲 🌟via Ferret Story https://scrisoridemai.tumblr.com/post/646127116763709440](https://t.me/ferretman/1071)
-- [miss-chicken:MediaMediaMediaMediaMediatchaikovskaya:sometimes its just like *street lights reflecting off the wet asphalt at night* maybe life isnt so...](https://t.me/ferretman/1070)
+- [toktiks:by @ friendlyquest on tiktokvia Ferret Story https://scrisoridemai.tumblr.com/post/646217755191803904](https://t.me/ferretman/1092)
+- [Mediabob-artist:That is not his food bowl.He knocked over the recycling bin in the kitchen, pulled that random black container out of the kitchen and ...](https://t.me/ferretman/1091)
+- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1090)
+- [MediaRoz is on laxatives for a blockage and will require another X-ray and exam in 2 weeks to check both the blockage progress and a stone in her uret...](https://t.me/ferretman/1089)
+- [MediaMy boy Shelby has an s-shaped birthmark on his belly : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646206492609069056](https://t.me/ferretman/1088)
 <!-- TELEGRAM:END -->
