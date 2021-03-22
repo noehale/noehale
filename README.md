@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [What a sweet♡](https://come-forth-into-the-light.tumblr.com/post/646372584148058112)
 - [He learnt how to sleep from us 😴](https://come-forth-into-the-light.tumblr.com/post/646349852850176000)
 - [I love my chuncy boy gus.](https://come-forth-into-the-light.tumblr.com/post/646304619740479488)
 - [Our little chonker Tazzy](https://come-forth-into-the-light.tumblr.com/post/646281950881087488)
 - [Where do I even begin with this photo](https://come-forth-into-the-light.tumblr.com/post/646259264294453249)
-- [Our baby Maple loves to play peekaboo in the couch](https://come-forth-into-the-light.tumblr.com/post/646213968522772480)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
