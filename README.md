@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [its-an-ear-hat-john:charlie-plaidbury:institutionalized-gaming:October can’t come soon enoughIT IS AUGUSTThis has been in my likes since last year. I...](https://t.me/ferretman/1115)
-- [via Ferret Story https://punkrocknat.tumblr.com/post/646315903275941888](https://t.me/ferretman/1114)
-- [Mediacardboardlamb:lymphonodge:earthlynation:(via Pine Marten coming out of drain! | Flickr - Photo Sharing!)hello girls good news from the sewerstrut...](https://t.me/ferretman/1113)
-- [theviscountconsett:connorkawaii:I love how humans have literally not changed throughout history like the graffiti from Pompeii has people from hundred...](https://t.me/ferretman/1112)
-- [MediaDon’t mind me… Just on a nice stroll with Goob and Daisy ☺️via Ferret Story https://scrisoridemai.tumblr.com/post/646308342841671680](https://t.me/ferretman/1111)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/646372515081519104](https://t.me/ferretman/1124)
+- [radical-rin:nunyabizni:Small forest spirit locatedI just let out a literal genuine gasp what a precious little beanvia Ferret Story https://scrisoride...](https://t.me/ferretman/1123)
+- [MediaSebastian’s last peek at me before his morning napvia Ferret Story https://prettypeterparkr.tumblr.com/post/646368762798456832](https://t.me/ferretman/1122)
+- [unpretty:unpretty:there was a golden age superman comic where someone called a hit out on clark kent, and so a sniper tried to shoot him while he was ...](https://t.me/ferretman/1121)
+- [Mediathatweirdferretlady:In case you’ve ever wondered….via Ferret Story https://babyiwannaknow.tumblr.com/post/646357531723169792](https://t.me/ferretman/1120)
 <!-- TELEGRAM:END -->
