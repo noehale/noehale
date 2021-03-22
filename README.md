@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [I love my chuncy boy gus.](https://come-forth-into-the-light.tumblr.com/post/646304619740479488)
 - [Our little chonker Tazzy](https://come-forth-into-the-light.tumblr.com/post/646281950881087488)
 - [Where do I even begin with this photo](https://come-forth-into-the-light.tumblr.com/post/646259264294453249)
 - [Our baby Maple loves to play peekaboo in the couch](https://come-forth-into-the-light.tumblr.com/post/646213968522772480)
 - [vet-and-wild:Look at this little hoarder](https://come-forth-into-the-light.tumblr.com/post/646191385765199872)
-- [My Christmas present was my baby’s surgery going well. We even...](https://come-forth-into-the-light.tumblr.com/post/646168643106947072)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
