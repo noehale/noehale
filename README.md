@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [its-an-ear-hat-john:charlie-plaidbury:institutionalized-gaming:October can’t come soon enoughIT IS AUGUSTThis has been in my likes since last year. I...](https://t.me/ferretman/1115)
-- [via Ferret Story https://punkrocknat.tumblr.com/post/646315903275941888](https://t.me/ferretman/1114)
-- [Mediacardboardlamb:lymphonodge:earthlynation:(via Pine Marten coming out of drain! | Flickr - Photo Sharing!)hello girls good news from the sewerstrut...](https://t.me/ferretman/1113)
-- [theviscountconsett:connorkawaii:I love how humans have literally not changed throughout history like the graffiti from Pompeii has people from hundred...](https://t.me/ferretman/1112)
-- [MediaDon’t mind me… Just on a nice stroll with Goob and Daisy ☺️via Ferret Story https://scrisoridemai.tumblr.com/post/646308342841671680](https://t.me/ferretman/1111)
+- [unpretty:unpretty:there was a golden age superman comic where someone called a hit out on clark kent, and so a sniper tried to shoot him while he was ...](https://t.me/ferretman/1121)
+- [Mediathatweirdferretlady:In case you’ve ever wondered….via Ferret Story https://babyiwannaknow.tumblr.com/post/646357531723169792](https://t.me/ferretman/1120)
+- [MediaTook our ferret outside for the first time today! Managed to get one good photo, so here you are, ! : ferretsvia Ferret Story https://falalamingo...](https://t.me/ferretman/1119)
+- [babblingfishes:inklesspen:falliblefabrial:acreaturecalledgreed:the concept and idea of “you can always start trying to be a better person” is extre...](https://t.me/ferretman/1118)
+- [mosticonicposts:pussylipgloss:thebeautysupplystore:sexybinch:sexybinch:thebeautysupplystore:Stop letting your heart and your pussy choose your men.I’...](https://t.me/ferretman/1117)
 <!-- TELEGRAM:END -->
