@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [laughingnancy:“I CANT BREATHE” i typed as i breathed via Ferret Story https://just-a-catastrophy.tumblr.com/post/646281911335026689](https://t.me/ferretman/1104)
-- [thatweirdferretlady:thnksfrthmania:saintmilady:pearlisapear:crazysenji:Just so you all know..This blog is 100% anti PETA.We love our vegetarian and ve...](https://t.me/ferretman/1103)
-- [thelifeofmyferrets:Lucy stole my hairbrushvia Ferret Story https://prettypeterparkr.tumblr.com/post/646278147814424576](https://t.me/ferretman/1102)
-- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1101)
-- [MediaAppa almost forgot to take his meds! 💊 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646266837370273792](https://t.me/ferretman/1100)
+- [Mediathe face of a floof who stuck his whole head in a cup of watervia Ferret Story https://babyiwannaknow.tumblr.com/post/646297126546112512](https://t.me/ferretman/1109)
+- [Mediareshipped:fit-beach-tea:fakesurgery:bente36:unclefather:can’t risk itTHIS PIECE OF PICTURE WORKS. Gotta take all the chances…..Never risk iti ...](https://t.me/ferretman/1108)
+- [Mediakaijuno:bitsow:4800 players, Beethoven’s 9th Symphony Speedrunits not even music anymore it’s just a shockwave that kills you instantlyvia Ferr...](https://t.me/ferretman/1107)
+- [mooncrickets:nnyas:MediaMediaMediaMediaI’m crying guys look a snail 🐌effervescentvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/p...](https://t.me/ferretman/1106)
+- [MediaIf looks could kill…. Introducing Stolas : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646293216849723392](https://t.me/ferretman/1105)
 <!-- TELEGRAM:END -->
