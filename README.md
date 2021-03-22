@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediathe face of a floof who stuck his whole head in a cup of watervia Ferret Story https://babyiwannaknow.tumblr.com/post/646297126546112512](https://t.me/ferretman/1109)
-- [Mediareshipped:fit-beach-tea:fakesurgery:bente36:unclefather:can’t risk itTHIS PIECE OF PICTURE WORKS. Gotta take all the chances…..Never risk iti ...](https://t.me/ferretman/1108)
-- [Mediakaijuno:bitsow:4800 players, Beethoven’s 9th Symphony Speedrunits not even music anymore it’s just a shockwave that kills you instantlyvia Ferr...](https://t.me/ferretman/1107)
-- [mooncrickets:nnyas:MediaMediaMediaMediaI’m crying guys look a snail 🐌effervescentvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/p...](https://t.me/ferretman/1106)
-- [MediaIf looks could kill…. Introducing Stolas : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646293216849723392](https://t.me/ferretman/1105)
+- [via Ferret Story https://punkrocknat.tumblr.com/post/646315903275941888](https://t.me/ferretman/1114)
+- [Mediacardboardlamb:lymphonodge:earthlynation:(via Pine Marten coming out of drain! | Flickr - Photo Sharing!)hello girls good news from the sewerstrut...](https://t.me/ferretman/1113)
+- [theviscountconsett:connorkawaii:I love how humans have literally not changed throughout history like the graffiti from Pompeii has people from hundred...](https://t.me/ferretman/1112)
+- [MediaDon’t mind me… Just on a nice stroll with Goob and Daisy ☺️via Ferret Story https://scrisoridemai.tumblr.com/post/646308342841671680](https://t.me/ferretman/1111)
+- [authorsmberry:Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/646304620904366080](https://t.me/ferretman/1110)
 <!-- TELEGRAM:END -->
