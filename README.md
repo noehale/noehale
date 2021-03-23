@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/646372515081519104](https://t.me/ferretman/1124)
-- [radical-rin:nunyabizni:Small forest spirit locatedI just let out a literal genuine gasp what a precious little beanvia Ferret Story https://scrisoride...](https://t.me/ferretman/1123)
-- [MediaSebastian’s last peek at me before his morning napvia Ferret Story https://prettypeterparkr.tumblr.com/post/646368762798456832](https://t.me/ferretman/1122)
-- [unpretty:unpretty:there was a golden age superman comic where someone called a hit out on clark kent, and so a sniper tried to shoot him while he was ...](https://t.me/ferretman/1121)
-- [Mediathatweirdferretlady:In case you’ve ever wondered….via Ferret Story https://babyiwannaknow.tumblr.com/post/646357531723169792](https://t.me/ferretman/1120)
+- [crow-with-anxiety:taraljc:whatareyoudoingferret:slice-o-cheesecake:NVM THEY BOTH LOVE ITWhat are you doing?I have no idea what’s going on but I just ...](https://t.me/ferretman/1132)
+- [MediaPeanut the protector of Dino 🦖 don’t even ask why I have a giant dinosaur in my window XDvia Ferret Story https://prettypeterparkr.tumblr.com...](https://t.me/ferretman/1131)
+- [gamsee:today this white girl asked me why my hair is so curly and i said im black and she told me to say african americanvia Ferret Story https://anas...](https://t.me/ferretman/1130)
+- [MediaIgloo + beanie hat = Ferret magnet : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646387643666644993](https://t.me/ferretman/1129)
+- [MediaHi guys im new to this sub and i like to present gorgeous Megara (Meg) full of noodle love and fluffvia Ferret Story https://somewhere-inthe-deep...](https://t.me/ferretman/1128)
 <!-- TELEGRAM:END -->
