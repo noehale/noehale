@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [justlgbtthings:mjalti:listen, when i go to open my mouth & what comes out is 12 degrees of seperation from what the original topic was, u need to conn...](https://t.me/ferretman/1135)
-- [MediaPlay time : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646406466806398976](https://t.me/ferretman/1134)
-- [View this post on InstagramA post shared by Fergus The Ferret (@fergustheferret)whatareyoudoingferret:What are you doing? via Fergustheferretvia Ferre...](https://t.me/ferretman/1133)
-- [crow-with-anxiety:taraljc:whatareyoudoingferret:slice-o-cheesecake:NVM THEY BOTH LOVE ITWhat are you doing?I have no idea what’s going on but I just ...](https://t.me/ferretman/1132)
-- [MediaPeanut the protector of Dino 🦖 don’t even ask why I have a giant dinosaur in my window XDvia Ferret Story https://prettypeterparkr.tumblr.com...](https://t.me/ferretman/1131)
+- [innocenceofourhearts:via Ferret Story https://anasfalhhhs.tumblr.com/post/646455537516544000](https://t.me/ferretman/1141)
+- [MediaShe finally climbed up on the couch and laid next to me, after aggressively licking my leg for 5 min haha : ferretsvia Ferret Story https://somew...](https://t.me/ferretman/1140)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/646448092265267200](https://t.me/ferretman/1139)
+- [MediaMy toes are in danger 😱 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646448036800757760](https://t.me/ferretman/1138)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/646448035817209856](https://t.me/ferretman/1137)
 <!-- TELEGRAM:END -->
