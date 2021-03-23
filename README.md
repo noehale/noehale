@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaFUN: Baby Ferrets Vs Snowvia Ferret Story https://just-a-catastrophy.tumblr.com/post/646463257803096064](https://t.me/ferretman/1144)
+- [MediaA thoroughly clean ferret!via Ferret Story https://prettypeterparkr.tumblr.com/post/646459363386589184](https://t.me/ferretman/1143)
+- [vet-and-wild:MediaHow is that comfortable?via Ferret Story https://scrisoridemai.tumblr.com/post/646459324890234880](https://t.me/ferretman/1142)
 - [innocenceofourhearts:via Ferret Story https://anasfalhhhs.tumblr.com/post/646455537516544000](https://t.me/ferretman/1141)
 - [MediaShe finally climbed up on the couch and laid next to me, after aggressively licking my leg for 5 min haha : ferretsvia Ferret Story https://somew...](https://t.me/ferretman/1140)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/646448092265267200](https://t.me/ferretman/1139)
-- [MediaMy toes are in danger 😱 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646448036800757760](https://t.me/ferretman/1138)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/646448035817209856](https://t.me/ferretman/1137)
 <!-- TELEGRAM:END -->
