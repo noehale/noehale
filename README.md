@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [justlgbtthings:mjalti:listen, when i go to open my mouth & what comes out is 12 degrees of seperation from what the original topic was, u need to conn...](https://t.me/ferretman/1135)
 - [MediaPlay time : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646406466806398976](https://t.me/ferretman/1134)
 - [View this post on InstagramA post shared by Fergus The Ferret (@fergustheferret)whatareyoudoingferret:What are you doing? via Fergustheferretvia Ferre...](https://t.me/ferretman/1133)
 - [crow-with-anxiety:taraljc:whatareyoudoingferret:slice-o-cheesecake:NVM THEY BOTH LOVE ITWhat are you doing?I have no idea what’s going on but I just ...](https://t.me/ferretman/1132)
 - [MediaPeanut the protector of Dino 🦖 don’t even ask why I have a giant dinosaur in my window XDvia Ferret Story https://prettypeterparkr.tumblr.com...](https://t.me/ferretman/1131)
-- [gamsee:today this white girl asked me why my hair is so curly and i said im black and she told me to say african americanvia Ferret Story https://anas...](https://t.me/ferretman/1130)
 <!-- TELEGRAM:END -->
