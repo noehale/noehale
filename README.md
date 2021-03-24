@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFUN: Baby Ferrets Vs Snowvia Ferret Story https://just-a-catastrophy.tumblr.com/post/646463257803096064](https://t.me/ferretman/1144)
-- [MediaA thoroughly clean ferret!via Ferret Story https://prettypeterparkr.tumblr.com/post/646459363386589184](https://t.me/ferretman/1143)
-- [vet-and-wild:MediaHow is that comfortable?via Ferret Story https://scrisoridemai.tumblr.com/post/646459324890234880](https://t.me/ferretman/1142)
-- [innocenceofourhearts:via Ferret Story https://anasfalhhhs.tumblr.com/post/646455537516544000](https://t.me/ferretman/1141)
-- [MediaShe finally climbed up on the couch and laid next to me, after aggressively licking my leg for 5 min haha : ferretsvia Ferret Story https://somew...](https://t.me/ferretman/1140)
+- [Yeah they don’t take criticism wellvia Ferret Story https://anasfalhhhs.tumblr.com/post/646485783375708160](https://t.me/ferretman/1150)
+- [MediaWe had breakfast together minus the one who took his lil snack and ran : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646478269738...](https://t.me/ferretman/1149)
+- [MediaMy fuzzy asleep atop his throne : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646478247917387776](https://t.me/ferretman/1148)
+- [dailyferret:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/646478240235585536](https://t.me/ferretman/1147)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaanimusrox:careerchip:Happy New Year!Mediavia Ferret Story https://redzgn.tumblr.com/post/64647823571...](https://t.me/ferretman/1146)
 <!-- TELEGRAM:END -->
