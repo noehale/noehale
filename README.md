@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaferret-flops:citymod:mynewplaidpants:Jake Gyllenhaal and a ferretMediaomgvia Ferret Story https://punkrocknat.tumblr.com/post/646497117005840384](https://t.me/ferretman/1154)
+- [ferret-suggest: today’s long boy: black footed ferret! this is black footed ferret, a long boy with...via Ferret Story https://just-a-catastrophy.tu...](https://t.me/ferretman/1153)
+- [Mediacannonball-the-ferret:theferrets:theferrets:Almost my whole business.All in heaven now.. miss you  - love MomThe Rainbows Bridge PoemJust this ...](https://t.me/ferretman/1152)
+- [thenatsdorf:Ferret stairs.via Ferret Story https://prettypeterparkr.tumblr.com/post/646489522858868736](https://t.me/ferretman/1151)
 - [Yeah they don’t take criticism wellvia Ferret Story https://anasfalhhhs.tumblr.com/post/646485783375708160](https://t.me/ferretman/1150)
-- [MediaWe had breakfast together minus the one who took his lil snack and ran : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646478269738...](https://t.me/ferretman/1149)
-- [MediaMy fuzzy asleep atop his throne : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646478247917387776](https://t.me/ferretman/1148)
-- [dailyferret:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/646478240235585536](https://t.me/ferretman/1147)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaanimusrox:careerchip:Happy New Year!Mediavia Ferret Story https://redzgn.tumblr.com/post/64647823571...](https://t.me/ferretman/1146)
 <!-- TELEGRAM:END -->
