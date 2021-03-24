@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediathefrogman:thefrogman:This jumping, wall climbing sheep is freaking Otis out. Best of OtisThis is Otis’s number one claim to fame. This ge...](https://t.me/ferretman/1165)
+- [MediaPulled her out of a backpack like this, didn’t even blink. Penelope knows how to sleep better than most!via Ferret Story https://just-a-catastro...](https://t.me/ferretman/1164)
 - [accioguitardis:cyberunfamous:trillow:how much do islands cost i want oneLess than a college educationimagewhat the fuckvia Ferret Story https://pretty...](https://t.me/ferretman/1163)
 - [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1162)
 - [MediaOh baby what a sexy beast you are : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646546145434271744](https://t.me/ferretman/1161)
-- [Mediahave had 20lbs of rice for this moment for months finally gave them their own little dig boxvia Ferret Story https://babyiwannaknow.tumblr.com/po...](https://t.me/ferretman/1160)
-- [MediaBaby Ferrets Playing and Warrior Dance. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646538668745555968](https://t.me/ferretman/1159)
 <!-- TELEGRAM:END -->
