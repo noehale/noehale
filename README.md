@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaSuccessful trip to the vet : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646534823919370240](https://t.me/ferretman/1156)
+- [odric-master-swagtician:elevenis-my-doctor:whatthefuckdidyoulanadelsay:kingofsaigone:tinselkin:aberrantkenosis:in case you ever wanted to know what ma...](https://t.me/ferretman/1155)
 - [Mediaferret-flops:citymod:mynewplaidpants:Jake Gyllenhaal and a ferretMediaomgvia Ferret Story https://punkrocknat.tumblr.com/post/646497117005840384](https://t.me/ferretman/1154)
 - [ferret-suggest: today’s long boy: black footed ferret! this is black footed ferret, a long boy with...via Ferret Story https://just-a-catastrophy.tu...](https://t.me/ferretman/1153)
 - [Mediacannonball-the-ferret:theferrets:theferrets:Almost my whole business.All in heaven now.. miss you  - love MomThe Rainbows Bridge PoemJust this ...](https://t.me/ferretman/1152)
-- [thenatsdorf:Ferret stairs.via Ferret Story https://prettypeterparkr.tumblr.com/post/646489522858868736](https://t.me/ferretman/1151)
-- [Yeah they don’t take criticism wellvia Ferret Story https://anasfalhhhs.tumblr.com/post/646485783375708160](https://t.me/ferretman/1150)
 <!-- TELEGRAM:END -->
