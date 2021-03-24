@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSuccessful trip to the vet : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646534823919370240](https://t.me/ferretman/1156)
-- [odric-master-swagtician:elevenis-my-doctor:whatthefuckdidyoulanadelsay:kingofsaigone:tinselkin:aberrantkenosis:in case you ever wanted to know what ma...](https://t.me/ferretman/1155)
-- [Mediaferret-flops:citymod:mynewplaidpants:Jake Gyllenhaal and a ferretMediaomgvia Ferret Story https://punkrocknat.tumblr.com/post/646497117005840384](https://t.me/ferretman/1154)
-- [ferret-suggest: today’s long boy: black footed ferret! this is black footed ferret, a long boy with...via Ferret Story https://just-a-catastrophy.tu...](https://t.me/ferretman/1153)
-- [Mediacannonball-the-ferret:theferrets:theferrets:Almost my whole business.All in heaven now.. miss you  - love MomThe Rainbows Bridge PoemJust this ...](https://t.me/ferretman/1152)
+- [accioguitardis:cyberunfamous:trillow:how much do islands cost i want oneLess than a college educationimagewhat the fuckvia Ferret Story https://pretty...](https://t.me/ferretman/1163)
+- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1162)
+- [MediaOh baby what a sexy beast you are : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646546145434271744](https://t.me/ferretman/1161)
+- [Mediahave had 20lbs of rice for this moment for months finally gave them their own little dig boxvia Ferret Story https://babyiwannaknow.tumblr.com/po...](https://t.me/ferretman/1160)
+- [MediaBaby Ferrets Playing and Warrior Dance. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646538668745555968](https://t.me/ferretman/1159)
 <!-- TELEGRAM:END -->
