@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Catspian protecting his older sisters while they sleep ❤❤❤ they...](https://come-forth-into-the-light.tumblr.com/post/646531069819125760)
 - [Gizmo playing/getting snuggled in for a nap 💙](https://come-forth-into-the-light.tumblr.com/post/646485781706309632)
 - [stop watching me eat you weirdo!](https://come-forth-into-the-light.tumblr.com/post/646463283801587712)
 - [My two oldest are always ready for pics. My beautiful fur...](https://come-forth-into-the-light.tumblr.com/post/646440480555532288)
 - [There’s something in my work sweatshirt!](https://come-forth-into-the-light.tumblr.com/post/646395150825897985)
-- [What a sweet♡](https://come-forth-into-the-light.tumblr.com/post/646372584148058112)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
