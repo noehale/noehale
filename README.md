@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646587672290328576](https://t.me/ferretman/1174)
-- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/1173)
-- [MediaAfter 7 straight hours of play time, he has passed out finally lol (his sister is hiding/sleeping in her favorite spot: inside my box-spring, -sh...](https://t.me/ferretman/1172)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/646580142828912640](https://t.me/ferretman/1171)
-- [jonrkennex:merry christmas to everyone who didn’t get presents today because their family couldn’t afford it and merry christmas to everyone who cou...](https://t.me/ferretman/1170)
+- [MediaSuccessful trip to the vet : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646534823919370240](https://t.me/ferretman/1156)
+- [odric-master-swagtician:elevenis-my-doctor:whatthefuckdidyoulanadelsay:kingofsaigone:tinselkin:aberrantkenosis:in case you ever wanted to know what ma...](https://t.me/ferretman/1155)
+- [Mediaferret-flops:citymod:mynewplaidpants:Jake Gyllenhaal and a ferretMediaomgvia Ferret Story https://punkrocknat.tumblr.com/post/646497117005840384](https://t.me/ferretman/1154)
+- [ferret-suggest: today’s long boy: black footed ferret! this is black footed ferret, a long boy with...via Ferret Story https://just-a-catastrophy.tu...](https://t.me/ferretman/1153)
+- [Mediacannonball-the-ferret:theferrets:theferrets:Almost my whole business.All in heaven now.. miss you  - love MomThe Rainbows Bridge PoemJust this ...](https://t.me/ferretman/1152)
 <!-- TELEGRAM:END -->
