@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaOswin figuring his big butt out. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646629224098234368](https://t.me/ferretman/1180)
-- [MediaBright eyed and ready for playtime : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646629208587698176](https://t.me/ferretman/1179)
-- [MediaMediaMediaanimusrox:pootiekd:ruinedchildhood:gum-my-bears:stream:Hulk + normal flesh toneAvengers: Endgame (2019)Shrek 2 (2004)MediaTurn him back...](https://t.me/ferretman/1178)
-- [MediaMy boy moose looking angry at me because he fell off the bed and I didn’t pick him upvia Ferret Story https://babyiwannaknow.tumblr.com/post/646...](https://t.me/ferretman/1177)
-- [MediaLong day huh : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646625427541164032](https://t.me/ferretman/1176)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646587672290328576](https://t.me/ferretman/1174)
+- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/1173)
+- [MediaAfter 7 straight hours of play time, he has passed out finally lol (his sister is hiding/sleeping in her favorite spot: inside my box-spring, -sh...](https://t.me/ferretman/1172)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/646580142828912640](https://t.me/ferretman/1171)
+- [jonrkennex:merry christmas to everyone who didn’t get presents today because their family couldn’t afford it and merry christmas to everyone who cou...](https://t.me/ferretman/1170)
 <!-- TELEGRAM:END -->
