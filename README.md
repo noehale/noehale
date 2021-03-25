@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646587672290328576](https://t.me/ferretman/1174)
-- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/1173)
-- [MediaAfter 7 straight hours of play time, he has passed out finally lol (his sister is hiding/sleeping in her favorite spot: inside my box-spring, -sh...](https://t.me/ferretman/1172)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/646580142828912640](https://t.me/ferretman/1171)
-- [jonrkennex:merry christmas to everyone who didn’t get presents today because their family couldn’t afford it and merry christmas to everyone who cou...](https://t.me/ferretman/1170)
+- [soylentnight:via Ferret Story https://just-a-catastrophy.tumblr.com/post/646644303894102016](https://t.me/ferretman/1184)
+- [MediaMeet Rupert. Rupert enjoys scurrying under our side table, peaking out to stare us down, and going full pancake.via Ferret Story https://prettype...](https://t.me/ferretman/1183)
+- [Media“Miraculous” ferret survives 100 minutes in washing machinevia Ferret Story https://scrisoridemai.tumblr.com/post/646640506289504256](https://t.me/ferretman/1182)
+- [mynuet:saxifraga-x-urbium:forest-of-grace:requiemforadeathmask:darlingkuma:you could curse a police officer out, kick their car, throw a temper tantru...](https://t.me/ferretman/1181)
+- [MediaOswin figuring his big butt out. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646629224098234368](https://t.me/ferretman/1180)
 <!-- TELEGRAM:END -->
