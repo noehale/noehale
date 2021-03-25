@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [He actually posed 🙏🥺](https://come-forth-into-the-light.tumblr.com/post/646621652486094848)
 - [Looked in the box behind the couch and found these two...](https://come-forth-into-the-light.tumblr.com/post/646576362323361792)
 - [Forgot to take my socks off 🙄😂😂](https://come-forth-into-the-light.tumblr.com/post/646553715583713280)
 - [Catspian protecting his older sisters while they sleep ❤❤❤ they...](https://come-forth-into-the-light.tumblr.com/post/646531069819125760)
 - [Gizmo playing/getting snuggled in for a nap 💙](https://come-forth-into-the-light.tumblr.com/post/646485781706309632)
-- [stop watching me eat you weirdo!](https://come-forth-into-the-light.tumblr.com/post/646463283801587712)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
