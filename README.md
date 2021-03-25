@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediathefrogman:thefrogman:This jumping, wall climbing sheep is freaking Otis out. Best of OtisThis is Otis’s number one claim to fame. This ge...](https://t.me/ferretman/1165)
-- [MediaPulled her out of a backpack like this, didn’t even blink. Penelope knows how to sleep better than most!via Ferret Story https://just-a-catastro...](https://t.me/ferretman/1164)
-- [accioguitardis:cyberunfamous:trillow:how much do islands cost i want oneLess than a college educationimagewhat the fuckvia Ferret Story https://pretty...](https://t.me/ferretman/1163)
-- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1162)
-- [MediaOh baby what a sexy beast you are : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646546145434271744](https://t.me/ferretman/1161)
+- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/1173)
+- [MediaAfter 7 straight hours of play time, he has passed out finally lol (his sister is hiding/sleeping in her favorite spot: inside my box-spring, -sh...](https://t.me/ferretman/1172)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/646580142828912640](https://t.me/ferretman/1171)
+- [jonrkennex:merry christmas to everyone who didn’t get presents today because their family couldn’t afford it and merry christmas to everyone who cou...](https://t.me/ferretman/1170)
+- [MediaPeekaboovia Ferret Story https://babyiwannaknow.tumblr.com/post/646568868107665408](https://t.me/ferretman/1169)
 <!-- TELEGRAM:END -->
