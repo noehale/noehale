@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Yeah they don’t take criticism wellvia Ferret Story https://anasfalhhhs.tumblr.com/post/646485783375708160](https://t.me/ferretman/1150)
-- [MediaWe had breakfast together minus the one who took his lil snack and ran : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646478269738...](https://t.me/ferretman/1149)
-- [MediaMy fuzzy asleep atop his throne : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646478247917387776](https://t.me/ferretman/1148)
-- [dailyferret:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/646478240235585536](https://t.me/ferretman/1147)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaanimusrox:careerchip:Happy New Year!Mediavia Ferret Story https://redzgn.tumblr.com/post/64647823571...](https://t.me/ferretman/1146)
+- [MediaOswin figuring his big butt out. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646629224098234368](https://t.me/ferretman/1180)
+- [MediaBright eyed and ready for playtime : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646629208587698176](https://t.me/ferretman/1179)
+- [MediaMediaMediaanimusrox:pootiekd:ruinedchildhood:gum-my-bears:stream:Hulk + normal flesh toneAvengers: Endgame (2019)Shrek 2 (2004)MediaTurn him back...](https://t.me/ferretman/1178)
+- [MediaMy boy moose looking angry at me because he fell off the bed and I didn’t pick him upvia Ferret Story https://babyiwannaknow.tumblr.com/post/646...](https://t.me/ferretman/1177)
+- [MediaLong day huh : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646625427541164032](https://t.me/ferretman/1176)
 <!-- TELEGRAM:END -->
