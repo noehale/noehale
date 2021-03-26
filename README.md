@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [soylentnight:via Ferret Story https://just-a-catastrophy.tumblr.com/post/646644303894102016](https://t.me/ferretman/1184)
-- [MediaMeet Rupert. Rupert enjoys scurrying under our side table, peaking out to stare us down, and going full pancake.via Ferret Story https://prettype...](https://t.me/ferretman/1183)
-- [Media“Miraculous” ferret survives 100 minutes in washing machinevia Ferret Story https://scrisoridemai.tumblr.com/post/646640506289504256](https://t.me/ferretman/1182)
-- [mynuet:saxifraga-x-urbium:forest-of-grace:requiemforadeathmask:darlingkuma:you could curse a police officer out, kick their car, throw a temper tantru...](https://t.me/ferretman/1181)
-- [MediaOswin figuring his big butt out. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646629224098234368](https://t.me/ferretman/1180)
+- [flooz3:MediaOkey. This. This is what makes me happy.via Ferret Story https://babyiwannaknow.tumblr.com/post/646659476157546496](https://t.me/ferretman/1189)
+- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646659468047925248](https://t.me/ferretman/1188)
+- [MediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/646659439171174400](https://t.me/ferretman/1187)
+- [Mediarandomghost:photo by Leon Fitzpatrickvia Ferret Story https://redzgn.tumblr.com/post/646659439196323841](https://t.me/ferretman/1186)
+- [thefrogman:sirfrogsworth:imageBAT RAVE ACTIVATEǝʇɐʌᴉʇɔɐ ǝʌɐɹ ʇɐqvia Ferret Story https://xxcrybby.tumblr.com/post/646655639153688576](https://t.me/ferretman/1185)
 <!-- TELEGRAM:END -->
