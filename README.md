@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [I got my best bud Bucky back and brought home his girlfriend Kai...](https://come-forth-into-the-light.tumblr.com/post/646735009078804480)
 - [My two ferrets are very tired :)](https://come-forth-into-the-light.tumblr.com/post/646712236466962432)
 - [My ferret keeps using the bathroom in the wrong corner in her...](https://come-forth-into-the-light.tumblr.com/post/646666951578566657)
 - [Little Miss Olive wanting cuddles](https://come-forth-into-the-light.tumblr.com/post/646644375820124160)
 - [He actually posed 🙏🥺](https://come-forth-into-the-light.tumblr.com/post/646621652486094848)
-- [Looked in the box behind the couch and found these two...](https://come-forth-into-the-light.tumblr.com/post/646576362323361792)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
