@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [flooz3:MediaOkey. This. This is what makes me happy.via Ferret Story https://babyiwannaknow.tumblr.com/post/646659476157546496](https://t.me/ferretman/1189)
-- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646659468047925248](https://t.me/ferretman/1188)
-- [MediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/646659439171174400](https://t.me/ferretman/1187)
-- [Mediarandomghost:photo by Leon Fitzpatrickvia Ferret Story https://redzgn.tumblr.com/post/646659439196323841](https://t.me/ferretman/1186)
-- [thefrogman:sirfrogsworth:imageBAT RAVE ACTIVATEǝʇɐʌᴉʇɔɐ ǝʌɐɹ ʇɐqvia Ferret Story https://xxcrybby.tumblr.com/post/646655639153688576](https://t.me/ferretman/1185)
+- [Mediamaddieonthings:Eerily beauty around western Montana right now with all the wildfires, praying for rain in Augustvia Ferret Story https://somewher...](https://t.me/ferretman/1208)
+- [magic-and-moonlit-wings:leonei-d:emmeetslawschool:thenatsdorf:Bff’s from the beginning.that baby is making biscuits on that cat. what a role reversal...](https://t.me/ferretman/1207)
+- [MediaEvie plays hard and then crashes : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646708507051196416](https://t.me/ferretman/1206)
+- [MediaMy sweet little doodle : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646678306278801408](https://t.me/ferretman/1205)
+- [k-eke:Thank you so much, thanks to you the Facebook page holding the game that plagied my work was deleted.Now I’m still going with this because the ...](https://t.me/ferretman/1204)
 <!-- TELEGRAM:END -->
