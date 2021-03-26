@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMy sweet little doodle : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646678306278801408](https://t.me/ferretman/1194)
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/646674507548033024](https://t.me/ferretman/1193)
-- [k-eke:Thank you so much, thanks to you the Facebook page holding the game that plagied my work was deleted.Now I’m still going with this because the ...](https://t.me/ferretman/1192)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/646670738494029824](https://t.me/ferretman/1191)
-- [MediaFerrets PLAYING and Rolling Around to Music 🥰 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646666985963438080](https://t.me/ferretman/1190)
+- [flooz3:MediaOkey. This. This is what makes me happy.via Ferret Story https://babyiwannaknow.tumblr.com/post/646659476157546496](https://t.me/ferretman/1189)
+- [MediaMediaitscolossal:Hokkaido, Japanvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646659468047925248](https://t.me/ferretman/1188)
+- [MediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/646659439171174400](https://t.me/ferretman/1187)
+- [Mediarandomghost:photo by Leon Fitzpatrickvia Ferret Story https://redzgn.tumblr.com/post/646659439196323841](https://t.me/ferretman/1186)
+- [thefrogman:sirfrogsworth:imageBAT RAVE ACTIVATEǝʇɐʌᴉʇɔɐ ǝʌɐɹ ʇɐqvia Ferret Story https://xxcrybby.tumblr.com/post/646655639153688576](https://t.me/ferretman/1185)
 <!-- TELEGRAM:END -->
