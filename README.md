@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/646587672290328576](https://t.me/ferretman/1174)
-- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/1173)
-- [MediaAfter 7 straight hours of play time, he has passed out finally lol (his sister is hiding/sleeping in her favorite spot: inside my box-spring, -sh...](https://t.me/ferretman/1172)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/646580142828912640](https://t.me/ferretman/1171)
-- [jonrkennex:merry christmas to everyone who didn’t get presents today because their family couldn’t afford it and merry christmas to everyone who cou...](https://t.me/ferretman/1170)
+- [MediaPerfect timing : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646817936380723200](https://t.me/ferretman/1232)
+- [somecutething:via Ferret Story https://babyiwannaknow.tumblr.com/post/646810442210099200](https://t.me/ferretman/1231)
+- [<a href="https://64.media.tumblr.com/8dcf3237615a1868b078b6640149cf3b/tumblr_n4g3x0AwKb1rhecsno1_250.gifv">Media</a><a href="https://64.media.tumblr.c...](https://t.me/ferretman/1230)
+- [MediaOOOO. The ways these little fuzzies can sleep lol. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646810394627899392](https://t.me/ferretman/1229)
+- [xiaodiyo:my phone: Storage Almost Full me: be quietvia Ferret Story https://redzgn.tumblr.com/post/646810394629914624](https://t.me/ferretman/1228)
 <!-- TELEGRAM:END -->
