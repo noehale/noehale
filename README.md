@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediabeyoncescock:do u guys think my screen name can be printed in a family newspaper?via Ferret Story https://punkrocknat.tumblr.com/post/64679903145...](https://t.me/ferretman/1226)
 - [MediaI think Lucifer is broken : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646768957234249728](https://t.me/ferretman/1225)
 - [Mediaferret-flops:okiawatooru:tag yourself im felixI’m Shoe.via Ferret Story https://just-a-catastrophy.tumblr.com/post/646765151108907008](https://t.me/ferretman/1224)
 - [Mediatheferrets:ultra-firelily:fandomlife-universe:What is it?A butterfly. What does that get me?I now have ferret powersvia Ferret Story https://pret...](https://t.me/ferretman/1223)
 - [MediaRoz was not amused when I woke her for midday play time.via Ferret Story https://scrisoridemai.tumblr.com/post/646761384099627008](https://t.me/ferretman/1222)
-- [inso-uciant:richassness:90s babies we’re getting oldi don’t want to talk about itvia Ferret Story https://anasfalhhhs.tumblr.com/post/64675764738375...](https://t.me/ferretman/1221)
 <!-- TELEGRAM:END -->
