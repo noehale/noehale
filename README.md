@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [bob-artist:By the way, Kit REALLY likes dig boxes.](https://come-forth-into-the-light.tumblr.com/post/646825529456115712)
 - [Puff has been so sweet lately🥺🥺](https://come-forth-into-the-light.tumblr.com/post/646802864205856768)
 - [Our oldest boy Jax. Happy holidays!](https://come-forth-into-the-light.tumblr.com/post/646757605496258560)
 - [I got my best bud Bucky back and brought home his girlfriend Kai...](https://come-forth-into-the-light.tumblr.com/post/646735009078804480)
 - [My two ferrets are very tired :)](https://come-forth-into-the-light.tumblr.com/post/646712236466962432)
-- [My ferret keeps using the bathroom in the wrong corner in her...](https://come-forth-into-the-light.tumblr.com/post/646666951578566657)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
