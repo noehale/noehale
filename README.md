@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [heroes-get-made: thelifeofmyferrets could really use a post full of adorable ferrets. I hope this...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/1215)
-- [MediaWhy are ferrets so interested in things they can’t have? I was quick enough picking up this beer spill but not quick enough before lil boy snatc...](https://t.me/ferretman/1214)
-- [Mediaferretfarts:whatareyoudoingferret:dragonsmirk:bob-artist:Add begging to the “Kit is a jerk” list.  Tux has REALLY good balance and Kit doesn...](https://t.me/ferretman/1213)
-- [gayhex:Mediavia Ferret Story https://anasfalhhhs.tumblr.com/post/646727329820868608](https://t.me/ferretman/1212)
-- [memories:apparently, I joined this tumblr place at 11/08/2007 11:13:40 PM.via Ferret Story https://redzgn.tumblr.com/post/646719888367501312](https://t.me/ferretman/1211)
+- [Mediamaddieonthings:Morning hugs 😊☕via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646750109182427136](https://t.me/ferretman/1220)
+- [MediaRigatoni 🍝 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646750108164276224](https://t.me/ferretman/1219)
+- [hustlerose:notlikingbestgirl:Out of TouchOut of Touch Thursdayvia Ferret Story https://redzgn.tumblr.com/post/646750069573484544](https://t.me/ferretman/1218)
+- [MediaHow rude of her…via Ferret Story https://babyiwannaknow.tumblr.com/post/646750066113216512](https://t.me/ferretman/1217)
+- [MediaMediachristchex:dracophile:teapotsahoy:fallenangelvictorious:disregardcanon:pencilscratchins:miles “who’s morales” morales’s biggest weaknes...](https://t.me/ferretman/1216)
 <!-- TELEGRAM:END -->
