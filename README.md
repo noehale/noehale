@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediamaddieonthings:Morning hugs 😊☕via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646750109182427136](https://t.me/ferretman/1220)
-- [MediaRigatoni 🍝 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646750108164276224](https://t.me/ferretman/1219)
-- [hustlerose:notlikingbestgirl:Out of TouchOut of Touch Thursdayvia Ferret Story https://redzgn.tumblr.com/post/646750069573484544](https://t.me/ferretman/1218)
-- [MediaHow rude of her…via Ferret Story https://babyiwannaknow.tumblr.com/post/646750066113216512](https://t.me/ferretman/1217)
-- [MediaMediachristchex:dracophile:teapotsahoy:fallenangelvictorious:disregardcanon:pencilscratchins:miles “who’s morales” morales’s biggest weaknes...](https://t.me/ferretman/1216)
+- [MediaI think Lucifer is broken : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646768957234249728](https://t.me/ferretman/1225)
+- [Mediaferret-flops:okiawatooru:tag yourself im felixI’m Shoe.via Ferret Story https://just-a-catastrophy.tumblr.com/post/646765151108907008](https://t.me/ferretman/1224)
+- [Mediatheferrets:ultra-firelily:fandomlife-universe:What is it?A butterfly. What does that get me?I now have ferret powersvia Ferret Story https://pret...](https://t.me/ferretman/1223)
+- [MediaRoz was not amused when I woke her for midday play time.via Ferret Story https://scrisoridemai.tumblr.com/post/646761384099627008](https://t.me/ferretman/1222)
+- [inso-uciant:richassness:90s babies we’re getting oldi don’t want to talk about itvia Ferret Story https://anasfalhhhs.tumblr.com/post/64675764738375...](https://t.me/ferretman/1221)
 <!-- TELEGRAM:END -->
