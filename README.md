@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI think I actually adopted a cat, y’all😂via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646901031938211840](https://t.me/ferretman/1250)
-- [ryanvoid:purepopfornowpeople:party-wok:gayfarmer:watchthelightfade:karrius:The madden gif maker has banned the use of the word “capitalism”.“Too ma...](https://t.me/ferretman/1249)
-- [Mediaconstant-instigator:landlordkiller420:anarchapella:comcastkills:profeminist:Sourceeven if the fraud was like 5% it wouldn’t compare to rich peop...](https://t.me/ferretman/1248)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/646900994105589760](https://t.me/ferretman/1247)
-- [Mediabecausebirds:anxiety birbvia Ferret Story https://xxcrybby.tumblr.com/post/646897246211915776](https://t.me/ferretman/1246)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/646931308641157120](https://t.me/ferretman/1259)
+- [everythingfox:Owner asks dogs to hide because customer is scared of dogs(via)via Ferret Story https://falalamingo.tumblr.com/post/646931199025135617](https://t.me/ferretman/1258)
+- [Mediaterra-bunny:lazorsandparadox:lazorsandparadox:lazorsandparadox:thereallieutenantcommanderdata:“A collection of common glyphs of the poorly under...](https://t.me/ferretman/1257)
+- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://babyiwannaknow.tumblr.com/post/64693119...](https://t.me/ferretman/1256)
+- [MediaOui oui, monsieur. Welcome to La Résistance : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646927419794685952](https://t.me/ferretman/1255)
 <!-- TELEGRAM:END -->
