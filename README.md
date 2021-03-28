@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaPerfect timing : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646817936380723200](https://t.me/ferretman/1232)
-- [somecutething:via Ferret Story https://babyiwannaknow.tumblr.com/post/646810442210099200](https://t.me/ferretman/1231)
-- [<a href="https://64.media.tumblr.com/8dcf3237615a1868b078b6640149cf3b/tumblr_n4g3x0AwKb1rhecsno1_250.gifv">Media</a><a href="https://64.media.tumblr.c...](https://t.me/ferretman/1230)
-- [MediaOOOO. The ways these little fuzzies can sleep lol. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646810394627899392](https://t.me/ferretman/1229)
-- [xiaodiyo:my phone: Storage Almost Full me: be quietvia Ferret Story https://redzgn.tumblr.com/post/646810394629914624](https://t.me/ferretman/1228)
+- [MediaMediakazucrash:Ferret Monogatari: Watashi no Okini IriPublisher: Culture BrainDeveloper: Culture BrainPlatform: Game Boy ColorYear: 2000via Ferre...](https://t.me/ferretman/1244)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/646855767059791872](https://t.me/ferretman/1243)
+- [malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTvia Ferret Story https://prettypeterparkr.tumblr.com/post/64685194930366...](https://t.me/ferretman/1242)
+- [Media2 big boys sleepin’ in the big boy bedvia Ferret Story https://scrisoridemai.tumblr.com/post/646851913479077888](https://t.me/ferretman/1241)
+- [MediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/646848146832605184](https://t.me/ferretman/1240)
 <!-- TELEGRAM:END -->
