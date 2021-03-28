@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [the-old-man-has-the-phonebox:furiousqueerious:phoebebishopwright:A deer wanders quietly in a church in France.old godsThe Baratheons have come to pray...](https://t.me/ferretman/1254)
-- [vet-and-wild:Sleepy scritchesvia Ferret Story https://scrisoridemai.tumblr.com/post/646912318871076864](https://t.me/ferretman/1253)
-- [MediaBin full of fresh snow was a hit!via Ferret Story https://prettypeterparkr.tumblr.com/post/646912304016965632](https://t.me/ferretman/1252)
-- [MediaI got my Toast her own toast : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646908539775877120](https://t.me/ferretman/1251)
 - [MediaI think I actually adopted a cat, y’all😂via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646901031938211840](https://t.me/ferretman/1250)
+- [ryanvoid:purepopfornowpeople:party-wok:gayfarmer:watchthelightfade:karrius:The madden gif maker has banned the use of the word “capitalism”.“Too ma...](https://t.me/ferretman/1249)
+- [Mediaconstant-instigator:landlordkiller420:anarchapella:comcastkills:profeminist:Sourceeven if the fraud was like 5% it wouldn’t compare to rich peop...](https://t.me/ferretman/1248)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/646900994105589760](https://t.me/ferretman/1247)
+- [Mediabecausebirds:anxiety birbvia Ferret Story https://xxcrybby.tumblr.com/post/646897246211915776](https://t.me/ferretman/1246)
 <!-- TELEGRAM:END -->
