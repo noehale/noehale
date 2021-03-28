@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediakazucrash:Ferret Monogatari: Watashi no Okini IriPublisher: Culture BrainDeveloper: Culture BrainPlatform: Game Boy ColorYear: 2000via Ferre...](https://t.me/ferretman/1244)
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/646855767059791872](https://t.me/ferretman/1243)
-- [malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTvia Ferret Story https://prettypeterparkr.tumblr.com/post/64685194930366...](https://t.me/ferretman/1242)
-- [Media2 big boys sleepin’ in the big boy bedvia Ferret Story https://scrisoridemai.tumblr.com/post/646851913479077888](https://t.me/ferretman/1241)
-- [MediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/646848146832605184](https://t.me/ferretman/1240)
+- [MediaI think I actually adopted a cat, y’all😂via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/646901031938211840](https://t.me/ferretman/1250)
+- [ryanvoid:purepopfornowpeople:party-wok:gayfarmer:watchthelightfade:karrius:The madden gif maker has banned the use of the word “capitalism”.“Too ma...](https://t.me/ferretman/1249)
+- [Mediaconstant-instigator:landlordkiller420:anarchapella:comcastkills:profeminist:Sourceeven if the fraud was like 5% it wouldn’t compare to rich peop...](https://t.me/ferretman/1248)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/646900994105589760](https://t.me/ferretman/1247)
+- [Mediabecausebirds:anxiety birbvia Ferret Story https://xxcrybby.tumblr.com/post/646897246211915776](https://t.me/ferretman/1246)
 <!-- TELEGRAM:END -->
