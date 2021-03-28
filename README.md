@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [cloudfreed:uglyrad:thebestoftumbling:a ferret making a nesti need this, and this, and this, and this, and this, and thismust… aim… butt… correctly...](https://t.me/ferretman/1234)
-- [thelifeofmyferrets:MediaI’m gonna get you!via Ferret Story https://prettypeterparkr.tumblr.com/post/646821694556815360](https://t.me/ferretman/1233)
-- [MediaPerfect timing : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646817936380723200](https://t.me/ferretman/1232)
-- [somecutething:via Ferret Story https://babyiwannaknow.tumblr.com/post/646810442210099200](https://t.me/ferretman/1231)
-- [<a href="https://64.media.tumblr.com/8dcf3237615a1868b078b6640149cf3b/tumblr_n4g3x0AwKb1rhecsno1_250.gifv">Media</a><a href="https://64.media.tumblr.c...](https://t.me/ferretman/1230)
+- [malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTvia Ferret Story https://prettypeterparkr.tumblr.com/post/64685194930366...](https://t.me/ferretman/1242)
+- [Media2 big boys sleepin’ in the big boy bedvia Ferret Story https://scrisoridemai.tumblr.com/post/646851913479077888](https://t.me/ferretman/1241)
+- [MediaMediaMediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/646848146832605184](https://t.me/ferretman/1240)
+- [Mediaamnhnyc:Parrot or vulture? It’s the Vulturine Parrot (Psittrichas fulgidus), or Pesquet’s Parrot, whose featherless face is reminiscent of a vu...](https://t.me/ferretman/1239)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/646840597934637056](https://t.me/ferretman/1238)
 <!-- TELEGRAM:END -->
