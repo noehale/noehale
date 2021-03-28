@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thelifeofmyferrets:MediaI’m gonna get you!via Ferret Story https://prettypeterparkr.tumblr.com/post/646821694556815360](https://t.me/ferretman/1233)
 - [MediaPerfect timing : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646817936380723200](https://t.me/ferretman/1232)
 - [somecutething:via Ferret Story https://babyiwannaknow.tumblr.com/post/646810442210099200](https://t.me/ferretman/1231)
 - [<a href="https://64.media.tumblr.com/8dcf3237615a1868b078b6640149cf3b/tumblr_n4g3x0AwKb1rhecsno1_250.gifv">Media</a><a href="https://64.media.tumblr.c...](https://t.me/ferretman/1230)
 - [MediaOOOO. The ways these little fuzzies can sleep lol. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/646810394627899392](https://t.me/ferretman/1229)
+- [xiaodiyo:my phone: Storage Almost Full me: be quietvia Ferret Story https://redzgn.tumblr.com/post/646810394629914624](https://t.me/ferretman/1228)
 <!-- TELEGRAM:END -->
