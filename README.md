@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Arctic Ferret!! ❄️😂](https://come-forth-into-the-light.tumblr.com/post/646916138977116160)
 - [Tell me why my ferrets take only the left shoes??!? Lol I just...](https://come-forth-into-the-light.tumblr.com/post/646893456539664384)
 - [Can’t decide on a name for this little boy! Nimbus or Cove; what...](https://come-forth-into-the-light.tumblr.com/post/646848202325295104)
 - [bob-artist:By the way, Kit REALLY likes dig boxes.](https://come-forth-into-the-light.tumblr.com/post/646825529456115712)
 - [Puff has been so sweet lately🥺🥺](https://come-forth-into-the-light.tumblr.com/post/646802864205856768)
-- [Our oldest boy Jax. Happy holidays!](https://come-forth-into-the-light.tumblr.com/post/646757605496258560)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
