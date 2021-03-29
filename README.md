@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [princessbento:bob-artist:By the way, Kit REALLY likes dig boxes.unrestrained summer funvia Ferret Story https://punkrocknat.tumblr.com/post/6469802518...](https://t.me/ferretman/1265)
 - [Mediastep 1. support the head : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646950052156358656](https://t.me/ferretman/1264)
 - [MediaWhen he starts to relax into to the head and ear massagevia Ferret Story https://just-a-catastrophy.tumblr.com/post/646946291187924992](https://t.me/ferretman/1263)
 - [MediaThrowback to my first year with this little guy!via Ferret Story https://scrisoridemai.tumblr.com/post/646942551809671168](https://t.me/ferretman/1262)
 - [MediaThese boys 🤣 just got a couple new things. So far, the balls are their new favorite chew toys ( instead of my glasses case.) And they very muc...](https://t.me/ferretman/1261)
-- [MediaOne sleepy baby 😴😍 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646938728442560512](https://t.me/ferretman/1260)
 <!-- TELEGRAM:END -->
