@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediastep 1. support the head : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/646950052156358656](https://t.me/ferretman/1264)
-- [MediaWhen he starts to relax into to the head and ear massagevia Ferret Story https://just-a-catastrophy.tumblr.com/post/646946291187924992](https://t.me/ferretman/1263)
-- [MediaThrowback to my first year with this little guy!via Ferret Story https://scrisoridemai.tumblr.com/post/646942551809671168](https://t.me/ferretman/1262)
-- [MediaThese boys 🤣 just got a couple new things. So far, the balls are their new favorite chew toys ( instead of my glasses case.) And they very muc...](https://t.me/ferretman/1261)
-- [MediaOne sleepy baby 😴😍 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646938728442560512](https://t.me/ferretman/1260)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/646931308641157120](https://t.me/ferretman/1259)
+- [everythingfox:Owner asks dogs to hide because customer is scared of dogs(via)via Ferret Story https://falalamingo.tumblr.com/post/646931199025135617](https://t.me/ferretman/1258)
+- [Mediaterra-bunny:lazorsandparadox:lazorsandparadox:lazorsandparadox:thereallieutenantcommanderdata:“A collection of common glyphs of the poorly under...](https://t.me/ferretman/1257)
+- [Mediagothdrool:big-boss-official:the conqueror… an unstoppable forceMediathe fool…..via Ferret Story https://babyiwannaknow.tumblr.com/post/64693119...](https://t.me/ferretman/1256)
+- [MediaOui oui, monsieur. Welcome to La Résistance : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/646927419794685952](https://t.me/ferretman/1255)
 <!-- TELEGRAM:END -->
