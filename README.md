@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI’m convinced the store told us she was older than she really is. She’s supposed to be 12 weeks this week! Still a tiny baby & she just started...](https://t.me/ferretman/1286)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/647070839564599296](https://t.me/ferretman/1285)
 - [MediaI wish I could sleep as soundly as my baby bear. Ganbatte, Karkat! Sleep enough for the both of us! : ferretsvia Ferret Story https://punkrocknat...](https://t.me/ferretman/1284)
 - [element-of-change:theskoomacat:catsbeaversandducks:“Sir, I can has fish?? Thank you, kind Sir!”Translation:[weasel? comes up to a fisherman]Fisherma...](https://t.me/ferretman/1283)
 - [MediaMediaMediabob-artist:bob-artist:Pic 1 - May 2017 (Tux and Kit)Pic 2 - May 2018 (Tux and Kit)Pic 3 - June 2019 (Miss Rudy and Kit)MediaApril 2020 ...](https://t.me/ferretman/1282)
+- [taekoyasuhiro:imagefriend ?????!?imagefr iend!! !!!imageim coming friendimageim here i love uvia Ferret Story https://scrisoridemai.tumblr.com/post/...](https://t.me/ferretman/1281)
+- [MediaThe Smooth Criminal Gif is making the Rounds again! Here’s a video I just found from 6 Years Ago, it has a whole story arc and the ending is per...](https://t.me/ferretman/1280)
 <!-- TELEGRAM:END -->
