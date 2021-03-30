@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [He ded](https://come-forth-into-the-light.tumblr.com/post/647029359143731200)
 - [wanderingjaye:happy lil squiggle 🌱IG: Wanderingjaye ](https://come-forth-into-the-light.tumblr.com/post/647006725180997632)
 - [Anyone else have an Instagram account for their pets? We have...](https://come-forth-into-the-light.tumblr.com/post/646984058999603200)
 - [Phoebe chews the cords to her hanging beds & once she gets...](https://come-forth-into-the-light.tumblr.com/post/646938728128987136)
 - [Arctic Ferret!! ❄️😂](https://come-forth-into-the-light.tumblr.com/post/646916138977116160)
-- [Tell me why my ferrets take only the left shoes??!? Lol I just...](https://come-forth-into-the-light.tumblr.com/post/646893456539664384)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
