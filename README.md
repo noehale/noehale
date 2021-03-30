@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI wish I could sleep as soundly as my baby bear. Ganbatte, Karkat! Sleep enough for the both of us! : ferretsvia Ferret Story https://punkrocknat...](https://t.me/ferretman/1284)
-- [element-of-change:theskoomacat:catsbeaversandducks:“Sir, I can has fish?? Thank you, kind Sir!”Translation:[weasel? comes up to a fisherman]Fisherma...](https://t.me/ferretman/1283)
-- [MediaMediaMediabob-artist:bob-artist:Pic 1 - May 2017 (Tux and Kit)Pic 2 - May 2018 (Tux and Kit)Pic 3 - June 2019 (Miss Rudy and Kit)MediaApril 2020 ...](https://t.me/ferretman/1282)
-- [taekoyasuhiro:imagefriend ?????!?imagefr iend!! !!!imageim coming friendimageim here i love uvia Ferret Story https://scrisoridemai.tumblr.com/post/...](https://t.me/ferretman/1281)
-- [MediaThe Smooth Criminal Gif is making the Rounds again! Here’s a video I just found from 6 Years Ago, it has a whole story arc and the ending is per...](https://t.me/ferretman/1280)
+- [Mediaprofessorspork:#this single photo here validates the existence of the selfie stick I SWEAR TO GODvia Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/1294)
+- [MediaCan ferrets get along with ground squirrels?via Ferret Story https://prettypeterparkr.tumblr.com/post/647093540466376704](https://t.me/ferretman/1293)
+- [MediaMason being susvia Ferret Story https://scrisoridemai.tumblr.com/post/647093503853232128](https://t.me/ferretman/1292)
+- [MediaFull blep : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647089749736177664](https://t.me/ferretman/1291)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/647082277115969536](https://t.me/ferretman/1290)
 <!-- TELEGRAM:END -->
