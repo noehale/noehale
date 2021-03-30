@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaYoung Ferrets and a glass of Water. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/646999156138885120](https://t.me/ferretman/1271)
-- [wanderingjaye:MediaMediahappy lil squiggle 🌱IG: Wanderingjayevia Ferret Story https://babyiwannaknow.tumblr.com/post/646991657022160896](https://t.me/ferretman/1270)
-- [Mediamurdernachos:glutko:Spongebonge Penis Fish Masterpostdude whatvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/64699160878659...](https://t.me/ferretman/1269)
-- [192-168-l-l:In this practical tip, we explain how to assign a fixed IP address to your PC in your home network. In wireless networks, IP addresses are...](https://t.me/ferretman/1268)
-- [MediaMediabookworm-christina:atlas-prime:ottermatopoeia:castin spellsTai chiPlaying an invisible harpvia Ferret Story https://falalamingo.tumblr.com/p...](https://t.me/ferretman/1267)
+- [MediaThe Smooth Criminal Gif is making the Rounds again! Here’s a video I just found from 6 Years Ago, it has a whole story arc and the ending is per...](https://t.me/ferretman/1280)
+- [frederick-the-ii:*RARE* John Denver & Johnny Cash - Take Me Home Country RoadsFound this while going through my granddad’s VHS tapes and couldn’t fi...](https://t.me/ferretman/1279)
+- [MediaBeing lazyvia Ferret Story https://babyiwannaknow.tumblr.com/post/647021878787063808](https://t.me/ferretman/1278)
+- [tumblehcendrum:the-tide-is-out:OH MY &UCKING GOD!MediaEvery time people’s ability to find the perfect recation pictures blows me out of the water. Wh...](https://t.me/ferretman/1277)
+- [Mediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647021831422902273](https://t.me/ferretman/1276)
 <!-- TELEGRAM:END -->
