@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Buy FoenixGrey a Coffee. ko-fi.com/foenixgrey:phoenix:Hopefully the final push.  The last payment is due in a few days, and I still need some help. ...](https://t.me/ferretman/1304)
-- [MediaNew adoptee, Blossom, becomes best friends with her new brothers (Bernie and Sanders) after kept without a friend to play with her whole 8 months...](https://t.me/ferretman/1303)
-- [nerviovago:via Ferret Story https://scrisoridemai.tumblr.com/post/647123709616914432](https://t.me/ferretman/1302)
-- [MediaMonty waiting for his belly rubs…..via Ferret Story https://prettypeterparkr.tumblr.com/post/647123709608509440](https://t.me/ferretman/1301)
-- [MediaFerret is hyper AF : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647119950533787648](https://t.me/ferretman/1300)
+- [Mediaprofessorspork:#this single photo here validates the existence of the selfie stick I SWEAR TO GODvia Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/1294)
+- [MediaCan ferrets get along with ground squirrels?via Ferret Story https://prettypeterparkr.tumblr.com/post/647093540466376704](https://t.me/ferretman/1293)
+- [MediaMason being susvia Ferret Story https://scrisoridemai.tumblr.com/post/647093503853232128](https://t.me/ferretman/1292)
+- [MediaFull blep : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647089749736177664](https://t.me/ferretman/1291)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/647082277115969536](https://t.me/ferretman/1290)
 <!-- TELEGRAM:END -->
