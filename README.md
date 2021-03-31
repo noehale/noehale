@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSome fun in the snow while waiting for their group rooms to be cleaned. The one ferret dragging his legs is ok. Sammy was injured at petco, I was...](https://t.me/ferretman/1306)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/647161489440063488](https://t.me/ferretman/1305)
-- [Buy FoenixGrey a Coffee. ko-fi.com/foenixgrey:phoenix:Hopefully the final push.  The last payment is due in a few days, and I still need some help. ...](https://t.me/ferretman/1304)
-- [MediaNew adoptee, Blossom, becomes best friends with her new brothers (Bernie and Sanders) after kept without a friend to play with her whole 8 months...](https://t.me/ferretman/1303)
-- [nerviovago:via Ferret Story https://scrisoridemai.tumblr.com/post/647123709616914432](https://t.me/ferretman/1302)
+- [MediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/647187909293834240](https://t.me/ferretman/1314)
+- [talesfromtreatment:Today I got to go on one of our runs to more rural shelters to help relieve overcrowding there. We ended up bringing back 21 kitten...](https://t.me/ferretman/1313)
+- [MediaCEO of The Chonky Boy Clubvia Ferret Story https://prettypeterparkr.tumblr.com/post/647184084054966272](https://t.me/ferretman/1312)
+- [Mediarawr : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647180318885937152](https://t.me/ferretman/1311)
+- [Mediamikayla-conley:Beautifulvia Ferret Story https://redzgn.tumblr.com/post/647172823301881856](https://t.me/ferretman/1310)
 <!-- TELEGRAM:END -->
