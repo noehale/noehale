@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Buy FoenixGrey a Coffee. ko-fi.com/foenixgrey:phoenix:Hopefully the final push.  The last payment is due in a few days, and I still need some help. ...](https://t.me/ferretman/1304)
+- [MediaNew adoptee, Blossom, becomes best friends with her new brothers (Bernie and Sanders) after kept without a friend to play with her whole 8 months...](https://t.me/ferretman/1303)
+- [nerviovago:via Ferret Story https://scrisoridemai.tumblr.com/post/647123709616914432](https://t.me/ferretman/1302)
+- [MediaMonty waiting for his belly rubs…..via Ferret Story https://prettypeterparkr.tumblr.com/post/647123709608509440](https://t.me/ferretman/1301)
 - [MediaFerret is hyper AF : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647119950533787648](https://t.me/ferretman/1300)
-- [elvenferretots:vet-and-wild:elvenferretots:MediaCat trees are a staple when we go to the Pantalaimon Playground (pet store). He has a tree at home, bu...](https://t.me/ferretman/1299)
-- [Mediachauvinistsushi:effective job advia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647112482273509377](https://t.me/ferretman/1298)
-- [MediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/647112481775419392](https://t.me/ferretman/1297)
-- [MediaMediavia Ferret Story https://redzgn.tumblr.com/post/647112419341189120](https://t.me/ferretman/1296)
 <!-- TELEGRAM:END -->
