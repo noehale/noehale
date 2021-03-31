@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaprofessorspork:#this single photo here validates the existence of the selfie stick I SWEAR TO GODvia Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/1294)
-- [MediaCan ferrets get along with ground squirrels?via Ferret Story https://prettypeterparkr.tumblr.com/post/647093540466376704](https://t.me/ferretman/1293)
-- [MediaMason being susvia Ferret Story https://scrisoridemai.tumblr.com/post/647093503853232128](https://t.me/ferretman/1292)
-- [MediaFull blep : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647089749736177664](https://t.me/ferretman/1291)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/647082277115969536](https://t.me/ferretman/1290)
+- [MediaFerret is hyper AF : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647119950533787648](https://t.me/ferretman/1300)
+- [elvenferretots:vet-and-wild:elvenferretots:MediaCat trees are a staple when we go to the Pantalaimon Playground (pet store). He has a tree at home, bu...](https://t.me/ferretman/1299)
+- [Mediachauvinistsushi:effective job advia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647112482273509377](https://t.me/ferretman/1298)
+- [MediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/647112481775419392](https://t.me/ferretman/1297)
+- [MediaMediavia Ferret Story https://redzgn.tumblr.com/post/647112419341189120](https://t.me/ferretman/1296)
 <!-- TELEGRAM:END -->
