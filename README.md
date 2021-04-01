@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Needed a paper bag out of the drawer. Imagine my surprise…..](https://come-forth-into-the-light.tumblr.com/post/647278535144357888)
 - [Ferry Xmas friends! 🤍](https://come-forth-into-the-light.tumblr.com/post/647255817477931008)
 - [Hey that’s the cat food!](https://come-forth-into-the-light.tumblr.com/post/647210544745644032)
 - [kittn:luv ferrets 🐌 ♡](https://come-forth-into-the-light.tumblr.com/post/647187908927881216)
 - [Our new girl Ixora! Such a sweet, little love. 2.5 months old....](https://come-forth-into-the-light.tumblr.com/post/647165262899101696)
-- [i-am-fert:halt, travelerbefore you pass you must answer a riddlethe riddle is what do you got in...](https://come-forth-into-the-light.tumblr.com/post/647119950325088256)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
