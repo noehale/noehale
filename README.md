@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Hey that’s the cat food!](https://come-forth-into-the-light.tumblr.com/post/647210544745644032)
 - [kittn:luv ferrets 🐌 ♡](https://come-forth-into-the-light.tumblr.com/post/647187908927881216)
 - [Our new girl Ixora! Such a sweet, little love. 2.5 months old....](https://come-forth-into-the-light.tumblr.com/post/647165262899101696)
 - [i-am-fert:halt, travelerbefore you pass you must answer a riddlethe riddle is what do you got in...](https://come-forth-into-the-light.tumblr.com/post/647119950325088256)
 - [Kitteh doesn’t go in da baafroom Maama!](https://come-forth-into-the-light.tumblr.com/post/647097337511084032)
-- [My three boys!! : ferrets](https://come-forth-into-the-light.tumblr.com/post/647074647148544000)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
