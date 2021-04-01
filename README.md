@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/647218088231747584](https://t.me/ferretman/1323)
-- [thelifeofmyferrets:iwatobigreg:mothmaam:panicatthepilotsinbeaconhills:mothmaam:MediaOriginally posted by hechosastrologicosis your name snowman?AnnaMe...](https://t.me/ferretman/1322)
-- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://prettypeterparkr.tumblr.com/post/647214295977984000](https://t.me/ferretman/1321)
-- [MediaFerret selfie. Didn’t go as planned but it will do 😂😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647210540474712064](https://t.me/ferretman/1320)
-- [Mediazachpennington:This may be my favorite GIF.via Ferret Story https://falalamingo.tumblr.com/post/647203040485670912](https://t.me/ferretman/1319)
+- [MediaSo we taught our little girl to potty before we will let her outto play, or so I thought, I just caught her pretending to potty in her litter box...](https://t.me/ferretman/1330)
+- [MediaMy twins Arthur and Maeve ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647263417718259713](https://t.me/ferretman/1329)
+- [<a href="https://spicypolitics.tumblr.com/post/637094776644190208/2020-is-almost-over-and-all-i-gotta-say-is-what">spicypolitics</a>:<a href="https://...](https://t.me/ferretman/1328)
+- [ferretfiends:We have a new baby! Lana enjoys biting, jingly toys, biting, hiding brooms, biting, launching herself at things, and biting.via Ferret St...](https://t.me/ferretman/1327)
+- [MediaReggie is Soo cute when he sleeps : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647259602798460928](https://t.me/ferretman/1326)
 <!-- TELEGRAM:END -->
