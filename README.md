@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [The End of Gamers: dangolding: On the evidence of the last few weeks, what we are seeing is the end...via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/1334)
+- [lycanthrofee:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/647274719819792384](https://t.me/ferretman/1333)
+- [MediaBefore bed playtime 😊 💕via Ferret Story https://prettypeterparkr.tumblr.com/post/647274719727468544](https://t.me/ferretman/1332)
+- [Mediajonbutter:jonbutter:reblog this to have a Happy Wildcat New Year™not enough people reblogged this last year we gotta really try this time to hav...](https://t.me/ferretman/1331)
 - [MediaSo we taught our little girl to potty before we will let her outto play, or so I thought, I just caught her pretending to potty in her litter box...](https://t.me/ferretman/1330)
-- [MediaMy twins Arthur and Maeve ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647263417718259713](https://t.me/ferretman/1329)
-- [<a href="https://spicypolitics.tumblr.com/post/637094776644190208/2020-is-almost-over-and-all-i-gotta-say-is-what">spicypolitics</a>:<a href="https://...](https://t.me/ferretman/1328)
-- [ferretfiends:We have a new baby! Lana enjoys biting, jingly toys, biting, hiding brooms, biting, launching herself at things, and biting.via Ferret St...](https://t.me/ferretman/1327)
-- [MediaReggie is Soo cute when he sleeps : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647259602798460928](https://t.me/ferretman/1326)
 <!-- TELEGRAM:END -->
