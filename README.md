@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaWhen Wasabi helps you brush your teeth 🦦🦦🦦 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647252053364785152](https://t.me/ferretman/1325)
+- [MediaThe ladies love him. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647221856168034304](https://t.me/ferretman/1324)
 - [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/647218088231747584](https://t.me/ferretman/1323)
 - [thelifeofmyferrets:iwatobigreg:mothmaam:panicatthepilotsinbeaconhills:mothmaam:MediaOriginally posted by hechosastrologicosis your name snowman?AnnaMe...](https://t.me/ferretman/1322)
 - [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://prettypeterparkr.tumblr.com/post/647214295977984000](https://t.me/ferretman/1321)
-- [MediaFerret selfie. Didn’t go as planned but it will do 😂😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647210540474712064](https://t.me/ferretman/1320)
-- [Mediazachpennington:This may be my favorite GIF.via Ferret Story https://falalamingo.tumblr.com/post/647203040485670912](https://t.me/ferretman/1319)
 <!-- TELEGRAM:END -->
