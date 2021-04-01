@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/647187909293834240](https://t.me/ferretman/1314)
-- [talesfromtreatment:Today I got to go on one of our runs to more rural shelters to help relieve overcrowding there. We ended up bringing back 21 kitten...](https://t.me/ferretman/1313)
-- [MediaCEO of The Chonky Boy Clubvia Ferret Story https://prettypeterparkr.tumblr.com/post/647184084054966272](https://t.me/ferretman/1312)
-- [Mediarawr : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647180318885937152](https://t.me/ferretman/1311)
-- [Mediamikayla-conley:Beautifulvia Ferret Story https://redzgn.tumblr.com/post/647172823301881856](https://t.me/ferretman/1310)
+- [Mediazachpennington:This may be my favorite GIF.via Ferret Story https://falalamingo.tumblr.com/post/647203040485670912](https://t.me/ferretman/1319)
+- [kidouyuuto:kidouyuuto:i know this is dumb but i think that australia exists like?? the ocean is largely unexplored there could very well be a fallen e...](https://t.me/ferretman/1318)
+- [magic-and-moonlit-wings:leonei-d:emmeetslawschool:thenatsdorf:Bff’s from the beginning.that baby is making biscuits on that cat. what a role reversal...](https://t.me/ferretman/1317)
+- [breadmaakesyoufat:me: i cant move, a cute animal is asleep on meperson: push it offme: [enraged and offended] via Ferret Story https://babyiwannaknow...](https://t.me/ferretman/1316)
+- [MediaI Love it : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647199217619714049](https://t.me/ferretman/1315)
 <!-- TELEGRAM:END -->
