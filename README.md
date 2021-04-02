@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Fishing for weasels!](https://come-forth-into-the-light.tumblr.com/post/647369108609007616)
 - [Ella always wants to be the little spoon that gets the back...](https://come-forth-into-the-light.tumblr.com/post/647346450217451520)
 - [Our Christmas tree is pompoms with lights. Diesel approved of...](https://come-forth-into-the-light.tumblr.com/post/647301122278686720)
 - [Needed a paper bag out of the drawer. Imagine my surprise…..](https://come-forth-into-the-light.tumblr.com/post/647278535144357888)
 - [Ferry Xmas friends! 🤍](https://come-forth-into-the-light.tumblr.com/post/647255817477931008)
-- [Hey that’s the cat food!](https://come-forth-into-the-light.tumblr.com/post/647210544745644032)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
