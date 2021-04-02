@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaFerret Recall- I’ve been training my 4 jills to come on recall.Wanted to show you the progress.Yes there is only 3 visible in this video because...](https://t.me/ferretman/1354)
+- [MediaMy babies have been getting out a lot longer than usual.. now moose falls asleep on the floor.. that’s how I know they’ve been out long enough!...](https://t.me/ferretman/1353)
+- [Mediarowangoat:macabrechalice0:rowangoat:the shirt’s backNot to be a downer but don’t goats have gender too?Mediavia Ferret Story https://prettypete...](https://t.me/ferretman/1352)
+- [Mediawhy is my ferret lifting his tail and shaking? (he is eating, drinking, playing normally) : ferretsvia Ferret Story https://anasfalhhhs.tumblr.co...](https://t.me/ferretman/1351)
 - [MediaDreaming of escaping his warm home full of love and toys 🙄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647354020049174528](https://t.me/ferretman/1350)
-- [MediaHe is forever obsessed with plastic bagsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647353980775759872](https://t.me/ferretman/1349)
-- [MediaMediaMediaMediaMediaMediaMediaMediatarynel:queenciityconfidential:kidsindespair:notsosubtlegaymer:almostsebastien:Who is this!?!??His name is Ste...](https://t.me/ferretman/1348)
-- [via Ferret Story https://babyiwannaknow.tumblr.com/post/647353980100493312](https://t.me/ferretman/1347)
-- [MediaHe likes to grab my fingers and make me follow him around the room/bed. It’s quite annoying but very cute. Sometimes he can be too rough but he...](https://t.me/ferretman/1346)
 <!-- TELEGRAM:END -->
