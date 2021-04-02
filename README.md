@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaPancake Tuesday : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647312495119400961](https://t.me/ferretman/1344)
+- [darrynek: what she says: no what she really means: novia Ferret Story https://just-a-catastrophy.tumblr.com/post/647308665504907264](https://t.me/ferretman/1343)
+- [MediaPop goes the weasel!!via Ferret Story https://scrisoridemai.tumblr.com/post/647304933107974144](https://t.me/ferretman/1342)
+- [thedailylaughs:im-patrick-stumped:this-is-cthulhu-privilege:spookleic-asshole:ilikechildren–fried:the-clockwork-crow:eee-in:the-clockwork-crow:fuckbo...](https://t.me/ferretman/1341)
 - [Mediaoliver does not have a blockage and he’s doing just fine! he’s being himself; although i was woke up a few times this morning with some questio...](https://t.me/ferretman/1340)
-- [nakedorange:krysta-kicky-feet:lioness-roar:quickweaves:guccimaneuver:britteryikes:This is terrifying.this is so fucking disgusting smhMy god I have ne...](https://t.me/ferretman/1339)
-- [MediaMy little Loki posing for treaties 😊😊 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647293596798746624](https://t.me/ferretman/1338)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasuperdrivel:sesiondemadrugada:Richard Savoie.Oh yeah, tell me more about thomas kinkadevia Ferret St...](https://t.me/ferretman/1337)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/647293596274507776](https://t.me/ferretman/1336)
 <!-- TELEGRAM:END -->
