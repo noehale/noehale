@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaPancake Tuesday : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647312495119400961](https://t.me/ferretman/1344)
-- [darrynek: what she says: no what she really means: novia Ferret Story https://just-a-catastrophy.tumblr.com/post/647308665504907264](https://t.me/ferretman/1343)
-- [MediaPop goes the weasel!!via Ferret Story https://scrisoridemai.tumblr.com/post/647304933107974144](https://t.me/ferretman/1342)
-- [thedailylaughs:im-patrick-stumped:this-is-cthulhu-privilege:spookleic-asshole:ilikechildren–fried:the-clockwork-crow:eee-in:the-clockwork-crow:fuckbo...](https://t.me/ferretman/1341)
-- [Mediaoliver does not have a blockage and he’s doing just fine! he’s being himself; although i was woke up a few times this morning with some questio...](https://t.me/ferretman/1340)
+- [MediaDreaming of escaping his warm home full of love and toys 🙄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647354020049174528](https://t.me/ferretman/1350)
+- [MediaHe is forever obsessed with plastic bagsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647353980775759872](https://t.me/ferretman/1349)
+- [MediaMediaMediaMediaMediaMediaMediaMediatarynel:queenciityconfidential:kidsindespair:notsosubtlegaymer:almostsebastien:Who is this!?!??His name is Ste...](https://t.me/ferretman/1348)
+- [via Ferret Story https://babyiwannaknow.tumblr.com/post/647353980100493312](https://t.me/ferretman/1347)
+- [MediaHe likes to grab my fingers and make me follow him around the room/bed. It’s quite annoying but very cute. Sometimes he can be too rough but he...](https://t.me/ferretman/1346)
 <!-- TELEGRAM:END -->
