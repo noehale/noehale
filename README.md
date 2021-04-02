@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [The End of Gamers: dangolding: On the evidence of the last few weeks, what we are seeing is the end...via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/1334)
-- [lycanthrofee:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/647274719819792384](https://t.me/ferretman/1333)
-- [MediaBefore bed playtime 😊 💕via Ferret Story https://prettypeterparkr.tumblr.com/post/647274719727468544](https://t.me/ferretman/1332)
-- [Mediajonbutter:jonbutter:reblog this to have a Happy Wildcat New Year™not enough people reblogged this last year we gotta really try this time to hav...](https://t.me/ferretman/1331)
-- [MediaSo we taught our little girl to potty before we will let her outto play, or so I thought, I just caught her pretending to potty in her litter box...](https://t.me/ferretman/1330)
+- [Mediaoliver does not have a blockage and he’s doing just fine! he’s being himself; although i was woke up a few times this morning with some questio...](https://t.me/ferretman/1340)
+- [nakedorange:krysta-kicky-feet:lioness-roar:quickweaves:guccimaneuver:britteryikes:This is terrifying.this is so fucking disgusting smhMy god I have ne...](https://t.me/ferretman/1339)
+- [MediaMy little Loki posing for treaties 😊😊 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647293596798746624](https://t.me/ferretman/1338)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasuperdrivel:sesiondemadrugada:Richard Savoie.Oh yeah, tell me more about thomas kinkadevia Ferret St...](https://t.me/ferretman/1337)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/647293596274507776](https://t.me/ferretman/1336)
 <!-- TELEGRAM:END -->
