@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFerret Recall- I’ve been training my 4 jills to come on recall.Wanted to show you the progress.Yes there is only 3 visible in this video because...](https://t.me/ferretman/1354)
-- [MediaMy babies have been getting out a lot longer than usual.. now moose falls asleep on the floor.. that’s how I know they’ve been out long enough!...](https://t.me/ferretman/1353)
-- [Mediarowangoat:macabrechalice0:rowangoat:the shirt’s backNot to be a downer but don’t goats have gender too?Mediavia Ferret Story https://prettypete...](https://t.me/ferretman/1352)
-- [Mediawhy is my ferret lifting his tail and shaking? (he is eating, drinking, playing normally) : ferretsvia Ferret Story https://anasfalhhhs.tumblr.co...](https://t.me/ferretman/1351)
-- [MediaDreaming of escaping his warm home full of love and toys 🙄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647354020049174528](https://t.me/ferretman/1350)
+- [The End of Gamers: dangolding: On the evidence of the last few weeks, what we are seeing is the end...via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/1334)
+- [lycanthrofee:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/647274719819792384](https://t.me/ferretman/1333)
+- [MediaBefore bed playtime 😊 💕via Ferret Story https://prettypeterparkr.tumblr.com/post/647274719727468544](https://t.me/ferretman/1332)
+- [Mediajonbutter:jonbutter:reblog this to have a Happy Wildcat New Year™not enough people reblogged this last year we gotta really try this time to hav...](https://t.me/ferretman/1331)
+- [MediaSo we taught our little girl to potty before we will let her outto play, or so I thought, I just caught her pretending to potty in her litter box...](https://t.me/ferretman/1330)
 <!-- TELEGRAM:END -->
