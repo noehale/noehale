@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediablinddarkness:rlmjob:welcome to my blogthe sign looks like it’s walking towards me i feel threatenedvia Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/1364)
-- [MediaHelp! I’m being robbed!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647399272537636864](https://t.me/ferretman/1363)
-- [MediaHammock or Ferret swing? : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/647395541414821888](https://t.me/ferretman/1362)
-- [MediaThink we found Týr’s new favorite song! (or least favorite…hard to tell) 😂via Ferret Story https://prettypeterparkr.tumblr.com/post/6473955...](https://t.me/ferretman/1361)
-- [MediaMediakierongillen:Comics Alliance reveals the covers for the first issue.Jamie’s selling these as limited edition prints too.And, yes, this is t...](https://t.me/ferretman/1360)
+- [MediaDreaming of escaping his warm home full of love and toys 🙄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647354020049174528](https://t.me/ferretman/1350)
+- [MediaHe is forever obsessed with plastic bagsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647353980775759872](https://t.me/ferretman/1349)
+- [MediaMediaMediaMediaMediaMediaMediaMediatarynel:queenciityconfidential:kidsindespair:notsosubtlegaymer:almostsebastien:Who is this!?!??His name is Ste...](https://t.me/ferretman/1348)
+- [via Ferret Story https://babyiwannaknow.tumblr.com/post/647353980100493312](https://t.me/ferretman/1347)
+- [MediaHe likes to grab my fingers and make me follow him around the room/bed. It’s quite annoying but very cute. Sometimes he can be too rough but he...](https://t.me/ferretman/1346)
 <!-- TELEGRAM:END -->
