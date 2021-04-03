@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [The End of Gamers: dangolding: On the evidence of the last few weeks, what we are seeing is the end...via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/1334)
-- [lycanthrofee:Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/647274719819792384](https://t.me/ferretman/1333)
-- [MediaBefore bed playtime 😊 💕via Ferret Story https://prettypeterparkr.tumblr.com/post/647274719727468544](https://t.me/ferretman/1332)
-- [Mediajonbutter:jonbutter:reblog this to have a Happy Wildcat New Year™not enough people reblogged this last year we gotta really try this time to hav...](https://t.me/ferretman/1331)
-- [MediaSo we taught our little girl to potty before we will let her outto play, or so I thought, I just caught her pretending to potty in her litter box...](https://t.me/ferretman/1330)
+- [Mediablinddarkness:rlmjob:welcome to my blogthe sign looks like it’s walking towards me i feel threatenedvia Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/1364)
+- [MediaHelp! I’m being robbed!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647399272537636864](https://t.me/ferretman/1363)
+- [MediaHammock or Ferret swing? : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/647395541414821888](https://t.me/ferretman/1362)
+- [MediaThink we found Týr’s new favorite song! (or least favorite…hard to tell) 😂via Ferret Story https://prettypeterparkr.tumblr.com/post/6473955...](https://t.me/ferretman/1361)
+- [MediaMediakierongillen:Comics Alliance reveals the covers for the first issue.Jamie’s selling these as limited edition prints too.And, yes, this is t...](https://t.me/ferretman/1360)
 <!-- TELEGRAM:END -->
