@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaLoony enjoying her afternoon nap : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647440787569803264](https://t.me/ferretman/1366)
+- [edating:yes ur allowed to have other friends u just have to love me morevia Ferret Story https://punkrocknat.tumblr.com/post/647433222471532544](https://t.me/ferretman/1365)
 - [Mediablinddarkness:rlmjob:welcome to my blogthe sign looks like it’s walking towards me i feel threatenedvia Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/1364)
 - [MediaHelp! I’m being robbed!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647399272537636864](https://t.me/ferretman/1363)
 - [MediaHammock or Ferret swing? : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/647395541414821888](https://t.me/ferretman/1362)
-- [MediaThink we found Týr’s new favorite song! (or least favorite…hard to tell) 😂via Ferret Story https://prettypeterparkr.tumblr.com/post/6473955...](https://t.me/ferretman/1361)
-- [MediaMediakierongillen:Comics Alliance reveals the covers for the first issue.Jamie’s selling these as limited edition prints too.And, yes, this is t...](https://t.me/ferretman/1360)
 <!-- TELEGRAM:END -->
