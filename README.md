@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaLoony enjoying her afternoon nap : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647440787569803264](https://t.me/ferretman/1366)
-- [edating:yes ur allowed to have other friends u just have to love me morevia Ferret Story https://punkrocknat.tumblr.com/post/647433222471532544](https://t.me/ferretman/1365)
-- [Mediablinddarkness:rlmjob:welcome to my blogthe sign looks like it’s walking towards me i feel threatenedvia Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/1364)
-- [MediaHelp! I’m being robbed!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647399272537636864](https://t.me/ferretman/1363)
-- [MediaHammock or Ferret swing? : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/647395541414821888](https://t.me/ferretman/1362)
+- [MediaI built a ramp today to help the ferrets get up and down from the couch a lot easier without having to jump. Plus there is a way for them to get ...](https://t.me/ferretman/1372)
+- [MediaFerret love!via Ferret Story https://prettypeterparkr.tumblr.com/post/647455882478764032](https://t.me/ferretman/1371)
+- [MediaMy little man either loves or hates the camera ♥ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647452112369926144](https://t.me/ferretman/1370)
+- [MediaExcuse me, I was wondering if it was play time? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647444690608717824](https://t.me/ferretman/1369)
+- [MediaTime to find a new solution for shoe storage…anyone find this relatable? : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.co...](https://t.me/ferretman/1368)
 <!-- TELEGRAM:END -->
