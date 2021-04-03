@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaTotal shutdown after a hard day playing. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647471050232397824](https://t.me/ferretman/1374)
+- [MediaSoda Pop had a huge bladder stone removed a few weeks ago, she’s doing much better now!via Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/1373)
 - [MediaI built a ramp today to help the ferrets get up and down from the couch a lot easier without having to jump. Plus there is a way for them to get ...](https://t.me/ferretman/1372)
 - [MediaFerret love!via Ferret Story https://prettypeterparkr.tumblr.com/post/647455882478764032](https://t.me/ferretman/1371)
 - [MediaMy little man either loves or hates the camera ♥ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647452112369926144](https://t.me/ferretman/1370)
-- [MediaExcuse me, I was wondering if it was play time? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647444690608717824](https://t.me/ferretman/1369)
-- [MediaTime to find a new solution for shoe storage…anyone find this relatable? : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.co...](https://t.me/ferretman/1368)
 <!-- TELEGRAM:END -->
