@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaDreaming of escaping his warm home full of love and toys 🙄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647354020049174528](https://t.me/ferretman/1350)
-- [MediaHe is forever obsessed with plastic bagsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647353980775759872](https://t.me/ferretman/1349)
-- [MediaMediaMediaMediaMediaMediaMediaMediatarynel:queenciityconfidential:kidsindespair:notsosubtlegaymer:almostsebastien:Who is this!?!??His name is Ste...](https://t.me/ferretman/1348)
-- [via Ferret Story https://babyiwannaknow.tumblr.com/post/647353980100493312](https://t.me/ferretman/1347)
-- [MediaHe likes to grab my fingers and make me follow him around the room/bed. It’s quite annoying but very cute. Sometimes he can be too rough but he...](https://t.me/ferretman/1346)
+- [Mediamy babies beck and pixie!via Ferret Story https://scrisoridemai.tumblr.com/post/647486110513135616](https://t.me/ferretman/1381)
+- [Mediakari999:character belongs to https://cherrvak.tumblr.com/ via Ferret Story https://prettypeterparkr.tumblr.com/post/647486110495375360](https://t.me/ferretman/1380)
+- [Mediai’ve been out of town and my friend had been watching my babies and i noticed his paw was black/purple, i’m trying to get him to a vet asap but...](https://t.me/ferretman/1379)
+- [MediaMediaflowersinmyphro:carl-thecreator:JUST LETTING Y'ALL KNOW WHERE THIS BLOG STANDS.Reblog every time it hits my Dashvia Ferret Story https://fal...](https://t.me/ferretman/1378)
+- [MediaMy two boys, Howl and Totoro!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647474783432359936](https://t.me/ferretman/1377)
 <!-- TELEGRAM:END -->
