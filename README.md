@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [yourplayersaidwhat:imagealignment: frenchvia Ferret Story https://falalamingo.tumblr.com/post/647535279994994688](https://t.me/ferretman/1389)
-- [MediaIs this normal? He has only done that with this toy we just got it for him they each have one but he just starts to make that sound it sounds lik...](https://t.me/ferretman/1388)
-- [barbaraofrps:doubleshot8:kyokobi:wizardbf:kyraneko:radpeacharbiter:floambones:every year after you turn 17 you get further away from being the age of ...](https://t.me/ferretman/1387)
-- [MediaThese two are so lazy, pixie (white) would rather lounge in the grass and Rouge (polecat) would rather climb my leg and sit on my shoulder… Pixi...](https://t.me/ferretman/1386)
-- [MediaLoki wants you all to know he makes a very cuddly pretzel : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647535190...](https://t.me/ferretman/1385)
+- [rainaweather:excima:today’s moodI feel like I’m watching a surrealist painting happen live. via Ferret Story https://punkrocknat.tumblr.com/post/64...](https://t.me/ferretman/1383)
+- [MediaMy smart boy has learned how to climb his cat tree and “sit pretty” on command for treats. I’m such a proud mom 😊 besides who could refuse ...](https://t.me/ferretman/1382)
+- [Mediamy babies beck and pixie!via Ferret Story https://scrisoridemai.tumblr.com/post/647486110513135616](https://t.me/ferretman/1381)
+- [Mediakari999:character belongs to https://cherrvak.tumblr.com/ via Ferret Story https://prettypeterparkr.tumblr.com/post/647486110495375360](https://t.me/ferretman/1380)
+- [Mediai’ve been out of town and my friend had been watching my babies and i noticed his paw was black/purple, i’m trying to get him to a vet asap but...](https://t.me/ferretman/1379)
 <!-- TELEGRAM:END -->
