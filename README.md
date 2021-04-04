@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [rainaweather:excima:today’s moodI feel like I’m watching a surrealist painting happen live. via Ferret Story https://punkrocknat.tumblr.com/post/64...](https://t.me/ferretman/1383)
-- [MediaMy smart boy has learned how to climb his cat tree and “sit pretty” on command for treats. I’m such a proud mom 😊 besides who could refuse ...](https://t.me/ferretman/1382)
-- [Mediamy babies beck and pixie!via Ferret Story https://scrisoridemai.tumblr.com/post/647486110513135616](https://t.me/ferretman/1381)
-- [Mediakari999:character belongs to https://cherrvak.tumblr.com/ via Ferret Story https://prettypeterparkr.tumblr.com/post/647486110495375360](https://t.me/ferretman/1380)
-- [Mediai’ve been out of town and my friend had been watching my babies and i noticed his paw was black/purple, i’m trying to get him to a vet asap but...](https://t.me/ferretman/1379)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/647550358125690880](https://t.me/ferretman/1393)
+- [MediaMediaMediabob-artist:bob-artist:bob-artist:Very pleased with my new pair of NikesBREAKING NEWSMediathe shoe fitsimageA little faded with age, but...](https://t.me/ferretman/1392)
+- [MediaWhen your ferret is so sleepy he turns into a puddlevia Ferret Story https://prettypeterparkr.tumblr.com/post/647546482515460096](https://t.me/ferretman/1391)
+- [Media:p : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647542716871344129](https://t.me/ferretman/1390)
+- [yourplayersaidwhat:imagealignment: frenchvia Ferret Story https://falalamingo.tumblr.com/post/647535279994994688](https://t.me/ferretman/1389)
 <!-- TELEGRAM:END -->
