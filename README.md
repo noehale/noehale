@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaTotal shutdown after a hard day playing. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647471050232397824](https://t.me/ferretman/1374)
-- [MediaSoda Pop had a huge bladder stone removed a few weeks ago, she’s doing much better now!via Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/1373)
-- [MediaI built a ramp today to help the ferrets get up and down from the couch a lot easier without having to jump. Plus there is a way for them to get ...](https://t.me/ferretman/1372)
-- [MediaFerret love!via Ferret Story https://prettypeterparkr.tumblr.com/post/647455882478764032](https://t.me/ferretman/1371)
-- [MediaMy little man either loves or hates the camera ♥ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647452112369926144](https://t.me/ferretman/1370)
+- [rainaweather:excima:today’s moodI feel like I’m watching a surrealist painting happen live. via Ferret Story https://punkrocknat.tumblr.com/post/64...](https://t.me/ferretman/1383)
+- [MediaMy smart boy has learned how to climb his cat tree and “sit pretty” on command for treats. I’m such a proud mom 😊 besides who could refuse ...](https://t.me/ferretman/1382)
+- [Mediamy babies beck and pixie!via Ferret Story https://scrisoridemai.tumblr.com/post/647486110513135616](https://t.me/ferretman/1381)
+- [Mediakari999:character belongs to https://cherrvak.tumblr.com/ via Ferret Story https://prettypeterparkr.tumblr.com/post/647486110495375360](https://t.me/ferretman/1380)
+- [Mediai’ve been out of town and my friend had been watching my babies and i noticed his paw was black/purple, i’m trying to get him to a vet asap but...](https://t.me/ferretman/1379)
 <!-- TELEGRAM:END -->
