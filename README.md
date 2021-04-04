@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediamy babies beck and pixie!via Ferret Story https://scrisoridemai.tumblr.com/post/647486110513135616](https://t.me/ferretman/1381)
-- [Mediakari999:character belongs to https://cherrvak.tumblr.com/ via Ferret Story https://prettypeterparkr.tumblr.com/post/647486110495375360](https://t.me/ferretman/1380)
-- [Mediai’ve been out of town and my friend had been watching my babies and i noticed his paw was black/purple, i’m trying to get him to a vet asap but...](https://t.me/ferretman/1379)
-- [MediaMediaflowersinmyphro:carl-thecreator:JUST LETTING Y'ALL KNOW WHERE THIS BLOG STANDS.Reblog every time it hits my Dashvia Ferret Story https://fal...](https://t.me/ferretman/1378)
-- [MediaMy two boys, Howl and Totoro!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647474783432359936](https://t.me/ferretman/1377)
+- [MediaTotal shutdown after a hard day playing. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647471050232397824](https://t.me/ferretman/1374)
+- [MediaSoda Pop had a huge bladder stone removed a few weeks ago, she’s doing much better now!via Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/1373)
+- [MediaI built a ramp today to help the ferrets get up and down from the couch a lot easier without having to jump. Plus there is a way for them to get ...](https://t.me/ferretman/1372)
+- [MediaFerret love!via Ferret Story https://prettypeterparkr.tumblr.com/post/647455882478764032](https://t.me/ferretman/1371)
+- [MediaMy little man either loves or hates the camera ♥ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647452112369926144](https://t.me/ferretman/1370)
 <!-- TELEGRAM:END -->
