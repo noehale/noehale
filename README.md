@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [After the a trip to the pet store. Rest and Relaxation. I love...](https://come-forth-into-the-light.tumblr.com/post/647527604127219712)
 - [Little boy](https://come-forth-into-the-light.tumblr.com/post/647482320734027776)
 - [Just adopted Princess Cindy ❤](https://come-forth-into-the-light.tumblr.com/post/647459725364150273)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/647437004958793729)
 - [Pick me up? Pweeez? 🥺(I was searching for something on my phone...](https://come-forth-into-the-light.tumblr.com/post/647391724927418368)
-- [Fishing for weasels!](https://come-forth-into-the-light.tumblr.com/post/647369108609007616)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
