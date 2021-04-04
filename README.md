@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [rainaweather:excima:today’s moodI feel like I’m watching a surrealist painting happen live. via Ferret Story https://punkrocknat.tumblr.com/post/64...](https://t.me/ferretman/1383)
-- [MediaMy smart boy has learned how to climb his cat tree and “sit pretty” on command for treats. I’m such a proud mom 😊 besides who could refuse ...](https://t.me/ferretman/1382)
 - [Mediamy babies beck and pixie!via Ferret Story https://scrisoridemai.tumblr.com/post/647486110513135616](https://t.me/ferretman/1381)
 - [Mediakari999:character belongs to https://cherrvak.tumblr.com/ via Ferret Story https://prettypeterparkr.tumblr.com/post/647486110495375360](https://t.me/ferretman/1380)
 - [Mediai’ve been out of town and my friend had been watching my babies and i noticed his paw was black/purple, i’m trying to get him to a vet asap but...](https://t.me/ferretman/1379)
+- [MediaMediaflowersinmyphro:carl-thecreator:JUST LETTING Y'ALL KNOW WHERE THIS BLOG STANDS.Reblog every time it hits my Dashvia Ferret Story https://fal...](https://t.me/ferretman/1378)
+- [MediaMy two boys, Howl and Totoro!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647474783432359936](https://t.me/ferretman/1377)
 <!-- TELEGRAM:END -->
