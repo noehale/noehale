@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/647550358125690880](https://t.me/ferretman/1393)
-- [MediaMediaMediabob-artist:bob-artist:bob-artist:Very pleased with my new pair of NikesBREAKING NEWSMediathe shoe fitsimageA little faded with age, but...](https://t.me/ferretman/1392)
-- [MediaWhen your ferret is so sleepy he turns into a puddlevia Ferret Story https://prettypeterparkr.tumblr.com/post/647546482515460096](https://t.me/ferretman/1391)
-- [Media:p : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647542716871344129](https://t.me/ferretman/1390)
-- [yourplayersaidwhat:imagealignment: frenchvia Ferret Story https://falalamingo.tumblr.com/post/647535279994994688](https://t.me/ferretman/1389)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/647565442277408768](https://t.me/ferretman/1398)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647565436834250752](https://t.me/ferretman/1397)
+- [snout:being a macroorganism is so stressful. i want to know what my cells are doing. I don’t like how unsupervised they arevia Ferret Story https://x...](https://t.me/ferretman/1396)
+- [Media‘She’s just perfect,’ says scientist who helped clone an endangered ferret – CBC News Articlevia Ferret Story https://falalamingo.tumblr.com/...](https://t.me/ferretman/1395)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/647565385406857216](https://t.me/ferretman/1394)
 <!-- TELEGRAM:END -->
