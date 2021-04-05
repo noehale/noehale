@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaLoony enjoying her afternoon nap : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647440787569803264](https://t.me/ferretman/1366)
-- [edating:yes ur allowed to have other friends u just have to love me morevia Ferret Story https://punkrocknat.tumblr.com/post/647433222471532544](https://t.me/ferretman/1365)
-- [Mediablinddarkness:rlmjob:welcome to my blogthe sign looks like it’s walking towards me i feel threatenedvia Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/1364)
-- [MediaHelp! I’m being robbed!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647399272537636864](https://t.me/ferretman/1363)
-- [MediaHammock or Ferret swing? : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/647395541414821888](https://t.me/ferretman/1362)
+- [MediaWell at least we can say we tried 😅 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647584276306690048](https://t.me/ferretman/1403)
+- [MediaMediaMediaMediaskullgarden:hey everyone! I just launched a Kickstarter to fund the purchase and operation of a large scale giclee printer so I ca...](https://t.me/ferretman/1402)
+- [Mediatheferrets:When you’re cute af you look like disvia Ferret Story https://scrisoridemai.tumblr.com/post/647576694376497152](https://t.me/ferretman/1401)
+- [thelifeofmyferrets:MediaDucky’s favorite toy is his frisbee.via Ferret Story https://prettypeterparkr.tumblr.com/post/647576694050390016](https://t.me/ferretman/1400)
+- [MediaCrash and ida they look like ying and yang ^^ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647572928609812482](https://t.me/ferretman/1399)
 <!-- TELEGRAM:END -->
