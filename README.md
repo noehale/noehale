@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediasweetbonbonqueen:Reblog to have something good happen at 1:42 tomorrowvia Ferret Story https://punkrocknat.tumblr.com/post/647614433780187137](https://t.me/ferretman/1404)
-- [MediaWell at least we can say we tried 😅 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647584276306690048](https://t.me/ferretman/1403)
-- [MediaMediaMediaMediaskullgarden:hey everyone! I just launched a Kickstarter to fund the purchase and operation of a large scale giclee printer so I ca...](https://t.me/ferretman/1402)
-- [Mediatheferrets:When you’re cute af you look like disvia Ferret Story https://scrisoridemai.tumblr.com/post/647576694376497152](https://t.me/ferretman/1401)
-- [thelifeofmyferrets:MediaDucky’s favorite toy is his frisbee.via Ferret Story https://prettypeterparkr.tumblr.com/post/647576694050390016](https://t.me/ferretman/1400)
+- [MediaI’d die for Tiva🐾 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647629538294218753](https://t.me/ferretman/1410)
+- [MediaSleeping ferret doesn’t want to wake up 😂 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647625843708919808](https://t.me/ferretman/1409)
+- [MediaSexy Ferret Pizza : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647625842611126272](https://t.me/ferretman/1408)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Botanical KnivesPocono Mountains Forge on Etsyvia Ferret Story https://somewhere-inth...](https://t.me/ferretman/1407)
+- [jerkofficial:looking back at your first url imagevia Ferret Story https://redzgn.tumblr.com/post/647625810786893824](https://t.me/ferretman/1406)
 <!-- TELEGRAM:END -->
