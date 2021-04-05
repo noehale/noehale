@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWell at least we can say we tried 😅 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647584276306690048](https://t.me/ferretman/1403)
-- [MediaMediaMediaMediaskullgarden:hey everyone! I just launched a Kickstarter to fund the purchase and operation of a large scale giclee printer so I ca...](https://t.me/ferretman/1402)
-- [Mediatheferrets:When you’re cute af you look like disvia Ferret Story https://scrisoridemai.tumblr.com/post/647576694376497152](https://t.me/ferretman/1401)
-- [thelifeofmyferrets:MediaDucky’s favorite toy is his frisbee.via Ferret Story https://prettypeterparkr.tumblr.com/post/647576694050390016](https://t.me/ferretman/1400)
-- [MediaCrash and ida they look like ying and yang ^^ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647572928609812482](https://t.me/ferretman/1399)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/647550358125690880](https://t.me/ferretman/1393)
+- [MediaMediaMediabob-artist:bob-artist:bob-artist:Very pleased with my new pair of NikesBREAKING NEWSMediathe shoe fitsimageA little faded with age, but...](https://t.me/ferretman/1392)
+- [MediaWhen your ferret is so sleepy he turns into a puddlevia Ferret Story https://prettypeterparkr.tumblr.com/post/647546482515460096](https://t.me/ferretman/1391)
+- [Media:p : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647542716871344129](https://t.me/ferretman/1390)
+- [yourplayersaidwhat:imagealignment: frenchvia Ferret Story https://falalamingo.tumblr.com/post/647535279994994688](https://t.me/ferretman/1389)
 <!-- TELEGRAM:END -->
