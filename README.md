@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediamy ferret when she was 3 months old :]via Ferret Story https://just-a-catastrophy.tumblr.com/post/647640904062124032](https://t.me/ferretman/1413)
+- [Mediatheferrets:theferrets:The ferrets must think they’re dirty laundry or something, cause this is our laundry hamper! Silly Ferts! My heartvia Fer...](https://t.me/ferretman/1412)
+- [thelifeofmyferrets:MediaMediaMedia$.25 for a kiss from Duckyvia Ferret Story https://prettypeterparkr.tumblr.com/post/647637098770350080](https://t.me/ferretman/1411)
 - [MediaI’d die for Tiva🐾 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647629538294218753](https://t.me/ferretman/1410)
 - [MediaSleeping ferret doesn’t want to wake up 😂 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647625843708919808](https://t.me/ferretman/1409)
-- [MediaSexy Ferret Pizza : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647625842611126272](https://t.me/ferretman/1408)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Botanical KnivesPocono Mountains Forge on Etsyvia Ferret Story https://somewhere-inth...](https://t.me/ferretman/1407)
-- [jerkofficial:looking back at your first url imagevia Ferret Story https://redzgn.tumblr.com/post/647625810786893824](https://t.me/ferretman/1406)
 <!-- TELEGRAM:END -->
