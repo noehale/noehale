@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/647565442277408768](https://t.me/ferretman/1398)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647565436834250752](https://t.me/ferretman/1397)
-- [snout:being a macroorganism is so stressful. i want to know what my cells are doing. I don’t like how unsupervised they arevia Ferret Story https://x...](https://t.me/ferretman/1396)
-- [Media‘She’s just perfect,’ says scientist who helped clone an endangered ferret – CBC News Articlevia Ferret Story https://falalamingo.tumblr.com/...](https://t.me/ferretman/1395)
-- [Mediavia Ferret Story https://redzgn.tumblr.com/post/647565385406857216](https://t.me/ferretman/1394)
+- [MediaLoony enjoying her afternoon nap : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647440787569803264](https://t.me/ferretman/1366)
+- [edating:yes ur allowed to have other friends u just have to love me morevia Ferret Story https://punkrocknat.tumblr.com/post/647433222471532544](https://t.me/ferretman/1365)
+- [Mediablinddarkness:rlmjob:welcome to my blogthe sign looks like it’s walking towards me i feel threatenedvia Ferret Story https://punkrocknat.tumblr....](https://t.me/ferretman/1364)
+- [MediaHelp! I’m being robbed!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647399272537636864](https://t.me/ferretman/1363)
+- [MediaHammock or Ferret swing? : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/647395541414821888](https://t.me/ferretman/1362)
 <!-- TELEGRAM:END -->
