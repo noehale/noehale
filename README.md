@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thatweirdferretlady:babyanimalgifs:too much cutenessNot a ferret but too cute not to reblogvia Ferret Story https://scrisoridemai.tumblr.com/post/6476...](https://t.me/ferretman/1421)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/647667317919154176](https://t.me/ferretman/1420)
-- [MediaSpike’s first walk : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647659741392371713](https://t.me/ferretman/1419)
-- [MediaMe and my double chin’s happy place : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647655990190391296](https://t.me/ferretman/1418)
-- [Media“OI! A bit of privacy please!” : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647655970676342784](https://t.me/ferretman/1417)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/647565442277408768](https://t.me/ferretman/1398)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647565436834250752](https://t.me/ferretman/1397)
+- [snout:being a macroorganism is so stressful. i want to know what my cells are doing. I don’t like how unsupervised they arevia Ferret Story https://x...](https://t.me/ferretman/1396)
+- [Media‘She’s just perfect,’ says scientist who helped clone an endangered ferret – CBC News Articlevia Ferret Story https://falalamingo.tumblr.com/...](https://t.me/ferretman/1395)
+- [Mediavia Ferret Story https://redzgn.tumblr.com/post/647565385406857216](https://t.me/ferretman/1394)
 <!-- TELEGRAM:END -->
