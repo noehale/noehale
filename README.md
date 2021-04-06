@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaWasabi living his best life! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647674834619334656](https://t.me/ferretman/1423)
+- [MediaHey everyone! Olive Studio Au made this super cute ferret plate and I thought you’d all appreciate. There’s a giveaway on our Instagram incase ...](https://t.me/ferretman/1422)
 - [thatweirdferretlady:babyanimalgifs:too much cutenessNot a ferret but too cute not to reblogvia Ferret Story https://scrisoridemai.tumblr.com/post/6476...](https://t.me/ferretman/1421)
 - [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/647667317919154176](https://t.me/ferretman/1420)
 - [MediaSpike’s first walk : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647659741392371713](https://t.me/ferretman/1419)
-- [MediaMe and my double chin’s happy place : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647655990190391296](https://t.me/ferretman/1418)
-- [Media“OI! A bit of privacy please!” : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647655970676342784](https://t.me/ferretman/1417)
 <!-- TELEGRAM:END -->
