@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaFound an old video of my boys playing as babies.via Ferret Story https://just-a-catastrophy.tumblr.com/post/647731470945927168](https://t.me/ferretman/1433)
+- [theweirdwideweb:my emotional state at all timesMediavia Ferret Story https://scrisoridemai.tumblr.com/post/647727687484506112](https://t.me/ferretman/1432)
+- [MediaRoz being unusually still and looking cute as a button this morning 🥺via Ferret Story https://prettypeterparkr.tumblr.com/post/647727687479246...](https://t.me/ferretman/1431)
+- [MediaHey Coconut 🥥 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647720204776980480](https://t.me/ferretman/1430)
 - [phoenixonwheels:READ. EVERY. WORD. OF. THIS. Account of a medical team out in St. Paul last night.Link to original tweet thread.MediaMediaMediaMediaMe...](https://t.me/ferretman/1429)
-- [MediaSteven Aston - 037MediaSteven Aston - 035MediaSteven Astoncerceos-deactivated20160308:Steven Astonvia Ferret Story https://falalamingo.tumblr.com...](https://t.me/ferretman/1428)
-- [Mediadoodleofboredom:Time to be produ…via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647716408531238912](https://t.me/ferretman/1427)
-- [MediaGot this little guy Friday – turns out he has Giardia parasites. Any advice would be greatly appreciated as you can imagine it’s been a long 5 ...](https://t.me/ferretman/1426)
-- [scundered:some kid just skateboarded down my street cryingvia Ferret Story https://redzgn.tumblr.com/post/647716371772358656](https://t.me/ferretman/1425)
 <!-- TELEGRAM:END -->
