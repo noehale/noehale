@@ -56,9 +56,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/1444)
-- [MediaHii! I’m from Austin and we are in a winter storm, so we don’t have power electricity and is really cold inside of the house, I think my ferret...](https://t.me/ferretman/1443)
-- [MediaExtra cozy noodle🖤via Ferret Story https://just-a-catastrophy.tumblr.com/post/647761654990438400](https://t.me/ferretman/1442)
-- [MediaPepperoni wants attention!via Ferret Story https://prettypeterparkr.tumblr.com/post/647757915684503552](https://t.me/ferretman/1441)
-- [Mediatheferrets:tantric-shamanic-pranhic:teejssx16:It is indeed.yaaaasWhat anime is this? Must watch.via Ferret Story https://scrisoridemai.tumblr.com...](https://t.me/ferretman/1440)
+- [MediaThis is what I call his “Up to No Good” stance : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647810762969169921](https://t.me/ferretman/1450)
+- [MediaMediadailyferret:https://www.instagram.com/p/B6GDsYNF9ea/via Ferret Story https://babyiwannaknow.tumblr.com/post/647806986298212352](https://t.me/ferretman/1449)
+- [MediaClaudia and Fran’s idea of wrestling. Lol. Isn’t their mouth breathing and hissing adorable?! *The video states the Ernie and Fran. I noticed a...](https://t.me/ferretman/1448)
+- [MediaMediairlaimsaaralath:flusteredpolecat:hydok:sothatjusthappened90:insanelycoolish:impuretale:drunp:this is peak CraigslistI want to know if they g...](https://t.me/ferretman/1447)
+- [MediaFurry burrito : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647806972576595968](https://t.me/ferretman/1446)
 <!-- TELEGRAM:END -->
