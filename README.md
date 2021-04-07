@@ -46,11 +46,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [I hope everyone’s left salmon oil out for Santa Paws](https://come-forth-into-the-light.tumblr.com/post/647822139381219328)
 - [Leo doing a smol mlem 👅](https://come-forth-into-the-light.tumblr.com/post/647799389582229505)
 - [My old man snoozing during playtime](https://come-forth-into-the-light.tumblr.com/post/647754116324556800)
 - [thatweirdferretlady:](https://come-forth-into-the-light.tumblr.com/post/647731536253288448)
 - [Late night exploration of Fort Ferrets](https://come-forth-into-the-light.tumblr.com/post/647708806101532672)
-- [Bedtime!](https://come-forth-into-the-light.tumblr.com/post/647663545542131713)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
