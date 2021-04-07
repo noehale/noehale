@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaThe Sock Banditvia Ferret Story https://just-a-catastrophy.tumblr.com/post/647822157310787584](https://t.me/ferretman/1453)
+- [MediaSleepy swing makes boy calm😴 (sometimes) 😆via Ferret Story https://scrisoridemai.tumblr.com/post/647818276180738048](https://t.me/ferretman/1452)
+- [cannonball-the-ferret:shartgod420:you guys know what’s super important?MediaMediaMediaMediaMediaMediaMediabee buttsMediaCouldn’t help but add Bumble...](https://t.me/ferretman/1451)
 - [MediaThis is what I call his “Up to No Good” stance : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647810762969169921](https://t.me/ferretman/1450)
 - [MediaMediadailyferret:https://www.instagram.com/p/B6GDsYNF9ea/via Ferret Story https://babyiwannaknow.tumblr.com/post/647806986298212352](https://t.me/ferretman/1449)
-- [MediaClaudia and Fran’s idea of wrestling. Lol. Isn’t their mouth breathing and hissing adorable?! *The video states the Ernie and Fran. I noticed a...](https://t.me/ferretman/1448)
-- [MediaMediairlaimsaaralath:flusteredpolecat:hydok:sothatjusthappened90:insanelycoolish:impuretale:drunp:this is peak CraigslistI want to know if they g...](https://t.me/ferretman/1447)
-- [MediaFurry burrito : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647806972576595968](https://t.me/ferretman/1446)
 <!-- TELEGRAM:END -->
