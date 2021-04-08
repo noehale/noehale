@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaSnow days are tiring 😴 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647856030277140480](https://t.me/ferretman/1463)
+- [MediaSpace ferret odysseyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/647852327325319168](https://t.me/ferretman/1462)
 - [Mediai-am-fert:bob-artist:That is not his food bowl.He knocked over the recycling bin in the kitchen, pulled that random black container out of the ki...](https://t.me/ferretman/1461)
 - [MediaWhat’s this? I taste!via Ferret Story https://prettypeterparkr.tumblr.com/post/647848520366358528](https://t.me/ferretman/1460)
 - [MediaSewed some new liners today : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647840925469573120](https://t.me/ferretman/1459)
-- [Mediasplickedylit:allhailcyanocitta:mothric:pickledpoologs:systlin:rosslynpaladin:thestoryofaslut:This.AND I CAN”T WAIT TO DO IT!!!My arms are READY ...](https://t.me/ferretman/1458)
-- [View this post on InstagramA post shared by Brittany (@thelifeofmyferrets)thelifeofmyferrets:mymegahigheye:thelifeofmyferrets:Putting my origami to go...](https://t.me/ferretman/1457)
 <!-- TELEGRAM:END -->
