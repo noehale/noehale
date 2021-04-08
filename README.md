@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSnow days are tiring 😴 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647856030277140480](https://t.me/ferretman/1463)
-- [MediaSpace ferret odysseyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/647852327325319168](https://t.me/ferretman/1462)
-- [Mediai-am-fert:bob-artist:That is not his food bowl.He knocked over the recycling bin in the kitchen, pulled that random black container out of the ki...](https://t.me/ferretman/1461)
-- [MediaWhat’s this? I taste!via Ferret Story https://prettypeterparkr.tumblr.com/post/647848520366358528](https://t.me/ferretman/1460)
-- [MediaSewed some new liners today : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647840925469573120](https://t.me/ferretman/1459)
+- [MediaTaz heading home after playing in the yard. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647901351874052096](https://t.me/ferretman/1470)
+- [MediaOne of my baby boys, teddy. Thought this was cute lol : ferretsvia Ferret Story https://redzgn.tumblr.com/post/647897635024404480](https://t.me/ferretman/1469)
+- [MediaSpotted: sleepy baby snugglesvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647897628329361408](https://t.me/ferretman/1468)
+- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/1467)
+- [moonemojii:*friends car is locked*Friend: stop pulling the handleMe:via Ferret Story https://falalamingo.tumblr.com/post/647897568125370368](https://t.me/ferretman/1466)
 <!-- TELEGRAM:END -->
