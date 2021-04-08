@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediajust-for-grins:I will now apologize to all the people I’ve just killed with this mind blowingly cute gif set. Also you...](https://t.me/ferretman/1473)
+- [MediaThis rug was worth every penny 😂😂😂via Ferret Story https://scrisoridemai.tumblr.com/post/647908876918915072](https://t.me/ferretman/1472)
+- [theferrets:I would appreciate people not removing my post content that links back to my tumblr thank you!via Ferret Story https://prettypeterparkr.tum...](https://t.me/ferretman/1471)
 - [MediaTaz heading home after playing in the yard. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647901351874052096](https://t.me/ferretman/1470)
 - [MediaOne of my baby boys, teddy. Thought this was cute lol : ferretsvia Ferret Story https://redzgn.tumblr.com/post/647897635024404480](https://t.me/ferretman/1469)
-- [MediaSpotted: sleepy baby snugglesvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/647897628329361408](https://t.me/ferretman/1468)
-- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/1467)
-- [moonemojii:*friends car is locked*Friend: stop pulling the handleMe:via Ferret Story https://falalamingo.tumblr.com/post/647897568125370368](https://t.me/ferretman/1466)
 <!-- TELEGRAM:END -->
