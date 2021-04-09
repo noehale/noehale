@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Media🍑 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647946626210643968](https://t.me/ferretman/1482)
-- [MediaFinally got a photo of all six sleeping together!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647942844478341120](https://t.me/ferretman/1481)
-- [Mediathelatestkate:°˖✧*•  Shop, Patreon *•. ✧˖°`via Ferret Story https://scrisoridemai.tumblr.com/post/647939104984662016](https://t.me/ferretman/1480)
-- [Mediatoddreu:She’s picking him up from kitten school and he’s telling her about his dayvia Ferret Story https://prettypeterparkr.tumblr.com/post/647...](https://t.me/ferretman/1479)
-- [MediaSpot cleaning a ferret?? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647931515623342080](https://t.me/ferretman/1478)
+- [somecutething:via Ferret Story https://scrisoridemai.tumblr.com/post/647999509193965568](https://t.me/ferretman/1491)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/647999509178269696](https://t.me/ferretman/1490)
+- [Mediatube time! :3 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647991925007384576](https://t.me/ferretman/1489)
+- [closet-keys:captainamerica-ontheenterprise:petalsinthewater:sickly-tired:cheapfilling:college is catered towards the able bodied and able minded. scho...](https://t.me/ferretman/1488)
+- [MediaBig nose boi : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/647988216395399168](https://t.me/ferretman/1487)
 <!-- TELEGRAM:END -->
