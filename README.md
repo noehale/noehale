@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaSpot cleaning a ferret?? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647931515623342080](https://t.me/ferretman/1478)
+- [Medialikeaflowerfullybloomed:Me taking a nap after I just woke upvia Ferret Story https://xxcrybby.tumblr.com/post/647927820005294080](https://t.me/ferretman/1477)
+- [MediaToe beans, toofies and tongue blep… the trifecta of cuteness : ferretsvia Ferret Story https://redzgn.tumblr.com/post/647927817410150400](https://t.me/ferretman/1476)
 - [MediaMeet my babies. Loki the dark one, Frosty and Snowflake : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647927782266028032](https://t.me/ferretman/1475)
 - [<a href="https://hawfstuff.com/post/181272897845/thought-i-do-not-think-that-50-of-the-worlds">hawfstuff</a>:<a href="http://iamthecutestofborg.tumblr...](https://t.me/ferretman/1474)
-- [MediaMediaMediaMediaMediaMediajust-for-grins:I will now apologize to all the people I’ve just killed with this mind blowingly cute gif set. Also you...](https://t.me/ferretman/1473)
-- [MediaThis rug was worth every penny 😂😂😂via Ferret Story https://scrisoridemai.tumblr.com/post/647908876918915072](https://t.me/ferretman/1472)
-- [theferrets:I would appreciate people not removing my post content that links back to my tumblr thank you!via Ferret Story https://prettypeterparkr.tum...](https://t.me/ferretman/1471)
 <!-- TELEGRAM:END -->
