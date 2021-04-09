@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaTube! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647976818508529664](https://t.me/ferretman/1483)
 - [Media🍑 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647946626210643968](https://t.me/ferretman/1482)
 - [MediaFinally got a photo of all six sleeping together!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647942844478341120](https://t.me/ferretman/1481)
 - [Mediathelatestkate:°˖✧*•  Shop, Patreon *•. ✧˖°`via Ferret Story https://scrisoridemai.tumblr.com/post/647939104984662016](https://t.me/ferretman/1480)
 - [Mediatoddreu:She’s picking him up from kitten school and he’s telling her about his dayvia Ferret Story https://prettypeterparkr.tumblr.com/post/647...](https://t.me/ferretman/1479)
+- [MediaSpot cleaning a ferret?? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647931515623342080](https://t.me/ferretman/1478)
 <!-- TELEGRAM:END -->
