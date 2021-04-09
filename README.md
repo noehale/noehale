@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Media🍑 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/647946626210643968](https://t.me/ferretman/1482)
-- [MediaFinally got a photo of all six sleeping together!via Ferret Story https://just-a-catastrophy.tumblr.com/post/647942844478341120](https://t.me/ferretman/1481)
-- [Mediathelatestkate:°˖✧*•  Shop, Patreon *•. ✧˖°`via Ferret Story https://scrisoridemai.tumblr.com/post/647939104984662016](https://t.me/ferretman/1480)
-- [Mediatoddreu:She’s picking him up from kitten school and he’s telling her about his dayvia Ferret Story https://prettypeterparkr.tumblr.com/post/647...](https://t.me/ferretman/1479)
 - [MediaSpot cleaning a ferret?? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647931515623342080](https://t.me/ferretman/1478)
+- [Medialikeaflowerfullybloomed:Me taking a nap after I just woke upvia Ferret Story https://xxcrybby.tumblr.com/post/647927820005294080](https://t.me/ferretman/1477)
+- [MediaToe beans, toofies and tongue blep… the trifecta of cuteness : ferretsvia Ferret Story https://redzgn.tumblr.com/post/647927817410150400](https://t.me/ferretman/1476)
+- [MediaMeet my babies. Loki the dark one, Frosty and Snowflake : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/647927782266028032](https://t.me/ferretman/1475)
+- [<a href="https://hawfstuff.com/post/181272897845/thought-i-do-not-think-that-50-of-the-worlds">hawfstuff</a>:<a href="http://iamthecutestofborg.tumblr...](https://t.me/ferretman/1474)
 <!-- TELEGRAM:END -->
