@@ -46,13 +46,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [tried my hand at sewing… pleasantly surprised](https://come-forth-into-the-light.tumblr.com/post/647980599933648896)
 - [what’s the password?](https://come-forth-into-the-light.tumblr.com/post/647935285514125312)
 - [I drew a picture of our stinky girl Gator 🐊](https://come-forth-into-the-light.tumblr.com/post/647912710478168064)
 - [She’s having a nervous breakdown after a bath](https://come-forth-into-the-light.tumblr.com/post/647890028802031616)
 - [everythingfox:
 
 Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumblr.com/post/647844727504470016)
-- [I hope everyone’s left salmon oil out for Santa Paws](https://come-forth-into-the-light.tumblr.com/post/647822139381219328)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
