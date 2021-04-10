@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaAttack of Wasabi!! Just when you thought it was safe…👀via Ferret Story https://just-a-catastrophy.tumblr.com/post/648093950412046336](https://t.me/ferretman/1511)
+- [MediaPerfect example of what you get for your ferret to sit on vs what they prefer to sit onvia Ferret Story https://scrisoridemai.tumblr.com/post/648...](https://t.me/ferretman/1510)
+- [MediaPassed tf out hahavia Ferret Story https://prettypeterparkr.tumblr.com/post/648090059667652608](https://t.me/ferretman/1509)
+- [MediaNeville after dinner (he wants his treat) : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648082532874813440](https://t.me/ferretman/1508)
 - [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1507)
-- [MediaSome extra help in the office. Please rate his work so we can decide if we want to hire him full time or not. : ferretsvia Ferret Story https://x...](https://t.me/ferretman/1506)
-- [MediaBlack-footed ferret becomes first endangered US species to be cloned – from animal which died over 30 years agovia Ferret Story https://falalami...](https://t.me/ferretman/1505)
-- [MediaShhhh. Sleeping meepers. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648078784225017856](https://t.me/ferretman/1504)
-- [MediaMy little cuddle buddy : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648078748682420224](https://t.me/ferretman/1503)
 <!-- TELEGRAM:END -->
