@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [babyanimalgifs:A RACCOON CAN FIND TIME TO SWEEP THE FLOOR BUT YOU CANT TAKE TIME TO TEXT BACKvia Ferret Story https://scrisoridemai.tumblr.com/post/64...](https://t.me/ferretman/1499)
-- [Mediathe1timelady:jayjaysingh:daveandjadeotp:jetgreguar:i’ve been comprimised i laughed for about 349583492547252 yearsI’ve waited 2 years for this...](https://t.me/ferretman/1498)
-- [MediaFerrets reacting to their own video : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648018490755858432](https://t.me/ferretman/1497)
-- [MediaOzzie as a kit. 8 weeks old ❤️via Ferret Story https://babyiwannaknow.tumblr.com/post/648018452394754048](https://t.me/ferretman/1496)
-- [MediaPrecious demon of mine 🥰 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648018446703050753](https://t.me/ferretman/1495)
+- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1507)
+- [MediaSome extra help in the office. Please rate his work so we can decide if we want to hire him full time or not. : ferretsvia Ferret Story https://x...](https://t.me/ferretman/1506)
+- [MediaBlack-footed ferret becomes first endangered US species to be cloned – from animal which died over 30 years agovia Ferret Story https://falalami...](https://t.me/ferretman/1505)
+- [MediaShhhh. Sleeping meepers. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648078784225017856](https://t.me/ferretman/1504)
+- [MediaMy little cuddle buddy : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648078748682420224](https://t.me/ferretman/1503)
 <!-- TELEGRAM:END -->
