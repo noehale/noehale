@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Media“Mom, please get me out of here” : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648037211904835585](https://t.me/ferretman/1501)
+- [Mediakellan-ebooks:Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/648033451347460096](https://t.me/ferretman/1500)
 - [babyanimalgifs:A RACCOON CAN FIND TIME TO SWEEP THE FLOOR BUT YOU CANT TAKE TIME TO TEXT BACKvia Ferret Story https://scrisoridemai.tumblr.com/post/64...](https://t.me/ferretman/1499)
 - [Mediathe1timelady:jayjaysingh:daveandjadeotp:jetgreguar:i’ve been comprimised i laughed for about 349583492547252 yearsI’ve waited 2 years for this...](https://t.me/ferretman/1498)
 - [MediaFerrets reacting to their own video : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648018490755858432](https://t.me/ferretman/1497)
-- [MediaOzzie as a kit. 8 weeks old ❤️via Ferret Story https://babyiwannaknow.tumblr.com/post/648018452394754048](https://t.me/ferretman/1496)
-- [MediaPrecious demon of mine 🥰 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648018446703050753](https://t.me/ferretman/1495)
 <!-- TELEGRAM:END -->
