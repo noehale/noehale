@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Media“Mom, please get me out of here” : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648037211904835585](https://t.me/ferretman/1501)
-- [Mediakellan-ebooks:Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/648033451347460096](https://t.me/ferretman/1500)
-- [babyanimalgifs:A RACCOON CAN FIND TIME TO SWEEP THE FLOOR BUT YOU CANT TAKE TIME TO TEXT BACKvia Ferret Story https://scrisoridemai.tumblr.com/post/64...](https://t.me/ferretman/1499)
-- [Mediathe1timelady:jayjaysingh:daveandjadeotp:jetgreguar:i’ve been comprimised i laughed for about 349583492547252 yearsI’ve waited 2 years for this...](https://t.me/ferretman/1498)
-- [MediaFerrets reacting to their own video : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648018490755858432](https://t.me/ferretman/1497)
+- [MediaBoop the snootvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648003258736066561](https://t.me/ferretman/1492)
+- [somecutething:via Ferret Story https://scrisoridemai.tumblr.com/post/647999509193965568](https://t.me/ferretman/1491)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/647999509178269696](https://t.me/ferretman/1490)
+- [Mediatube time! :3 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/647991925007384576](https://t.me/ferretman/1489)
+- [closet-keys:captainamerica-ontheenterprise:petalsinthewater:sickly-tired:cheapfilling:college is catered towards the able bodied and able minded. scho...](https://t.me/ferretman/1488)
 <!-- TELEGRAM:END -->
