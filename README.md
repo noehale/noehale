@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaAttack of Wasabi!! Just when you thought it was safe…👀via Ferret Story https://just-a-catastrophy.tumblr.com/post/648093950412046336](https://t.me/ferretman/1511)
-- [MediaPerfect example of what you get for your ferret to sit on vs what they prefer to sit onvia Ferret Story https://scrisoridemai.tumblr.com/post/648...](https://t.me/ferretman/1510)
-- [MediaPassed tf out hahavia Ferret Story https://prettypeterparkr.tumblr.com/post/648090059667652608](https://t.me/ferretman/1509)
-- [MediaNeville after dinner (he wants his treat) : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648082532874813440](https://t.me/ferretman/1508)
-- [thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was so nice. 10/10 would meet again.via F...](https://t.me/ferretman/1507)
+- [MediaWeasels are self drying. Frank and Luna. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648112730800324608](https://t.me/ferretman/1517)
+- [MediaAfter a long night of getting down with his businessvia Ferret Story https://babyiwannaknow.tumblr.com/post/648108971723456513](https://t.me/ferretman/1516)
+- [otterwise:[takes a single step out of bed after 8 hours of sleep]Mediavia Ferret Story https://falalamingo.tumblr.com/post/648108957680943105](https://t.me/ferretman/1515)
+- [MediaJust got two 10 week ago ferrets any tips for a first time ferret owner I’m getting a 3 story cage coming in the mail so any recommendations or ...](https://t.me/ferretman/1514)
+- [MediaWill this cage work for my female ferret? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648108957695639552](https://t.me/ferretman/1513)
 <!-- TELEGRAM:END -->
