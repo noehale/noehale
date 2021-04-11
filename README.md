@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [thelifeofmyferrets:MediaHe’s ready.via Ferret Story https://prettypeterparkr.tumblr.com/post/648180676480417792](https://t.me/ferretman/1531)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/648180659712573440](https://t.me/ferretman/1530)
 - [MediaCan I interest you in a Gin and Ferret?via Ferret Story https://just-a-catastrophy.tumblr.com/post/648184541125705728](https://t.me/ferretman/1529)
 - [MediaFERRET TUNNELS 💡Lowe’s (& HD) has irrigation pipe that clicks together easily and is perforated, made of chew proof plastic (the thru way tub...](https://t.me/ferretman/1528)
 - [MediaIndy is 5.6 lbs. This is his new pink bed that he fits in <3via Ferret Story https://babyiwannaknow.tumblr.com/post/648169401458294784](https://t.me/ferretman/1527)
-- [MediaFerrets Breakdancing !!! 🤩💥🔥 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648169371590656000](https://t.me/ferretman/1526)
-- [Mediavincentvangoth:tastefullyoffensive:“The morning dew perfectly captured my dog’s erratic freedom run.”Photo by Babolattack (larger version)ima...](https://t.me/ferretman/1525)
 <!-- TELEGRAM:END -->
