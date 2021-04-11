@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/1521)
+- [eviethemuse:toytowns:brbjellyfishing:babyanimalgifs:You ever seen a cat with a deep meow??that cat smoked 3 packs a day for 20 years“woah, wow, woah...](https://t.me/ferretman/1520)
+- [ferretfarts:whatareyoudoingferret:The Money Ferret is here to bring you some change! video via thecomfyferretI tend to scroll fast past ferret posts ...](https://t.me/ferretman/1519)
+- [:via Ferret Story https://scrisoridemai.tumblr.com/post/648120250342178817](https://t.me/ferretman/1518)
 - [MediaWeasels are self drying. Frank and Luna. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648112730800324608](https://t.me/ferretman/1517)
-- [MediaAfter a long night of getting down with his businessvia Ferret Story https://babyiwannaknow.tumblr.com/post/648108971723456513](https://t.me/ferretman/1516)
-- [otterwise:[takes a single step out of bed after 8 hours of sleep]Mediavia Ferret Story https://falalamingo.tumblr.com/post/648108957680943105](https://t.me/ferretman/1515)
-- [MediaJust got two 10 week ago ferrets any tips for a first time ferret owner I’m getting a 3 story cage coming in the mail so any recommendations or ...](https://t.me/ferretman/1514)
-- [MediaWill this cage work for my female ferret? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648108957695639552](https://t.me/ferretman/1513)
 <!-- TELEGRAM:END -->
