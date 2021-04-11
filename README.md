@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaAdventures of Totoro and Howl: Part 2 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648169356588646400](https://t.me/ferretman/1523)
+- [Mediayou got me, you’re cute : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648158000283090945](https://t.me/ferretman/1522)
 - [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/1521)
 - [eviethemuse:toytowns:brbjellyfishing:babyanimalgifs:You ever seen a cat with a deep meow??that cat smoked 3 packs a day for 20 years“woah, wow, woah...](https://t.me/ferretman/1520)
 - [ferretfarts:whatareyoudoingferret:The Money Ferret is here to bring you some change! video via thecomfyferretI tend to scroll fast past ferret posts ...](https://t.me/ferretman/1519)
-- [:via Ferret Story https://scrisoridemai.tumblr.com/post/648120250342178817](https://t.me/ferretman/1518)
-- [MediaWeasels are self drying. Frank and Luna. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648112730800324608](https://t.me/ferretman/1517)
 <!-- TELEGRAM:END -->
