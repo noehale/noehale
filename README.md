@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMeeky’s hops are so cute 🥺 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648259993903251456](https://t.me/ferretman/1547)
-- [lifeisajourney10:gloriousbacchus:religiousmom:tumblr friendships are hard to maintain like im sorry i know i havent talked to you in 5 months but you...](https://t.me/ferretman/1546)
-- [MediaCute tail wagging from my girl Zetavia Ferret Story https://babyiwannaknow.tumblr.com/post/648259973540904960](https://t.me/ferretman/1545)
-- [MediaToast is a lilac panda baby with ruby eyes! I didn’t realize red eyes on non albino ferrets was kinda rare : ferretsvia Ferret Story https://xxc...](https://t.me/ferretman/1544)
-- [MediaHaze always chases the broom while I’m sweeping🤣 Don’t mind the mess, clearly cleaning up! :) : ferretsvia Ferret Story https://redzgn.tumbl...](https://t.me/ferretman/1543)
+- [MediaCan I interest you in a Gin and Ferret?via Ferret Story https://just-a-catastrophy.tumblr.com/post/648184541125705728](https://t.me/ferretman/1529)
+- [MediaFERRET TUNNELS 💡Lowe’s (& HD) has irrigation pipe that clicks together easily and is perforated, made of chew proof plastic (the thru way tub...](https://t.me/ferretman/1528)
+- [MediaIndy is 5.6 lbs. This is his new pink bed that he fits in <3via Ferret Story https://babyiwannaknow.tumblr.com/post/648169401458294784](https://t.me/ferretman/1527)
+- [MediaFerrets Breakdancing !!! 🤩💥🔥 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648169371590656000](https://t.me/ferretman/1526)
+- [Mediavincentvangoth:tastefullyoffensive:“The morning dew perfectly captured my dog’s erratic freedom run.”Photo by Babolattack (larger version)ima...](https://t.me/ferretman/1525)
 <!-- TELEGRAM:END -->
