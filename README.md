@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [psychoticmist:if you ever feel bad about yourself remember that george bush was once informed that 4 brazilian people were killed in iraq and he respo...](https://t.me/ferretman/1541)
-- [breadmaakesyoufat: me: i cant move, a cute animal is asleep on me person: push it off me: [enraged...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/1540)
-- [nevvzealand:happy birthday someonevia Ferret Story https://prettypeterparkr.tumblr.com/post/648210884824596480](https://t.me/ferretman/1539)
-- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/1538)
-- [MediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/648199625937993728](https://t.me/ferretman/1537)
+- [MediaMy wee cutie, Gucci! : ferretsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648275142192103424](https://t.me/ferretman/1560)
+- [via Ferret Story https://prettypeterparkr.tumblr.com/post/648271263050137601](https://t.me/ferretman/1559)
+- [MediaMeet Mac, world’s biggest cuddler : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648263739202781184](https://t.me/ferretman/1558)
+- [Mediahow is he comfortable like this lol : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648248613901844481](https://t.me/ferretman/1557)
+- [psychoticmist:if you ever feel bad about yourself remember that george bush was once informed that 4 brazilian people were killed in iraq and he respo...](https://t.me/ferretman/1556)
 <!-- TELEGRAM:END -->
