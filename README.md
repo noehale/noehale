@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thelifeofmyferrets:MediaHe’s ready.via Ferret Story https://prettypeterparkr.tumblr.com/post/648180676480417792](https://t.me/ferretman/1531)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/648180659712573440](https://t.me/ferretman/1530)
-- [MediaCan I interest you in a Gin and Ferret?via Ferret Story https://just-a-catastrophy.tumblr.com/post/648184541125705728](https://t.me/ferretman/1529)
-- [MediaFERRET TUNNELS 💡Lowe’s (& HD) has irrigation pipe that clicks together easily and is perforated, made of chew proof plastic (the thru way tub...](https://t.me/ferretman/1528)
-- [MediaIndy is 5.6 lbs. This is his new pink bed that he fits in <3via Ferret Story https://babyiwannaknow.tumblr.com/post/648169401458294784](https://t.me/ferretman/1527)
+- [nevvzealand:happy birthday someonevia Ferret Story https://prettypeterparkr.tumblr.com/post/648210884824596480](https://t.me/ferretman/1539)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/1538)
+- [MediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/648199625937993728](https://t.me/ferretman/1537)
+- [<a href="http://studying-like-a-champ.tumblr.com/post/142175375235/tempestcaliban-faranae-blue-pixiedust">studying-like-a-champ</a>:<a href="http://te...](https://t.me/ferretman/1536)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/648199549474750464](https://t.me/ferretman/1535)
 <!-- TELEGRAM:END -->
