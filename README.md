@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMeeky’s hops are so cute 🥺 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648259993903251456](https://t.me/ferretman/1547)
-- [lifeisajourney10:gloriousbacchus:religiousmom:tumblr friendships are hard to maintain like im sorry i know i havent talked to you in 5 months but you...](https://t.me/ferretman/1546)
-- [MediaCute tail wagging from my girl Zetavia Ferret Story https://babyiwannaknow.tumblr.com/post/648259973540904960](https://t.me/ferretman/1545)
-- [MediaToast is a lilac panda baby with ruby eyes! I didn’t realize red eyes on non albino ferrets was kinda rare : ferretsvia Ferret Story https://xxc...](https://t.me/ferretman/1544)
-- [MediaHaze always chases the broom while I’m sweeping🤣 Don’t mind the mess, clearly cleaning up! :) : ferretsvia Ferret Story https://redzgn.tumbl...](https://t.me/ferretman/1543)
+- [psychoticmist:if you ever feel bad about yourself remember that george bush was once informed that 4 brazilian people were killed in iraq and he respo...](https://t.me/ferretman/1541)
+- [breadmaakesyoufat: me: i cant move, a cute animal is asleep on me person: push it off me: [enraged...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/1540)
+- [nevvzealand:happy birthday someonevia Ferret Story https://prettypeterparkr.tumblr.com/post/648210884824596480](https://t.me/ferretman/1539)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/1538)
+- [MediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/648199625937993728](https://t.me/ferretman/1537)
 <!-- TELEGRAM:END -->
