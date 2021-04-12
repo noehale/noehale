@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [psychoticmist:if you ever feel bad about yourself remember that george bush was once informed that 4 brazilian people were killed in iraq and he respo...](https://t.me/ferretman/1541)
+- [breadmaakesyoufat: me: i cant move, a cute animal is asleep on me person: push it off me: [enraged...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/1540)
 - [nevvzealand:happy birthday someonevia Ferret Story https://prettypeterparkr.tumblr.com/post/648210884824596480](https://t.me/ferretman/1539)
 - [Mediathelifeofmyferrets:thelifeofmyferrets:Tilly says “it’s almost Hoodie Season!”#ferret #tilly #hoodie #fall #weatherSweater Weather is here!#hoo...](https://t.me/ferretman/1538)
 - [MediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/648199625937993728](https://t.me/ferretman/1537)
-- [<a href="http://studying-like-a-champ.tumblr.com/post/142175375235/tempestcaliban-faranae-blue-pixiedust">studying-like-a-champ</a>:<a href="http://te...](https://t.me/ferretman/1536)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/648199549474750464](https://t.me/ferretman/1535)
 <!-- TELEGRAM:END -->
