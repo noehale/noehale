@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMy wee cutie, Gucci! : ferretsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648275142192103424](https://t.me/ferretman/1560)
-- [via Ferret Story https://prettypeterparkr.tumblr.com/post/648271263050137601](https://t.me/ferretman/1559)
-- [MediaMeet Mac, world’s biggest cuddler : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648263739202781184](https://t.me/ferretman/1558)
-- [Mediahow is he comfortable like this lol : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648248613901844481](https://t.me/ferretman/1557)
-- [psychoticmist:if you ever feel bad about yourself remember that george bush was once informed that 4 brazilian people were killed in iraq and he respo...](https://t.me/ferretman/1556)
+- [MediaMaggie can’t quite figure out how to hammock : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648290293886681088](https://t.me/ferretman/1565)
+- [MediaI present to you… The Ferret Wheel : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648290293582643200](https://t.me/ferretman/1564)
+- [MediaLoki is a natural on the micvia Ferret Story https://babyiwannaknow.tumblr.com/post/648290210222899200](https://t.me/ferretman/1563)
+- [angryschnauzer:crazyaboutlefandoms:dutchster:when it’s november 1stSongs with the same bpm but played over different than original video tracks give ...](https://t.me/ferretman/1562)
+- [jemthecrystalgem:buttpoems:MediaExecutive dysfunction is like thatvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648290165864955...](https://t.me/ferretman/1561)
 <!-- TELEGRAM:END -->
