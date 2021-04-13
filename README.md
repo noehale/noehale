@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaferret lovervia Ferret Story https://just-a-catastrophy.tumblr.com/post/648365653630304256](https://t.me/ferretman/1580)
+- [vet-and-wild:The perfect back scratchervia Ferret Story https://scrisoridemai.tumblr.com/post/648361881215598592](https://t.me/ferretman/1579)
+- [MediaSweet dreams buddyvia Ferret Story https://prettypeterparkr.tumblr.com/post/648361880989089793](https://t.me/ferretman/1578)
 - [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
 - [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
-- [Mediadoodleofboredom:You better not pout, you better not cry, you better not move or you’re gonna die…If you’re wondering about the bag of presents...](https://t.me/ferretman/1575)
-- [MediaThey are never far away when it’s Duk soup night. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648350546932219904](https://t.me/ferretman/1574)
-- [MediaThe excitement is overwhelming : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648350546939592704](https://t.me/ferretman/1573)
 <!-- TELEGRAM:END -->
