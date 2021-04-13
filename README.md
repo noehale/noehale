@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMaggie can’t quite figure out how to hammock : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648290293886681088](https://t.me/ferretman/1565)
-- [MediaI present to you… The Ferret Wheel : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648290293582643200](https://t.me/ferretman/1564)
-- [MediaLoki is a natural on the micvia Ferret Story https://babyiwannaknow.tumblr.com/post/648290210222899200](https://t.me/ferretman/1563)
-- [angryschnauzer:crazyaboutlefandoms:dutchster:when it’s november 1stSongs with the same bpm but played over different than original video tracks give ...](https://t.me/ferretman/1562)
-- [jemthecrystalgem:buttpoems:MediaExecutive dysfunction is like thatvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648290165864955...](https://t.me/ferretman/1561)
+- [MediaAdventures of Totoro and Howl: Part 2 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648169356588646400](https://t.me/ferretman/1523)
+- [Mediayou got me, you’re cute : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648158000283090945](https://t.me/ferretman/1522)
+- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/1521)
+- [eviethemuse:toytowns:brbjellyfishing:babyanimalgifs:You ever seen a cat with a deep meow??that cat smoked 3 packs a day for 20 years“woah, wow, woah...](https://t.me/ferretman/1520)
+- [ferretfarts:whatareyoudoingferret:The Money Ferret is here to bring you some change! video via thecomfyferretI tend to scroll fast past ferret posts ...](https://t.me/ferretman/1519)
 <!-- TELEGRAM:END -->
