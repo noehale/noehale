@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaAdventures of Totoro and Howl: Part 2 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648169356588646400](https://t.me/ferretman/1523)
-- [Mediayou got me, you’re cute : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648158000283090945](https://t.me/ferretman/1522)
-- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代 (@ponchan918)ksiouxw:rnashallah:im SCREAMIBG😍😍😍😍😍via Ferre...](https://t.me/ferretman/1521)
-- [eviethemuse:toytowns:brbjellyfishing:babyanimalgifs:You ever seen a cat with a deep meow??that cat smoked 3 packs a day for 20 years“woah, wow, woah...](https://t.me/ferretman/1520)
-- [ferretfarts:whatareyoudoingferret:The Money Ferret is here to bring you some change! video via thecomfyferretI tend to scroll fast past ferret posts ...](https://t.me/ferretman/1519)
+- [MediaThe equivalent of a grumpy teenager : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648309015476109312](https://t.me/ferretman/1570)
+- [Mediadoubleantlerwilfred:also i may or may not have dismembered him with it. there was lava, he was yelling, i cried. it was a bad few days.via Ferret...](https://t.me/ferretman/1569)
+- [MediaMeet Novavia Ferret Story https://scrisoridemai.tumblr.com/post/648301488788193280](https://t.me/ferretman/1568)
+- [MediaFun Ferret Fact: Snapchat filters work on Ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/648301488385458177](https://t.me/ferretman/1567)
+- [MediaShe doesn’t know what to attack first : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648293920564985856](https://t.me/ferretman/1566)
 <!-- TELEGRAM:END -->
