@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [someonestolemyanime2:ask-heichouu:novur:SO SOME ASSHOLE GOT HOLD OF MY PHONE AND CHANGE ALL MY CONTACT NAMES, ICONS AND RINGTONES TO THIS FUCKING THIN...](https://t.me/ferretman/1571)
-- [MediaThe equivalent of a grumpy teenager : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648309015476109312](https://t.me/ferretman/1570)
-- [Mediadoubleantlerwilfred:also i may or may not have dismembered him with it. there was lava, he was yelling, i cried. it was a bad few days.via Ferret...](https://t.me/ferretman/1569)
-- [MediaMeet Novavia Ferret Story https://scrisoridemai.tumblr.com/post/648301488788193280](https://t.me/ferretman/1568)
-- [MediaFun Ferret Fact: Snapchat filters work on Ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/648301488385458177](https://t.me/ferretman/1567)
+- [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
+- [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
+- [Mediadoodleofboredom:You better not pout, you better not cry, you better not move or you’re gonna die…If you’re wondering about the bag of presents...](https://t.me/ferretman/1575)
+- [MediaThey are never far away when it’s Duk soup night. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648350546932219904](https://t.me/ferretman/1574)
+- [MediaThe excitement is overwhelming : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648350546939592704](https://t.me/ferretman/1573)
 <!-- TELEGRAM:END -->
