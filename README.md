@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret lovervia Ferret Story https://just-a-catastrophy.tumblr.com/post/648365653630304256](https://t.me/ferretman/1580)
-- [vet-and-wild:The perfect back scratchervia Ferret Story https://scrisoridemai.tumblr.com/post/648361881215598592](https://t.me/ferretman/1579)
-- [MediaSweet dreams buddyvia Ferret Story https://prettypeterparkr.tumblr.com/post/648361880989089793](https://t.me/ferretman/1578)
-- [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
-- [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
+- [MediaThe equivalent of a grumpy teenager : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648309015476109312](https://t.me/ferretman/1570)
+- [Mediadoubleantlerwilfred:also i may or may not have dismembered him with it. there was lava, he was yelling, i cried. it was a bad few days.via Ferret...](https://t.me/ferretman/1569)
+- [MediaMeet Novavia Ferret Story https://scrisoridemai.tumblr.com/post/648301488788193280](https://t.me/ferretman/1568)
+- [MediaFun Ferret Fact: Snapchat filters work on Ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/648301488385458177](https://t.me/ferretman/1567)
+- [MediaShe doesn’t know what to attack first : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648293920564985856](https://t.me/ferretman/1566)
 <!-- TELEGRAM:END -->
