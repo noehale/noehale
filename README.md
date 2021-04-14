@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCaught these two geniuses trying to eat a sunflower. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648444921996591104](https://t.me/ferretman/1597)
-- [MediaBack at it again with a very sleepy man 😴🥺 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648441199143829504](https://t.me/ferretman/1596)
-- [Mediameet my lil miss Chaos 🥺❤️ #ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648441199439560704](https://t.me/ferretman/1595)
-- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://babyiwannaknow.tumblr.com/post/648441189250613248](https://t.me/ferretman/1594)
-- [MediaI’m hoping this means they are friends now 🙂 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648441152441384960](https://t.me/ferretman/1593)
+- [MediaCuddles, chew, and cheesin for the camera 📸 🥰 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648399618166636544](https://t.me/ferretman/1590)
+- [Media4gifs:Nooo [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/648395856183214081](https://t.me/ferretman/1589)
+- [MediaBackwards hoodie snugglin☺️via Ferret Story https://scrisoridemai.tumblr.com/post/648392097891762176](https://t.me/ferretman/1588)
+- [baelor:SCARY MOVIES SET IN HOUSES ARE THE WORSTI LIVE IN A HOUSEvia Ferret Story https://prettypeterparkr.tumblr.com/post/648392070143361024](https://t.me/ferretman/1587)
+- [MediaLongboye ferret addition! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648384507307753472](https://t.me/ferretman/1586)
 <!-- TELEGRAM:END -->
