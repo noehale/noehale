@@ -58,9 +58,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaCuddles, chew, and cheesin for the camera 📸 🥰 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648399618166636544](https://t.me/ferretman/1590)
+- [Media4gifs:Nooo [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/648395856183214081](https://t.me/ferretman/1589)
+- [MediaBackwards hoodie snugglin☺️via Ferret Story https://scrisoridemai.tumblr.com/post/648392097891762176](https://t.me/ferretman/1588)
+- [baelor:SCARY MOVIES SET IN HOUSES ARE THE WORSTI LIVE IN A HOUSEvia Ferret Story https://prettypeterparkr.tumblr.com/post/648392070143361024](https://t.me/ferretman/1587)
 - [MediaLongboye ferret addition! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648384507307753472](https://t.me/ferretman/1586)
-- [MediaFerret lost his eye 😕 got scratched by his sister kitty and she got him good : ferretsvia Ferret Story https://redzgn.tumblr.com/post/64838079...](https://t.me/ferretman/1585)
-- [fat-birds:nonbinarypeach:dear-tumb1r:becausebirds:When you’re trying to do homework but you can’t because birdsHuman: *attempts typing*Birbs: >:V >:...](https://t.me/ferretman/1584)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://falalamingo.tumblr.com/post/648380756107902977](https://t.me/ferretman/1583)
-- [hawfstuff:thisisnotacatblog:marissarei:itcomesbetweenus:marissarei:Coconuts have only been in the Caribbean for 500 years. They just….floated on over...](https://t.me/ferretman/1582)
 <!-- TELEGRAM:END -->
