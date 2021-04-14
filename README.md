@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCuddles, chew, and cheesin for the camera 📸 🥰 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648399618166636544](https://t.me/ferretman/1590)
-- [Media4gifs:Nooo [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/648395856183214081](https://t.me/ferretman/1589)
-- [MediaBackwards hoodie snugglin☺️via Ferret Story https://scrisoridemai.tumblr.com/post/648392097891762176](https://t.me/ferretman/1588)
-- [baelor:SCARY MOVIES SET IN HOUSES ARE THE WORSTI LIVE IN A HOUSEvia Ferret Story https://prettypeterparkr.tumblr.com/post/648392070143361024](https://t.me/ferretman/1587)
-- [MediaLongboye ferret addition! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648384507307753472](https://t.me/ferretman/1586)
+- [MediaSleepyzzzzzvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648456269735378944](https://t.me/ferretman/1600)
+- [MediaWater breakvia Ferret Story https://scrisoridemai.tumblr.com/post/648452471153360896](https://t.me/ferretman/1599)
+- [bob-artist:I reach into my garbage can and locate my trash child.via Ferret Story https://prettypeterparkr.tumblr.com/post/648452440414371841](https://t.me/ferretman/1598)
+- [MediaCaught these two geniuses trying to eat a sunflower. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648444921996591104](https://t.me/ferretman/1597)
+- [MediaBack at it again with a very sleepy man 😴🥺 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648441199143829504](https://t.me/ferretman/1596)
 <!-- TELEGRAM:END -->
