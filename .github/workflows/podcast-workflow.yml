@@ -13,4 +13,4 @@ jobs:
       
         with:
           comment_tag_name: PODCAST
-          feed_list: "https://feeds.buzzsprout.com/1693180.rss"
+          feed_list: "https://rsshub.app/telegram/channel/ferretman"
