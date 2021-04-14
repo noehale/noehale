@@ -41,11 +41,8 @@
 ### 📫Latest Podcast
 
 <!-- PODCAST:START -->
-- [MediaCuddles, chew, and cheesin for the camera 📸 🥰 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648399618166636544](https://t.me/ferretman/1590)
-- [Media4gifs:Nooo [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/648395856183214081](https://t.me/ferretman/1589)
-- [MediaBackwards hoodie snugglin☺️via Ferret Story https://scrisoridemai.tumblr.com/post/648392097891762176](https://t.me/ferretman/1588)
-- [baelor:SCARY MOVIES SET IN HOUSES ARE THE WORSTI LIVE IN A HOUSEvia Ferret Story https://prettypeterparkr.tumblr.com/post/648392070143361024](https://t.me/ferretman/1587)
-- [MediaLongboye ferret addition! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648384507307753472](https://t.me/ferretman/1586)
+- [Where to Get a Ferret?](https://anchor.fm/ferretvoice/episodes/Where-to-Get-a-Ferret-erurfu)
+- [Where Did Ferrets Come From?](https://anchor.fm/ferretvoice/episodes/Where-Did-Ferrets-Come-From-eruq8g)
 <!-- PODCAST:END -->
 ---
 ### 📝Latest Tumblr Posts
