@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [jhameia:velocicrafter:weloveshortvideos:He actually told the timeHOW did the parent not die laughing immediately!?OMG HE ACTUALLY TOLD THE TIMEvia Fer...](https://t.me/ferretman/1619)
-- [MediaRory Is Always On The Movevia Ferret Story https://scrisoridemai.tumblr.com/post/648543079410925568](https://t.me/ferretman/1618)
-- [MediaRe-homed a 4mo old little boy. I have successfully weaned him from Marshall kibble to Wysong as a first step. After a week, he still does not rec...](https://t.me/ferretman/1617)
-- [MediaJust got our babies a few days ago and I cannot handle their little faces omg : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/64853180...](https://t.me/ferretman/1616)
-- [MediaHi, Wasabi! 🦦 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648531744357859328](https://t.me/ferretman/1615)
+- [Mediaferret lovervia Ferret Story https://just-a-catastrophy.tumblr.com/post/648365653630304256](https://t.me/ferretman/1580)
+- [vet-and-wild:The perfect back scratchervia Ferret Story https://scrisoridemai.tumblr.com/post/648361881215598592](https://t.me/ferretman/1579)
+- [MediaSweet dreams buddyvia Ferret Story https://prettypeterparkr.tumblr.com/post/648361880989089793](https://t.me/ferretman/1578)
+- [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
+- [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
 <!-- TELEGRAM:END -->
