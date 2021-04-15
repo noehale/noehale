@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaGnar 1.5 Months on Pred and CBD! So much better! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648520399764832256](https://t.me/ferretman/1611)
-- [MediaFinding a comfy position : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648490230169600001](https://t.me/ferretman/1610)
-- [MediaFatso diving in her sleepvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648486440655831041](https://t.me/ferretman/1609)
-- [bob-artist:bob-artist:“You wanna go crazy?”Kit politely asks me to play with him.  Our morning ritual is tea and flailing.FYI he only asked politel...](https://t.me/ferretman/1608)
-- [indiandaughter:ill pay u $7 to have a crush on mevia Ferret Story https://prettypeterparkr.tumblr.com/post/648482665505390592](https://t.me/ferretman/1607)
+- [jhameia:velocicrafter:weloveshortvideos:He actually told the timeHOW did the parent not die laughing immediately!?OMG HE ACTUALLY TOLD THE TIMEvia Fer...](https://t.me/ferretman/1619)
+- [MediaRory Is Always On The Movevia Ferret Story https://scrisoridemai.tumblr.com/post/648543079410925568](https://t.me/ferretman/1618)
+- [MediaRe-homed a 4mo old little boy. I have successfully weaned him from Marshall kibble to Wysong as a first step. After a week, he still does not rec...](https://t.me/ferretman/1617)
+- [MediaJust got our babies a few days ago and I cannot handle their little faces omg : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/64853180...](https://t.me/ferretman/1616)
+- [MediaHi, Wasabi! 🦦 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648531744357859328](https://t.me/ferretman/1615)
 <!-- TELEGRAM:END -->
