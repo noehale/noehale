@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSleepyzzzzzvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648456269735378944](https://t.me/ferretman/1600)
-- [MediaWater breakvia Ferret Story https://scrisoridemai.tumblr.com/post/648452471153360896](https://t.me/ferretman/1599)
-- [bob-artist:I reach into my garbage can and locate my trash child.via Ferret Story https://prettypeterparkr.tumblr.com/post/648452440414371841](https://t.me/ferretman/1598)
-- [MediaCaught these two geniuses trying to eat a sunflower. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648444921996591104](https://t.me/ferretman/1597)
-- [MediaBack at it again with a very sleepy man 😴🥺 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648441199143829504](https://t.me/ferretman/1596)
+- [MediaButter ate too much easter candy and is now regretting life decisions : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6484751187917...](https://t.me/ferretman/1606)
+- [MediaIf ferrets could video chat, it would look like this : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/64847140432976...](https://t.me/ferretman/1605)
+- [MediaPosting this super late but my two woozles- Luna and Lalo ❤️ : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648471400037908480](https://t.me/ferretman/1604)
+- [MediaFurry noodle yawns : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648471365334204417](https://t.me/ferretman/1603)
+- [MediaOlive and Wonton! ☺️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648471365338513408](https://t.me/ferretman/1602)
 <!-- TELEGRAM:END -->
