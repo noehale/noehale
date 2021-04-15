@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret lovervia Ferret Story https://just-a-catastrophy.tumblr.com/post/648365653630304256](https://t.me/ferretman/1580)
-- [vet-and-wild:The perfect back scratchervia Ferret Story https://scrisoridemai.tumblr.com/post/648361881215598592](https://t.me/ferretman/1579)
-- [MediaSweet dreams buddyvia Ferret Story https://prettypeterparkr.tumblr.com/post/648361880989089793](https://t.me/ferretman/1578)
-- [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
-- [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
+- [MediaFinding a comfy position : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648490230169600001](https://t.me/ferretman/1610)
+- [MediaFatso diving in her sleepvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648486440655831041](https://t.me/ferretman/1609)
+- [bob-artist:bob-artist:“You wanna go crazy?”Kit politely asks me to play with him.  Our morning ritual is tea and flailing.FYI he only asked politel...](https://t.me/ferretman/1608)
+- [indiandaughter:ill pay u $7 to have a crush on mevia Ferret Story https://prettypeterparkr.tumblr.com/post/648482665505390592](https://t.me/ferretman/1607)
+- [MediaButter ate too much easter candy and is now regretting life decisions : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6484751187917...](https://t.me/ferretman/1606)
 <!-- TELEGRAM:END -->
