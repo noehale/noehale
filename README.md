@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret lovervia Ferret Story https://just-a-catastrophy.tumblr.com/post/648365653630304256](https://t.me/ferretman/1580)
-- [vet-and-wild:The perfect back scratchervia Ferret Story https://scrisoridemai.tumblr.com/post/648361881215598592](https://t.me/ferretman/1579)
-- [MediaSweet dreams buddyvia Ferret Story https://prettypeterparkr.tumblr.com/post/648361880989089793](https://t.me/ferretman/1578)
-- [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
-- [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
+- [MediaPeople will see a snippet of your cage and swear your ferrets are neglected 😩 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/6485621...](https://t.me/ferretman/1625)
+- [enemy-stand:tramampoline:evitron:evitron:best moments in gaming journalismjournalist gets real yakuza members to play yakuza 3 and asks for their opin...](https://t.me/ferretman/1624)
+- [MediaTwo of my kids. Luci and Buddy. Elfo was somewhere snoozing in one of his giddy spots. : ferretsvia Ferret Story https://somewhere-inthe-deepdeta...](https://t.me/ferretman/1623)
+- [MediaSidhe and Juniper standing still together for a second.via Ferret Story https://babyiwannaknow.tumblr.com/post/648562018331344896](https://t.me/ferretman/1622)
+- [Mediasinglekinkymaster:daksinakke:funfrom4chan:So my cat likes unpacking..thats the happiest fucking cat ive ever seeni have th same reaction to bubbl...](https://t.me/ferretman/1621)
 <!-- TELEGRAM:END -->
