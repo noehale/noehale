@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaButter ate too much easter candy and is now regretting life decisions : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6484751187917...](https://t.me/ferretman/1606)
-- [MediaIf ferrets could video chat, it would look like this : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/64847140432976...](https://t.me/ferretman/1605)
-- [MediaPosting this super late but my two woozles- Luna and Lalo ❤️ : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648471400037908480](https://t.me/ferretman/1604)
-- [MediaFurry noodle yawns : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648471365334204417](https://t.me/ferretman/1603)
-- [MediaOlive and Wonton! ☺️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648471365338513408](https://t.me/ferretman/1602)
+- [jhameia:velocicrafter:weloveshortvideos:He actually told the timeHOW did the parent not die laughing immediately!?OMG HE ACTUALLY TOLD THE TIMEvia Fer...](https://t.me/ferretman/1619)
+- [MediaRory Is Always On The Movevia Ferret Story https://scrisoridemai.tumblr.com/post/648543079410925568](https://t.me/ferretman/1618)
+- [MediaRe-homed a 4mo old little boy. I have successfully weaned him from Marshall kibble to Wysong as a first step. After a week, he still does not rec...](https://t.me/ferretman/1617)
+- [MediaJust got our babies a few days ago and I cannot handle their little faces omg : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/64853180...](https://t.me/ferretman/1616)
+- [MediaHi, Wasabi! 🦦 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648531744357859328](https://t.me/ferretman/1615)
 <!-- TELEGRAM:END -->
