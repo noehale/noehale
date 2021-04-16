@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaGeoffrey looking extra handsome today : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648580811209211904](https://t.me/ferretman/1630)
-- [soselfimportant: 4:35 Blaze it sorry traffic was crazyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648577026199044096](https://t.me/ferretman/1629)
-- [MediaPrincess Chunky Thighs is losing her mind over packing peanuts.via Ferret Story https://scrisoridemai.tumblr.com/post/648573259890212864](https://t.me/ferretman/1628)
-- [MediaMy boyfriend caught me cheatin : ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/648573259889147904](https://t.me/ferretman/1627)
-- [Mediapeekaboo : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648565771574853632](https://t.me/ferretman/1626)
+- [Mediaferret lovervia Ferret Story https://just-a-catastrophy.tumblr.com/post/648365653630304256](https://t.me/ferretman/1580)
+- [vet-and-wild:The perfect back scratchervia Ferret Story https://scrisoridemai.tumblr.com/post/648361881215598592](https://t.me/ferretman/1579)
+- [MediaSweet dreams buddyvia Ferret Story https://prettypeterparkr.tumblr.com/post/648361880989089793](https://t.me/ferretman/1578)
+- [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
+- [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
 <!-- TELEGRAM:END -->
