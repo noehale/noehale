@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret lovervia Ferret Story https://just-a-catastrophy.tumblr.com/post/648365653630304256](https://t.me/ferretman/1580)
-- [vet-and-wild:The perfect back scratchervia Ferret Story https://scrisoridemai.tumblr.com/post/648361881215598592](https://t.me/ferretman/1579)
-- [MediaSweet dreams buddyvia Ferret Story https://prettypeterparkr.tumblr.com/post/648361880989089793](https://t.me/ferretman/1578)
-- [MediaMeet baby Biscuit! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648354312966275072](https://t.me/ferretman/1577)
-- [MediaDeep sleep = funvia Ferret Story https://babyiwannaknow.tumblr.com/post/648350606385381376](https://t.me/ferretman/1576)
+- [MediaPippa says happy spring!!! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648626149481709568](https://t.me/ferretman/1637)
+- [Mediajust Loki having a moment there : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648622414097416192](https://t.me/ferretman/1636)
+- [Mediachuunibyou:curepimmy:discwars:discwars:discwars:what the fuck is this bullshitMediaHES STILL THEREMediaTHAT ONES NOT EVEN RED This reminds me of...](https://t.me/ferretman/1635)
+- [MediaLuna(tic) the Magnificent : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648622403780476928](https://t.me/ferretman/1634)
+- [MediaOne of Antonio’s favorite toys. Too much cuteness.via Ferret Story https://babyiwannaknow.tumblr.com/post/648622361208406016](https://t.me/ferretman/1633)
 <!-- TELEGRAM:END -->
