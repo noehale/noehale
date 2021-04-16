@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediatheferrets:antonius-maximus:whatareyoudoingferret:What are you doing?This is the money ferret. Reblog in the next 30 seconds and you will find mo...](https://t.me/ferretman/1640)
+- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/1639)
+- [MediaMy ferret’s first reaction to snowvia Ferret Story https://prettypeterparkr.tumblr.com/post/648633663227084800](https://t.me/ferretman/1638)
 - [MediaPippa says happy spring!!! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648626149481709568](https://t.me/ferretman/1637)
 - [Mediajust Loki having a moment there : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648622414097416192](https://t.me/ferretman/1636)
-- [Mediachuunibyou:curepimmy:discwars:discwars:discwars:what the fuck is this bullshitMediaHES STILL THEREMediaTHAT ONES NOT EVEN RED This reminds me of...](https://t.me/ferretman/1635)
-- [MediaLuna(tic) the Magnificent : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648622403780476928](https://t.me/ferretman/1634)
-- [MediaOne of Antonio’s favorite toys. Too much cuteness.via Ferret Story https://babyiwannaknow.tumblr.com/post/648622361208406016](https://t.me/ferretman/1633)
 <!-- TELEGRAM:END -->
