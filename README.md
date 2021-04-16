@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaGeoffrey looking extra handsome today : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648580811209211904](https://t.me/ferretman/1630)
 - [soselfimportant: 4:35 Blaze it sorry traffic was crazyvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648577026199044096](https://t.me/ferretman/1629)
 - [MediaPrincess Chunky Thighs is losing her mind over packing peanuts.via Ferret Story https://scrisoridemai.tumblr.com/post/648573259890212864](https://t.me/ferretman/1628)
 - [MediaMy boyfriend caught me cheatin : ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/648573259889147904](https://t.me/ferretman/1627)
 - [Mediapeekaboo : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648565771574853632](https://t.me/ferretman/1626)
-- [MediaPeople will see a snippet of your cage and swear your ferrets are neglected 😩 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/6485621...](https://t.me/ferretman/1625)
 <!-- TELEGRAM:END -->
