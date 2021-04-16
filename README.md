@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaPeople will see a snippet of your cage and swear your ferrets are neglected 😩 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/6485621...](https://t.me/ferretman/1625)
-- [enemy-stand:tramampoline:evitron:evitron:best moments in gaming journalismjournalist gets real yakuza members to play yakuza 3 and asks for their opin...](https://t.me/ferretman/1624)
-- [MediaTwo of my kids. Luci and Buddy. Elfo was somewhere snoozing in one of his giddy spots. : ferretsvia Ferret Story https://somewhere-inthe-deepdeta...](https://t.me/ferretman/1623)
-- [MediaSidhe and Juniper standing still together for a second.via Ferret Story https://babyiwannaknow.tumblr.com/post/648562018331344896](https://t.me/ferretman/1622)
-- [Mediasinglekinkymaster:daksinakke:funfrom4chan:So my cat likes unpacking..thats the happiest fucking cat ive ever seeni have th same reaction to bubbl...](https://t.me/ferretman/1621)
+- [MediaButter ate too much easter candy and is now regretting life decisions : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6484751187917...](https://t.me/ferretman/1606)
+- [MediaIf ferrets could video chat, it would look like this : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/64847140432976...](https://t.me/ferretman/1605)
+- [MediaPosting this super late but my two woozles- Luna and Lalo ❤️ : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648471400037908480](https://t.me/ferretman/1604)
+- [MediaFurry noodle yawns : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648471365334204417](https://t.me/ferretman/1603)
+- [MediaOlive and Wonton! ☺️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648471365338513408](https://t.me/ferretman/1602)
 <!-- TELEGRAM:END -->
