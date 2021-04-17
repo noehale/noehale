@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediatheferrets:antonius-maximus:whatareyoudoingferret:What are you doing?This is the money ferret. Reblog in the next 30 seconds and you will find mo...](https://t.me/ferretman/1640)
-- [thelifeofmyferrets:errricuh:i-am-fert:thelifeofmyferrets:MediaMediaMediaMediaDucky got to meet Mark Ruffalo. Mark knew that Ducky was a ferret. He was...](https://t.me/ferretman/1639)
-- [MediaMy ferret’s first reaction to snowvia Ferret Story https://prettypeterparkr.tumblr.com/post/648633663227084800](https://t.me/ferretman/1638)
-- [MediaPippa says happy spring!!! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648626149481709568](https://t.me/ferretman/1637)
-- [Mediajust Loki having a moment there : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648622414097416192](https://t.me/ferretman/1636)
+- [MediaHavin a good snooooooze ft. lil tongue : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648656312520032257](https://t.me/ferretman/1646)
+- [vet-and-wild:One thing I love about ferrets is how they just get tired in the most ridiculous places.MediaHe was halfway into his cage and he decided ...](https://t.me/ferretman/1645)
+- [MediaMediaMediasirfrogsworth:This is the same guilt you feel when you accidentally step on a paw and hear that high pitched yipe. via Ferret Story ht...](https://t.me/ferretman/1644)
+- [MediaWhat are we gonna listen to tonight? : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648652528761946113](https://t.me/ferretman/1643)
+- [MediaBaby Ferrerts Drinking Water from the Water Bottle **See Description** : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648652528760881...](https://t.me/ferretman/1642)
 <!-- TELEGRAM:END -->
