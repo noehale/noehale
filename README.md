@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaFirst time Floppy has seen the snow ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648701583836790784](https://t.me/ferretman/1651)
 - [MediaHaving a bad news day so here’s a video of my chonk Pip-Nip and yes, the vet actually classified him as a “Chonk”. : ferretsvia Ferret Story h...](https://t.me/ferretman/1650)
 - [Mediabambuzl:ferrets for character design classvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648667700306034688](https://t.me/ferretman/1649)
 - [http://passivefan.tumblr.com/post/121141061456/doodlingfanboy-imhiskindofcrazy-yourpetdog:doodlingfanboy:imhiskindofcrazy:yourpetdog:yourpetdog:what i...](https://t.me/ferretman/1648)
 - [ferretsoftiktok:via Ferret Story https://scrisoridemai.tumblr.com/post/648663862809411584](https://t.me/ferretman/1647)
-- [MediaHavin a good snooooooze ft. lil tongue : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648656312520032257](https://t.me/ferretman/1646)
 <!-- TELEGRAM:END -->
