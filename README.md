@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaHaving a bad news day so here’s a video of my chonk Pip-Nip and yes, the vet actually classified him as a “Chonk”. : ferretsvia Ferret Story h...](https://t.me/ferretman/1650)
+- [Mediabambuzl:ferrets for character design classvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648667700306034688](https://t.me/ferretman/1649)
+- [http://passivefan.tumblr.com/post/121141061456/doodlingfanboy-imhiskindofcrazy-yourpetdog:doodlingfanboy:imhiskindofcrazy:yourpetdog:yourpetdog:what i...](https://t.me/ferretman/1648)
+- [ferretsoftiktok:via Ferret Story https://scrisoridemai.tumblr.com/post/648663862809411584](https://t.me/ferretman/1647)
 - [MediaHavin a good snooooooze ft. lil tongue : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648656312520032257](https://t.me/ferretman/1646)
-- [vet-and-wild:One thing I love about ferrets is how they just get tired in the most ridiculous places.MediaHe was halfway into his cage and he decided ...](https://t.me/ferretman/1645)
-- [MediaMediaMediasirfrogsworth:This is the same guilt you feel when you accidentally step on a paw and hear that high pitched yipe. via Ferret Story ht...](https://t.me/ferretman/1644)
-- [MediaWhat are we gonna listen to tonight? : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648652528761946113](https://t.me/ferretman/1643)
-- [MediaBaby Ferrerts Drinking Water from the Water Bottle **See Description** : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648652528760881...](https://t.me/ferretman/1642)
 <!-- TELEGRAM:END -->
