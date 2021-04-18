@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [johnthedragon:savannahlemur:No No No! 🙀 Don’t take your hands. I feel so comfy. 💕🐊HOW CAN SOMETHING BE THIS CUTEvia Ferret Story https://pun...](https://t.me/ferretman/1671)
 - [Mediadutchster:*talk to cat*cat says “meow”*talk to cat"cat purrs*talk to cat"cat says “this is your purr-pose”cat has given you a quest: “coll...](https://t.me/ferretman/1670)
 - [thatsthat24:puddletumbles:puddletumbles:what a good morning!! im gonna draw a dog!! apRIL FOOLS I...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/1669)
 - [babyanimalgifs:Don’t say anything, just reblog (via)via Ferret Story https://scrisoridemai.tumblr.com/post/648754476850855936](https://t.me/ferretman/1668)
 - [MediaFlashback to a fall expedition for Cheeca and Jaxonvia Ferret Story https://prettypeterparkr.tumblr.com/post/648754476885393409](https://t.me/ferretman/1667)
-- [MediaHehhe : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648746929548902400](https://t.me/ferretman/1666)
 <!-- TELEGRAM:END -->
