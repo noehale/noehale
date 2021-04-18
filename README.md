@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thatsthat24:puddletumbles:puddletumbles:what a good morning!! im gonna draw a dog!! apRIL FOOLS I...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/1669)
-- [babyanimalgifs:Don’t say anything, just reblog (via)via Ferret Story https://scrisoridemai.tumblr.com/post/648754476850855936](https://t.me/ferretman/1668)
-- [MediaFlashback to a fall expedition for Cheeca and Jaxonvia Ferret Story https://prettypeterparkr.tumblr.com/post/648754476885393409](https://t.me/ferretman/1667)
-- [MediaHehhe : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648746929548902400](https://t.me/ferretman/1666)
-- [catchymemes:imagevia Ferret Story https://falalamingo.tumblr.com/post/648743152137682944](https://t.me/ferretman/1665)
+- [theferrets:verdantbones:meskri:armedandgayngerous:samael:ratboigles:myutsuu:ratboigles:meatmage:myutsuu:myutsuu:but…otters are predators?otters?such ...](https://t.me/ferretman/1659)
+- [Mediamy crazy beautiful angel runt of the litter, coconut!!via Ferret Story https://prettypeterparkr.tumblr.com/post/648724241149198337](https://t.me/ferretman/1658)
+- [MediaDon’t give sugar, ferret die. Marshall’s: Let’s make ferret vitamins out of maple sugar. Anyway here a #toastpost : ferretsvia Ferret Story ht...](https://t.me/ferretman/1657)
+- [MONEY. WE WANT MONEY. MONEY MONEY MONEY MONEY MONEY. WE CAN DO SO MUCH WITH IT. WE HAVE ACCESS TO DEALS YOU COULD NEVER. MONEYThat aside. I’m only g...](https://t.me/ferretman/1656)
+- [Mediaallerliefste:this is absolutely the best thing i have read all dayvia Ferret Story https://falalamingo.tumblr.com/post/648713017268322304](https://t.me/ferretman/1655)
 <!-- TELEGRAM:END -->
