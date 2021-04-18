@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaTook me forever to find their new secret napping spot. That USED to be a neatly organized drawer of twist ties, which now seem to be repurposed a...](https://t.me/ferretman/1660)
-- [theferrets:verdantbones:meskri:armedandgayngerous:samael:ratboigles:myutsuu:ratboigles:meatmage:myutsuu:myutsuu:but…otters are predators?otters?such ...](https://t.me/ferretman/1659)
-- [Mediamy crazy beautiful angel runt of the litter, coconut!!via Ferret Story https://prettypeterparkr.tumblr.com/post/648724241149198337](https://t.me/ferretman/1658)
-- [MediaDon’t give sugar, ferret die. Marshall’s: Let’s make ferret vitamins out of maple sugar. Anyway here a #toastpost : ferretsvia Ferret Story ht...](https://t.me/ferretman/1657)
-- [MONEY. WE WANT MONEY. MONEY MONEY MONEY MONEY MONEY. WE CAN DO SO MUCH WITH IT. WE HAVE ACCESS TO DEALS YOU COULD NEVER. MONEYThat aside. I’m only g...](https://t.me/ferretman/1656)
+- [MediaFirst time Floppy has seen the snow ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648701583836790784](https://t.me/ferretman/1651)
+- [MediaHaving a bad news day so here’s a video of my chonk Pip-Nip and yes, the vet actually classified him as a “Chonk”. : ferretsvia Ferret Story h...](https://t.me/ferretman/1650)
+- [Mediabambuzl:ferrets for character design classvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648667700306034688](https://t.me/ferretman/1649)
+- [http://passivefan.tumblr.com/post/121141061456/doodlingfanboy-imhiskindofcrazy-yourpetdog:doodlingfanboy:imhiskindofcrazy:yourpetdog:yourpetdog:what i...](https://t.me/ferretman/1648)
+- [ferretsoftiktok:via Ferret Story https://scrisoridemai.tumblr.com/post/648663862809411584](https://t.me/ferretman/1647)
 <!-- TELEGRAM:END -->
