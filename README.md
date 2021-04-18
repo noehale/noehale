@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFirst time Floppy has seen the snow ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/648701583836790784](https://t.me/ferretman/1651)
-- [MediaHaving a bad news day so here’s a video of my chonk Pip-Nip and yes, the vet actually classified him as a “Chonk”. : ferretsvia Ferret Story h...](https://t.me/ferretman/1650)
-- [Mediabambuzl:ferrets for character design classvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648667700306034688](https://t.me/ferretman/1649)
-- [http://passivefan.tumblr.com/post/121141061456/doodlingfanboy-imhiskindofcrazy-yourpetdog:doodlingfanboy:imhiskindofcrazy:yourpetdog:yourpetdog:what i...](https://t.me/ferretman/1648)
-- [ferretsoftiktok:via Ferret Story https://scrisoridemai.tumblr.com/post/648663862809411584](https://t.me/ferretman/1647)
+- [thatsthat24:puddletumbles:puddletumbles:what a good morning!! im gonna draw a dog!! apRIL FOOLS I...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/1669)
+- [babyanimalgifs:Don’t say anything, just reblog (via)via Ferret Story https://scrisoridemai.tumblr.com/post/648754476850855936](https://t.me/ferretman/1668)
+- [MediaFlashback to a fall expedition for Cheeca and Jaxonvia Ferret Story https://prettypeterparkr.tumblr.com/post/648754476885393409](https://t.me/ferretman/1667)
+- [MediaHehhe : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648746929548902400](https://t.me/ferretman/1666)
+- [catchymemes:imagevia Ferret Story https://falalamingo.tumblr.com/post/648743152137682944](https://t.me/ferretman/1665)
 <!-- TELEGRAM:END -->
