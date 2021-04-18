@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [theferrets:verdantbones:meskri:armedandgayngerous:samael:ratboigles:myutsuu:ratboigles:meatmage:myutsuu:myutsuu:but…otters are predators?otters?such ...](https://t.me/ferretman/1659)
-- [Mediamy crazy beautiful angel runt of the litter, coconut!!via Ferret Story https://prettypeterparkr.tumblr.com/post/648724241149198337](https://t.me/ferretman/1658)
-- [MediaDon’t give sugar, ferret die. Marshall’s: Let’s make ferret vitamins out of maple sugar. Anyway here a #toastpost : ferretsvia Ferret Story ht...](https://t.me/ferretman/1657)
-- [MONEY. WE WANT MONEY. MONEY MONEY MONEY MONEY MONEY. WE CAN DO SO MUCH WITH IT. WE HAVE ACCESS TO DEALS YOU COULD NEVER. MONEYThat aside. I’m only g...](https://t.me/ferretman/1656)
-- [Mediaallerliefste:this is absolutely the best thing i have read all dayvia Ferret Story https://falalamingo.tumblr.com/post/648713017268322304](https://t.me/ferretman/1655)
+- [MediaSpeedbumpin : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648807279073902592](https://t.me/ferretman/1677)
+- [MediaMediaMediaMediadoodleofboredom:Oh, Valentine. via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648803599003025408](https://t.me/ferretman/1676)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/648803599110094848](https://t.me/ferretman/1675)
+- [MediaDorinda does not like it when you take her orange balls! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648803550971019264](https://t.me/ferretman/1674)
+- [MediaMans loves his mom : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648803550024056832](https://t.me/ferretman/1673)
 <!-- TELEGRAM:END -->
