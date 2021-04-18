@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/648818631449378816](https://t.me/ferretman/1680)
+- [thatweirdferretlady:Point madevia Ferret Story https://prettypeterparkr.tumblr.com/post/648814866326503424](https://t.me/ferretman/1679)
+- [MediaBoogie’s “sorry dad I didn’t mean to dig up all the plants but look how cute I am please forgive me” facevia Ferret Story https://scrisoridem...](https://t.me/ferretman/1678)
 - [MediaSpeedbumpin : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648807279073902592](https://t.me/ferretman/1677)
 - [MediaMediaMediaMediadoodleofboredom:Oh, Valentine. via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648803599003025408](https://t.me/ferretman/1676)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/648803599110094848](https://t.me/ferretman/1675)
-- [MediaDorinda does not like it when you take her orange balls! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648803550971019264](https://t.me/ferretman/1674)
-- [MediaMans loves his mom : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648803550024056832](https://t.me/ferretman/1673)
 <!-- TELEGRAM:END -->
