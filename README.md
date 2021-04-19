@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediadailyferret:https://www.instagram.com/p/B6GDsYNF9ea/via Ferret Story https://punkrocknat.tumblr.com/post/648852594403508225](https://t.me/ferretman/1690)
+- [MediaMediaiamanemotionaltimebomb:She screamvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648848901870436352](https://t.me/ferretman/1689)
+- [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://prettypeterp...](https://t.me/ferretman/1688)
+- [MediaWhen he didn’t want me to get a ferret, but now they are best friends 😂via Ferret Story https://scrisoridemai.tumblr.com/post/648845040229253...](https://t.me/ferretman/1687)
 - [MediaLaundry will never be a boring chore again. Who doesn’t love a rousing game of sock tug-o-war followed by a treasure hunt for Riot’s new sock s...](https://t.me/ferretman/1686)
-- [ferretfiends:Ah okay THIS is why I haven’t been able to find my slippers for monthsvia Ferret Story https://babyiwannaknow.tumblr.com/post/6488338688...](https://t.me/ferretman/1685)
-- [Mediahere’s fifi relaxin’ on her favorite rug : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648833809310171136](https://t.me/ferretman/1684)
-- [MediaFreya🌈 (aka Frey-Frey) sleeping like a champ on my sheepskin rug circa 2013ish. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648...](https://t.me/ferretman/1683)
-- [Mediaso much excitement : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648833809015504896](https://t.me/ferretman/1682)
 <!-- TELEGRAM:END -->
