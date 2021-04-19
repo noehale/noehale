@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/648818631449378816](https://t.me/ferretman/1680)
-- [thatweirdferretlady:Point madevia Ferret Story https://prettypeterparkr.tumblr.com/post/648814866326503424](https://t.me/ferretman/1679)
-- [MediaBoogie’s “sorry dad I didn’t mean to dig up all the plants but look how cute I am please forgive me” facevia Ferret Story https://scrisoridem...](https://t.me/ferretman/1678)
-- [MediaSpeedbumpin : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648807279073902592](https://t.me/ferretman/1677)
-- [MediaMediaMediaMediadoodleofboredom:Oh, Valentine. via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/648803599003025408](https://t.me/ferretman/1676)
+- [MediaLaundry will never be a boring chore again. Who doesn’t love a rousing game of sock tug-o-war followed by a treasure hunt for Riot’s new sock s...](https://t.me/ferretman/1686)
+- [ferretfiends:Ah okay THIS is why I haven’t been able to find my slippers for monthsvia Ferret Story https://babyiwannaknow.tumblr.com/post/6488338688...](https://t.me/ferretman/1685)
+- [Mediahere’s fifi relaxin’ on her favorite rug : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648833809310171136](https://t.me/ferretman/1684)
+- [MediaFreya🌈 (aka Frey-Frey) sleeping like a champ on my sheepskin rug circa 2013ish. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/648...](https://t.me/ferretman/1683)
+- [Mediaso much excitement : ferretsvia Ferret Story https://redzgn.tumblr.com/post/648833809015504896](https://t.me/ferretman/1682)
 <!-- TELEGRAM:END -->
