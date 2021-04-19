@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediadailyferret:https://www.instagram.com/p/B6GDsYNF9ea/via Ferret Story https://punkrocknat.tumblr.com/post/648852594403508225](https://t.me/ferretman/1690)
-- [MediaMediaiamanemotionaltimebomb:She screamvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648848901870436352](https://t.me/ferretman/1689)
-- [Mediacarouselcarl:day 4 - OC octoberMushroom ferret. He enjoys causing mischief and pretending to be a mushroom via Ferret Story https://prettypeterp...](https://t.me/ferretman/1688)
-- [MediaWhen he didn’t want me to get a ferret, but now they are best friends 😂via Ferret Story https://scrisoridemai.tumblr.com/post/648845040229253...](https://t.me/ferretman/1687)
-- [MediaLaundry will never be a boring chore again. Who doesn’t love a rousing game of sock tug-o-war followed by a treasure hunt for Riot’s new sock s...](https://t.me/ferretman/1686)
+- [<a href="https://64.media.tumblr.com/ad23eaab86c3f60667affa7ee52ad754/tumblr_o0au5e5koi1r5ngljo1_500.png">Media</a><a href="https://64.media.tumblr.co...](https://t.me/ferretman/1696)
+- [slumbermancer:pisboy:slumbermancer:pisboy:does anyone have the gamer dance gif because i need itThis? MediaHmm…………….. not quite. try againOnly g...](https://t.me/ferretman/1695)
+- [MediaThey both fell asleep, deep sleep. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648894199626891264](https://t.me/ferretman/1694)
+- [MediaIf you don’t think he’s cute I have some news for you, you’re wrong. 😂 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/64889419927...](https://t.me/ferretman/1693)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/648894193025040384](https://t.me/ferretman/1692)
 <!-- TELEGRAM:END -->
