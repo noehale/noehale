@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCaption this!via Ferret Story https://just-a-catastrophy.tumblr.com/post/648909252544610304](https://t.me/ferretman/1700)
-- [theferrets:unorthodox-views:ckascade:rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyNot riskin...](https://t.me/ferretman/1699)
-- [via Ferret Story https://prettypeterparkr.tumblr.com/post/648905461557542912](https://t.me/ferretman/1698)
-- [MediaTrying to get my boys used to using pee pads… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648897893667864576](https://t.me/ferretman/1697)
 - [<a href="https://64.media.tumblr.com/ad23eaab86c3f60667affa7ee52ad754/tumblr_o0au5e5koi1r5ngljo1_500.png">Media</a><a href="https://64.media.tumblr.co...](https://t.me/ferretman/1696)
+- [slumbermancer:pisboy:slumbermancer:pisboy:does anyone have the gamer dance gif because i need itThis? MediaHmm…………….. not quite. try againOnly g...](https://t.me/ferretman/1695)
+- [MediaThey both fell asleep, deep sleep. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648894199626891264](https://t.me/ferretman/1694)
+- [MediaIf you don’t think he’s cute I have some news for you, you’re wrong. 😂 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/64889419927...](https://t.me/ferretman/1693)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/648894193025040384](https://t.me/ferretman/1692)
 <!-- TELEGRAM:END -->
