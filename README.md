@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [vladtheimpalainvalhalla:bugtears:modmad:We interrupt your usual schedule to bring you a very small pig descending a set of stairs.HE JUMPS RIGHT INTO ...](https://t.me/ferretman/1718)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/648996004208787456](https://t.me/ferretman/1717)
+- [thelifeofmyferrets:MediaI spooked him.via Ferret Story https://prettypeterparkr.tumblr.com/post/648996004186701824](https://t.me/ferretman/1716)
 - [MediaSkunk-ferret : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648988496461266944](https://t.me/ferretman/1715)
 - [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/1714)
-- [MediaHappy hump day from this cute little twerp. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648984720498130944](https://t.me/ferretman/1713)
-- [MediaMediawholesomethemedmemes:Just in case you were feeling discouraged.via Ferret Story https://xxcrybby.tumblr.com/post/648984720511827968](https://t.me/ferretman/1712)
-- [MediaSeeking Input – Medical Mystery – Details in commentsvia Ferret Story https://redzgn.tumblr.com/post/648984720490840064](https://t.me/ferretman/1711)
 <!-- TELEGRAM:END -->
