@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thatweirdferretlady:ferret-suggest:chikadee:ferret-suggest:thatweirdferretlady:I have 4 ferrets. I guess you could say I’m a......small business owne...](https://t.me/ferretman/1708)
-- [Mediabob-artist:bob-artist:Behold a manFYI that’s his summer bod.LOOK AT HIS WINTER BODY.MediaThis is it.  This is the perfect shape.via Ferret Stor...](https://t.me/ferretman/1707)
-- [MediaRescued these three about a month ago, I am so in love with them 😍😭 sleepy floofs : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/...](https://t.me/ferretman/1706)
-- [theferrets:unorthodox-views:ckascade:rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyNot riskin...](https://t.me/ferretman/1705)
-- [MediaMimir is insistent. Sashi only likes to ambush. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648924327615528960](https://t.me/ferretman/1704)
+- [MediaSkunk-ferret : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648988496461266944](https://t.me/ferretman/1715)
+- [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/1714)
+- [MediaHappy hump day from this cute little twerp. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/648984720498130944](https://t.me/ferretman/1713)
+- [MediaMediawholesomethemedmemes:Just in case you were feeling discouraged.via Ferret Story https://xxcrybby.tumblr.com/post/648984720511827968](https://t.me/ferretman/1712)
+- [MediaSeeking Input – Medical Mystery – Details in commentsvia Ferret Story https://redzgn.tumblr.com/post/648984720490840064](https://t.me/ferretman/1711)
 <!-- TELEGRAM:END -->
