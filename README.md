@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaVanilla first time in the snow 😍 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649064141087260672](https://t.me/ferretman/1729)
-- [MediaMade a Tik Tok of my feisty girl, Mushu. The song was too fitting. (The song does have bad language) : ferretsvia Ferret Story https://punkrockna...](https://t.me/ferretman/1728)
-- [foxgal: bugpussy: foxgal: hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAA shut upvia Ferret Story https://just-a-catastrophy.tumblr.com/post/64903000489374...](https://t.me/ferretman/1727)
-- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://scrisoridemai.tumblr.com/post/649026207588941824](https://t.me/ferretman/1726)
-- [bob-artist:imageomg she’s gonna yawn!!!imageso cuteimageso cuuuuteimageomgggg so cuuuuuteimagesooooooooooo cuuuuuuuuuuuteeeeeimageokay that’s enough...](https://t.me/ferretman/1725)
+- [MediaTrue love summed up in one picture 😍via Ferret Story https://scrisoridemai.tumblr.com/post/649086655199936513](https://t.me/ferretman/1737)
+- [MediaGwin making one of the cutest sounds evervia Ferret Story https://prettypeterparkr.tumblr.com/post/649086655195693056](https://t.me/ferretman/1736)
+- [Mediahis face is perfect : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649079090873237504](https://t.me/ferretman/1735)
+- [MediaGrrrrrrr! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649075375376400384](https://t.me/ferretman/1734)
+- [MediaFeeding our Ferret with Pumpkin p.2b 🎃 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649075354570489856](https://t.me/ferretman/1733)
 <!-- TELEGRAM:END -->
