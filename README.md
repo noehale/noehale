@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [vladtheimpalainvalhalla:bugtears:modmad:We interrupt your usual schedule to bring you a very small pig descending a set of stairs.HE JUMPS RIGHT INTO ...](https://t.me/ferretman/1718)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/648996004208787456](https://t.me/ferretman/1717)
-- [thelifeofmyferrets:MediaI spooked him.via Ferret Story https://prettypeterparkr.tumblr.com/post/648996004186701824](https://t.me/ferretman/1716)
-- [MediaSkunk-ferret : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/648988496461266944](https://t.me/ferretman/1715)
-- [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/1714)
+- [Mediacuddling w the very dirty duck that Ollie won’t let me clean 🤣❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649018705317...](https://t.me/ferretman/1724)
+- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://babyiwannaknow.tumblr.com/post/649015041373421568](https://t.me/ferretman/1723)
+- [MediaHe’s upset that I woke him up : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649015039397920768](https://t.me/ferretman/1722)
+- [MediaOur babies pebbles and daisy having cuddle time🥰 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649015038731075584](https://t.me/ferretman/1721)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaplague-of-insomnia:wicked-game-black-butler:bigboyyoungman:ruffboijuliaburnsides:neko-goes-nyah:Lear...](https://t.me/ferretman/1720)
 <!-- TELEGRAM:END -->
