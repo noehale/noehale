@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMade a Tik Tok of my feisty girl, Mushu. The song was too fitting. (The song does have bad language) : ferretsvia Ferret Story https://punkrockna...](https://t.me/ferretman/1728)
+- [foxgal: bugpussy: foxgal: hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAA shut upvia Ferret Story https://just-a-catastrophy.tumblr.com/post/64903000489374...](https://t.me/ferretman/1727)
+- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://scrisoridemai.tumblr.com/post/649026207588941824](https://t.me/ferretman/1726)
+- [bob-artist:imageomg she’s gonna yawn!!!imageso cuteimageso cuuuuteimageomgggg so cuuuuuteimagesooooooooooo cuuuuuuuuuuuteeeeeimageokay that’s enough...](https://t.me/ferretman/1725)
 - [Mediacuddling w the very dirty duck that Ollie won’t let me clean 🤣❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649018705317...](https://t.me/ferretman/1724)
-- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://babyiwannaknow.tumblr.com/post/649015041373421568](https://t.me/ferretman/1723)
-- [MediaHe’s upset that I woke him up : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649015039397920768](https://t.me/ferretman/1722)
-- [MediaOur babies pebbles and daisy having cuddle time🥰 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649015038731075584](https://t.me/ferretman/1721)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaplague-of-insomnia:wicked-game-black-butler:bigboyyoungman:ruffboijuliaburnsides:neko-goes-nyah:Lear...](https://t.me/ferretman/1720)
 <!-- TELEGRAM:END -->
