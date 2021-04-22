@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaSomeone got into the cheese pringles can : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649109305959809024](https://t.me/ferretman/1756)
+- [Mediahis face is perfect : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649079090873237504](https://t.me/ferretman/1755)
 - [MediaMediabidoctor:nature series 8/∞via Ferret Story https://babyiwannaknow.tumblr.com/post/649166009958367232](https://t.me/ferretman/1754)
 - [MediaSometimes it can be hard to wake up in the morning : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649165922600353793](https://t.me/ferretman/1753)
 - [MediaMerlin has a super blep : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649165922610855937](https://t.me/ferretman/1752)
-- [jewlsies:those little things on ur nose aren’t blackheads, don’t try and get rid of them they’re sebaceous filaments and they’re permanent and lit...](https://t.me/ferretman/1751)
-- [Medialove morning cuddling 🥰 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649165922614050816](https://t.me/ferretman/1750)
 <!-- TELEGRAM:END -->
