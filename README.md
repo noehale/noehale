@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [View this post on InstagramA post shared by Brittany (@thelifeofmyferrets)thelifeofmyferrets:mymegahigheye:thelifeofmyferrets:Putting my origami to go...](https://t.me/ferretman/1748)
-- [bossladynij:REPEAT AFTER ME : I am about to walk into the greatest year of my life✨via Ferret Story https://just-a-catastrophy.tumblr.com/post/649120...](https://t.me/ferretman/1747)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/649116835775660032](https://t.me/ferretman/1746)
-- [wearestillflying:red-faced-wolf:justyourfriendlyneighborhoodass:grier-remade:Mediafriend ?????!?Mediafr iend!! !!!Mediaim coming friendMediaim here i ...](https://t.me/ferretman/1745)
-- [MediaSomeone got into the cheese pringles can : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649109305959809024](https://t.me/ferretman/1744)
+- [MediaVanilla first time in the snow 😍 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649064141087260672](https://t.me/ferretman/1729)
+- [MediaMade a Tik Tok of my feisty girl, Mushu. The song was too fitting. (The song does have bad language) : ferretsvia Ferret Story https://punkrockna...](https://t.me/ferretman/1728)
+- [foxgal: bugpussy: foxgal: hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAA shut upvia Ferret Story https://just-a-catastrophy.tumblr.com/post/64903000489374...](https://t.me/ferretman/1727)
+- [xaramizomai:hope your pets stay healthy in 2017via Ferret Story https://scrisoridemai.tumblr.com/post/649026207588941824](https://t.me/ferretman/1726)
+- [bob-artist:imageomg she’s gonna yawn!!!imageso cuteimageso cuuuuteimageomgggg so cuuuuuteimagesooooooooooo cuuuuuuuuuuuteeeeeimageokay that’s enough...](https://t.me/ferretman/1725)
 <!-- TELEGRAM:END -->
