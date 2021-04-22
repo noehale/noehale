@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaLupin lighting up my dayvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649181017834389504](https://t.me/ferretman/1760)
+- [Mediatheferrets:Traffic jam!via Ferret Story https://scrisoridemai.tumblr.com/post/649177238502244352](https://t.me/ferretman/1759)
+- [MediaShe’s always busy.via Ferret Story https://prettypeterparkr.tumblr.com/post/649177221317148672](https://t.me/ferretman/1758)
+- [MediaSo i guess this what were doing today lol rolling around in litter boxes and shiddd lol😂😂🤦‍♀️🤷‍♀️❤ : ferretsvia Ferret Story h...](https://t.me/ferretman/1757)
 - [MediaSomeone got into the cheese pringles can : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649109305959809024](https://t.me/ferretman/1756)
-- [Mediahis face is perfect : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649079090873237504](https://t.me/ferretman/1755)
-- [MediaMediabidoctor:nature series 8/∞via Ferret Story https://babyiwannaknow.tumblr.com/post/649166009958367232](https://t.me/ferretman/1754)
-- [MediaSometimes it can be hard to wake up in the morning : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649165922600353793](https://t.me/ferretman/1753)
-- [MediaMerlin has a super blep : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649165922610855937](https://t.me/ferretman/1752)
 <!-- TELEGRAM:END -->
