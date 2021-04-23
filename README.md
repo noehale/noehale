@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [beautifulterriblequeen:ankyans:MediaEugene gets meHAPPY LIMINAL SPACEMAS, COUCHESvia Ferret Story https://punkrocknat.tumblr.com/post/6492451771348746...](https://t.me/ferretman/1771)
-- [MediaWhat is your preferred vacuum/sweeper for picking up litter? I’ve come accustomed to the litter everywhere but I like to clean it up regularly. ...](https://t.me/ferretman/1770)
-- [vinebox:Reblog this and money will be entering your life this weekvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649211293381918720](https://t.me/ferretman/1769)
-- [MediaSkeeter is just too cute🤡via Ferret Story https://scrisoridemai.tumblr.com/post/649207475613089792](https://t.me/ferretman/1768)
-- [Mediaferretfarts:tastefullyoffensive:[collegehumor]I love how ferrets are in the dead center of this graph like basically ferrets are perfect.via Ferr...](https://t.me/ferretman/1767)
+- [MediaPSA, some filters work on ferrets lol : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649260319757205504](https://t.me/ferretman/1777)
+- [MediaBonding moment : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649256623612870656](https://t.me/ferretman/1776)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/649256571695726592](https://t.me/ferretman/1775)
+- [<a href="https://64.media.tumblr.com/ebf6ea6b9019e7e98f17970dfbbe2235/tumblr_obbeoyJjND1sijjnno1_500.png">Media</a><a href="https://timetravelingcacti...](https://t.me/ferretman/1774)
+- [Mediaa-captions-blog:pleatedjeans:via[ID: A page in a children’s activity book that says, “If I had 100 friends, I would …” with space for a drawi...](https://t.me/ferretman/1773)
 <!-- TELEGRAM:END -->
