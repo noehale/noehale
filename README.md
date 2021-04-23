@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediapetaflop:<3via Ferret Story https://just-a-catastrophy.tumblr.com/post/649271675994718208](https://t.me/ferretman/1780)
+- [MediaLove this photo of my Ozzie. Miss him lots 🥰🥺❤️via Ferret Story https://scrisoridemai.tumblr.com/post/649267891714310144](https://t.me/ferretman/1779)
+- [MediaShe sassy little noodle judging me from a distance 😂via Ferret Story https://prettypeterparkr.tumblr.com/post/649267853227360256](https://t.me/ferretman/1778)
 - [MediaPSA, some filters work on ferrets lol : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649260319757205504](https://t.me/ferretman/1777)
 - [MediaBonding moment : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649256623612870656](https://t.me/ferretman/1776)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/649256571695726592](https://t.me/ferretman/1775)
-- [<a href="https://64.media.tumblr.com/ebf6ea6b9019e7e98f17970dfbbe2235/tumblr_obbeoyJjND1sijjnno1_500.png">Media</a><a href="https://timetravelingcacti...](https://t.me/ferretman/1774)
-- [Mediaa-captions-blog:pleatedjeans:via[ID: A page in a children’s activity book that says, “If I had 100 friends, I would …” with space for a drawi...](https://t.me/ferretman/1773)
 <!-- TELEGRAM:END -->
