@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaLupin lighting up my dayvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649181017834389504](https://t.me/ferretman/1760)
-- [Mediatheferrets:Traffic jam!via Ferret Story https://scrisoridemai.tumblr.com/post/649177238502244352](https://t.me/ferretman/1759)
-- [MediaShe’s always busy.via Ferret Story https://prettypeterparkr.tumblr.com/post/649177221317148672](https://t.me/ferretman/1758)
-- [MediaSo i guess this what were doing today lol rolling around in litter boxes and shiddd lol😂😂🤦‍♀️🤷‍♀️❤ : ferretsvia Ferret Story h...](https://t.me/ferretman/1757)
-- [MediaSomeone got into the cheese pringles can : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649109305959809024](https://t.me/ferretman/1756)
+- [MediaAthena thought she could have fun in the potted plants and get away without a bath, haha. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.co...](https://t.me/ferretman/1766)
+- [MediaMediaMediaMediaMediaMediaMediaMediawellthatsadorable:shitloadofsquirrels:nocrimeinthewasteland:Nellie the sea otter stacks cups at Point Defiance...](https://t.me/ferretman/1765)
+- [MediaLavender is always the cutest when she’s waking up : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649196144465952768](https://t.me/ferretman/1764)
+- [MediaSuicidal Noodle ….. Noooo just a toy that makes for great nocturnal fun ! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.c...](https://t.me/ferretman/1763)
+- [MediaLinguine is tuckered out after a full day of eating and resting : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649196117274378240](https://t.me/ferretman/1762)
 <!-- TELEGRAM:END -->
