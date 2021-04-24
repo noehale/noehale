@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/1800)
+- [cannonball-the-ferret:spacebeets:A VERY IMPORTANT VIDEO FEATURING BUELLER HAPPILY WAGGING HIS TAIL.OMG little propeller tail!!!!via Ferret Story https...](https://t.me/ferretman/1799)
+- [MediaMediaphiflyers:look! at! my! cat!!!!via Ferret Story https://scrisoridemai.tumblr.com/post/649358413289160704](https://t.me/ferretman/1798)
 - [MediaArtemis and her ball : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649350892409192448](https://t.me/ferretman/1797)
 - [froody:fandom:dogsrulepeopledrool:ladyshinga:callmebliss:notcaycepollard:dualclock:explorerrowan:unyanizedcatboys:shydestinybread:manicgoblinnightmare...](https://t.me/ferretman/1796)
-- [shanexrayn:cockyhorror:I keep going back to watch this video it just captures my sense of humour perfectlyDemönvia Ferret Story https://falalamingo.t...](https://t.me/ferretman/1795)
-- [Mediahe is trying his best : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649347144906686464](https://t.me/ferretman/1794)
-- [MediaMediaMediaMediabookofoctober:Roger Williams Park, Providence, RI. Photos by Frank C. Gracevia Ferret Story https://babyiwannaknow.tumblr.com/post...](https://t.me/ferretman/1793)
 <!-- TELEGRAM:END -->
