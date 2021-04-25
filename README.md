@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaCaption this!via Ferret Story https://just-a-catastrophy.tumblr.com/post/648909252544610304](https://t.me/ferretman/1813)
+- [MediaMediaiamanemotionaltimebomb:She screamvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648848901870436352](https://t.me/ferretman/1812)
+- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/648818631449378816](https://t.me/ferretman/1811)
 - [via Ferret Story https://punkrocknat.tumblr.com/post/649396217737101312](https://t.me/ferretman/1810)
 - [MediaMy baby’s first birthday! Her gift was snow playtime which she looooovedvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649392393449...](https://t.me/ferretman/1809)
-- [Mediatheferrets:When stuffs happening and you weren’t invited…via Ferret Story https://scrisoridemai.tumblr.com/post/649388695197286400](https://t.me/ferretman/1808)
-- [Mediaferretfarts:dartty:When you hear juicy gossip😂😂😂via Ferret Story https://prettypeterparkr.tumblr.com/post/649388676787421185](https://t.me/ferretman/1807)
-- [MediaNew Kind of Ferret Treats : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649381083636482048](https://t.me/ferretman/1806)
 <!-- TELEGRAM:END -->
