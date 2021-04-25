@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCaption this!via Ferret Story https://just-a-catastrophy.tumblr.com/post/648909252544610304](https://t.me/ferretman/1813)
-- [MediaMediaiamanemotionaltimebomb:She screamvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648848901870436352](https://t.me/ferretman/1812)
-- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/648818631449378816](https://t.me/ferretman/1811)
-- [via Ferret Story https://punkrocknat.tumblr.com/post/649396217737101312](https://t.me/ferretman/1810)
-- [MediaMy baby’s first birthday! Her gift was snow playtime which she looooovedvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649392393449...](https://t.me/ferretman/1809)
+- [MediaNew Kind of Ferret Treats : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649381083636482048](https://t.me/ferretman/1806)
+- [MediaFerret proofing the trash can : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649377443498557440](https://t.me/ferretman/1805)
+- [plasmalogical:i was talking with my brothers yesterday and we decided the best way to own a guy who takes off his shirt to fight you is to pick his sh...](https://t.me/ferretman/1804)
+- [Media“It’s my slippy!!” : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649377337265324032](https://t.me/ferretman/1803)
+- [MediaOur newest girl, Miso chillin in the dog’s toy box : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649377337253724160](https://t.me/ferretman/1802)
 <!-- TELEGRAM:END -->
