@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/649426410197450752](https://t.me/ferretman/1814)
-- [MediaCaption this!via Ferret Story https://just-a-catastrophy.tumblr.com/post/648909252544610304](https://t.me/ferretman/1813)
-- [MediaMediaiamanemotionaltimebomb:She screamvia Ferret Story https://just-a-catastrophy.tumblr.com/post/648848901870436352](https://t.me/ferretman/1812)
-- [Mediawnslw:hydrolize:Someone left their dogs outside the cafepug datevia Ferret Story https://just-a-catastrophy.tumblr.com/post/648818631449378816](https://t.me/ferretman/1811)
-- [via Ferret Story https://punkrocknat.tumblr.com/post/649396217737101312](https://t.me/ferretman/1810)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/649452799478857728](https://t.me/ferretman/1823)
+- [MediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/649449060407836672](https://t.me/ferretman/1822)
+- [MediaGumo caught the snakevia Ferret Story https://prettypeterparkr.tumblr.com/post/649449022796480512](https://t.me/ferretman/1821)
+- [MediaThe snuggiest : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649441480092663808](https://t.me/ferretman/1820)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/649437743182659584](https://t.me/ferretman/1819)
 <!-- TELEGRAM:END -->
