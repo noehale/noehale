@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaNew Kind of Ferret Treats : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649381083636482048](https://t.me/ferretman/1806)
-- [MediaFerret proofing the trash can : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649377443498557440](https://t.me/ferretman/1805)
-- [plasmalogical:i was talking with my brothers yesterday and we decided the best way to own a guy who takes off his shirt to fight you is to pick his sh...](https://t.me/ferretman/1804)
-- [Media“It’s my slippy!!” : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649377337265324032](https://t.me/ferretman/1803)
-- [MediaOur newest girl, Miso chillin in the dog’s toy box : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649377337253724160](https://t.me/ferretman/1802)
+- [MediaArtemis and her ball : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649350892409192448](https://t.me/ferretman/1797)
+- [froody:fandom:dogsrulepeopledrool:ladyshinga:callmebliss:notcaycepollard:dualclock:explorerrowan:unyanizedcatboys:shydestinybread:manicgoblinnightmare...](https://t.me/ferretman/1796)
+- [shanexrayn:cockyhorror:I keep going back to watch this video it just captures my sense of humour perfectlyDemönvia Ferret Story https://falalamingo.t...](https://t.me/ferretman/1795)
+- [Mediahe is trying his best : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649347144906686464](https://t.me/ferretman/1794)
+- [MediaMediaMediaMediabookofoctober:Roger Williams Park, Providence, RI. Photos by Frank C. Gracevia Ferret Story https://babyiwannaknow.tumblr.com/post...](https://t.me/ferretman/1793)
 <!-- TELEGRAM:END -->
