@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMy babies jumping on the bed. Lol. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649467909375246337](https://t.me/ferretman/1824)
 - [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/649452799478857728](https://t.me/ferretman/1823)
 - [MediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/649449060407836672](https://t.me/ferretman/1822)
 - [MediaGumo caught the snakevia Ferret Story https://prettypeterparkr.tumblr.com/post/649449022796480512](https://t.me/ferretman/1821)
 - [MediaThe snuggiest : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649441480092663808](https://t.me/ferretman/1820)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/649437743182659584](https://t.me/ferretman/1819)
 <!-- TELEGRAM:END -->
