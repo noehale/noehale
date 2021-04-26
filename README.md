@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [prospitdreamer:chickenstab:chickenstab:happy new bears!!wait no don’t reblog this i meant yearsimagevia Ferret Story https://punkrocknat.tumblr.com/p...](https://t.me/ferretman/1832)
-- [Mediatheferrets:ultra-firelily:fandomlife-universe:What is it?A butterfly. What does that get me?I now have ferret powersvia Ferret Story https://just...](https://t.me/ferretman/1831)
-- [MediaFerret donuts- get ’em while they’re fluffy!via Ferret Story https://prettypeterparkr.tumblr.com/post/649479263277416448](https://t.me/ferretman/1830)
-- [Mediaferretfarts:PSAvia Ferret Story https://scrisoridemai.tumblr.com/post/649479229205037056](https://t.me/ferretman/1829)
-- [MediaHome Sweet Home 🏘️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649471682852028416](https://t.me/ferretman/1828)
+- [forgotten-sea-god:ampervadasz:MenőMediavia Ferret Story https://falalamingo.tumblr.com/post/649528369524932608](https://t.me/ferretman/1838)
+- [MediaSomeone’s feeling a bit dramatic this morning. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649528369026875392](https://t.me/ferretman/1837)
+- [MediaAttack ferret. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649528366713749504](https://t.me/ferretman/1836)
+- [MediaYoung ferrets playing around the towel : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649528367077556224](https://t.me/ferretman/1835)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/649528340760428544](https://t.me/ferretman/1834)
 <!-- TELEGRAM:END -->
