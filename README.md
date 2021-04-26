@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediascottlava:“Forest of Things”  NEW print to debut at Mondo Con in Austin this weekend! My table will be known as T9!via Ferret Story https://s...](https://t.me/ferretman/1827)
+- [MediaThe Most Famous Ferret in the World… : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649468024214142976](https://t.me/ferretman/1826)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/649467983879602176](https://t.me/ferretman/1825)
 - [MediaMy babies jumping on the bed. Lol. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649467909375246337](https://t.me/ferretman/1824)
 - [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/649452799478857728](https://t.me/ferretman/1823)
-- [MediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/649449060407836672](https://t.me/ferretman/1822)
-- [MediaGumo caught the snakevia Ferret Story https://prettypeterparkr.tumblr.com/post/649449022796480512](https://t.me/ferretman/1821)
-- [MediaThe snuggiest : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649441480092663808](https://t.me/ferretman/1820)
 <!-- TELEGRAM:END -->
