@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaFerretus, the Three-Headed Guardian of Heckvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649543401627385856](https://t.me/ferretman/1842)
+- [thelifeofmyferrets:They can open cabinets and drawers.Fit under doors.via Ferret Story https://prettypeterparkr.tumblr.com/post/649539653552177152](https://t.me/ferretman/1841)
+- [MediaMediaopossummypossum:feast, my childvia Ferret Story https://scrisoridemai.tumblr.com/post/649539619057287169](https://t.me/ferretman/1840)
+- [MediaLook at my senior boy Jerry, beating the cold like a prince, in my human bed, wrapped himself up in our blankies and snoozing like a corpse. His ...](https://t.me/ferretman/1839)
 - [forgotten-sea-god:ampervadasz:MenőMediavia Ferret Story https://falalamingo.tumblr.com/post/649528369524932608](https://t.me/ferretman/1838)
-- [MediaSomeone’s feeling a bit dramatic this morning. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649528369026875392](https://t.me/ferretman/1837)
-- [MediaAttack ferret. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649528366713749504](https://t.me/ferretman/1836)
-- [MediaYoung ferrets playing around the towel : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649528367077556224](https://t.me/ferretman/1835)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/649528340760428544](https://t.me/ferretman/1834)
 <!-- TELEGRAM:END -->
