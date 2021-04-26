@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [prospitdreamer:chickenstab:chickenstab:happy new bears!!wait no don’t reblog this i meant yearsimagevia Ferret Story https://punkrocknat.tumblr.com/p...](https://t.me/ferretman/1832)
-- [Mediatheferrets:ultra-firelily:fandomlife-universe:What is it?A butterfly. What does that get me?I now have ferret powersvia Ferret Story https://just...](https://t.me/ferretman/1831)
-- [MediaFerret donuts- get ’em while they’re fluffy!via Ferret Story https://prettypeterparkr.tumblr.com/post/649479263277416448](https://t.me/ferretman/1830)
-- [Mediaferretfarts:PSAvia Ferret Story https://scrisoridemai.tumblr.com/post/649479229205037056](https://t.me/ferretman/1829)
-- [MediaHome Sweet Home 🏘️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649471682852028416](https://t.me/ferretman/1828)
+- [Mediapseudonymjones:misterhayden:IT’S COMICS TIME!MediaI loved @misterhayden‘s comic so much I redrew the first panel.via Ferret Story https://anasf...](https://t.me/ferretman/1786)
+- [Mediathelifeofmyferrets:thelifeofmyferrets:Thanksgiving is coming up, please don’t give your pets a treat that is not meant for them.Happy Thanksgivi...](https://t.me/ferretman/1785)
+- [Mediawelele:mrpotterbydia-deactivated201901:I don’t remember this version of Winnie the Pooh.Espero que fuera la escena de la reanimación cardiopulm...](https://t.me/ferretman/1784)
+- [MediaTino loves napping in my poncho liner : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649286799299149824](https://t.me/ferretman/1783)
+- [MediaSnowflake loves car rides : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649286735375843328](https://t.me/ferretman/1782)
 <!-- TELEGRAM:END -->
