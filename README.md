@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediascottlava:“Forest of Things”  NEW print to debut at Mondo Con in Austin this weekend! My table will be known as T9!via Ferret Story https://s...](https://t.me/ferretman/1827)
-- [MediaThe Most Famous Ferret in the World… : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649468024214142976](https://t.me/ferretman/1826)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/649467983879602176](https://t.me/ferretman/1825)
-- [MediaMy babies jumping on the bed. Lol. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649467909375246337](https://t.me/ferretman/1824)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/649452799478857728](https://t.me/ferretman/1823)
+- [prospitdreamer:chickenstab:chickenstab:happy new bears!!wait no don’t reblog this i meant yearsimagevia Ferret Story https://punkrocknat.tumblr.com/p...](https://t.me/ferretman/1832)
+- [Mediatheferrets:ultra-firelily:fandomlife-universe:What is it?A butterfly. What does that get me?I now have ferret powersvia Ferret Story https://just...](https://t.me/ferretman/1831)
+- [MediaFerret donuts- get ’em while they’re fluffy!via Ferret Story https://prettypeterparkr.tumblr.com/post/649479263277416448](https://t.me/ferretman/1830)
+- [Mediaferretfarts:PSAvia Ferret Story https://scrisoridemai.tumblr.com/post/649479229205037056](https://t.me/ferretman/1829)
+- [MediaHome Sweet Home 🏘️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649471682852028416](https://t.me/ferretman/1828)
 <!-- TELEGRAM:END -->
