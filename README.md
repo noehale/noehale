@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFerretus, the Three-Headed Guardian of Heckvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649543401627385856](https://t.me/ferretman/1842)
-- [thelifeofmyferrets:They can open cabinets and drawers.Fit under doors.via Ferret Story https://prettypeterparkr.tumblr.com/post/649539653552177152](https://t.me/ferretman/1841)
-- [MediaMediaopossummypossum:feast, my childvia Ferret Story https://scrisoridemai.tumblr.com/post/649539619057287169](https://t.me/ferretman/1840)
-- [MediaLook at my senior boy Jerry, beating the cold like a prince, in my human bed, wrapped himself up in our blankies and snoozing like a corpse. His ...](https://t.me/ferretman/1839)
-- [forgotten-sea-god:ampervadasz:MenőMediavia Ferret Story https://falalamingo.tumblr.com/post/649528369524932608](https://t.me/ferretman/1838)
+- [MediaLester likes his new hammock : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649562298432765952](https://t.me/ferretman/1848)
+- [i-am-fert:den-father:fawkes-y:ferretsoftiktok:@clockworkapostleSomeone who knows ferrets, explain what this creature is doingoh! i can explane!the sti...](https://t.me/ferretman/1847)
+- [MediaSomeone really loves sleeping on my bed with me : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649558718465327104](https://t.me/ferretman/1846)
+- [MediaSo heaven basically 🥰 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649558630728859649](https://t.me/ferretman/1845)
+- [Mediaa short film : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649558630617792512](https://t.me/ferretman/1844)
 <!-- TELEGRAM:END -->
