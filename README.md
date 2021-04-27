@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [laysiaprincess:mintzy:dalishpariah:we opened at 11 this morning. i watched an old man literally pry the fucking sliding doors open at 10:43 and stand ...](https://t.me/ferretman/1852)
-- [Mediabob-artist:Miss Rudy is so bouncy! ;_; Look at her bouncy fluff and synchronized arms ;_;via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/1851)
-- [theferrets:theferrets:You’re welcome - unmute thisLonger version on InstagramHappy Ferret Day guys! I don’t get to see mine today much… Give yours ...](https://t.me/ferretman/1850)
-- [MediaJingles Jangling. Jingles is our third grade class pet.via Ferret Story https://prettypeterparkr.tumblr.com/post/649569811024723968](https://t.me/ferretman/1849)
-- [MediaLester likes his new hammock : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649562298432765952](https://t.me/ferretman/1848)
+- [Mediatheferrets:theferrets:The whole gangWish I could take another photo of all four of them together </3 via Ferret Story https://just-a-catastrophy...](https://t.me/ferretman/1862)
+- [MediaCaught! Licking up raindrops.via Ferret Story https://scrisoridemai.tumblr.com/post/649630239020990464](https://t.me/ferretman/1861)
+- [MediaOur boys Rupert ( The Chunker) & Tipsy (Tiny Nibbler) sleeping soundly together, after a long day of playing 🤣via Ferret Story https://prettyp...](https://t.me/ferretman/1860)
+- [MediaFursnakes Bathing in the Sun : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649622669147422720](https://t.me/ferretman/1859)
+- [is-destiel-canon-yet:Is Destiel Canon Yet ?11/5/2020: Yes.via Ferret Story https://xxcrybby.tumblr.com/post/649618951198867456](https://t.me/ferretman/1858)
 <!-- TELEGRAM:END -->
