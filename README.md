@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaawfulland:happy birthday Glumpfyvia Ferret Story https://scrisoridemai.tumblr.com/post/649660440531648512](https://t.me/ferretman/1870)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/649660405925478401](https://t.me/ferretman/1869)
-- [Mediatheparadoxmachine:gummygomamon:nebula-cnidaria:unseeliequeen:tawnks:gifak-net:Wisconsin White Deer Surprised by his own Antlers Sheddingimageaw h...](https://t.me/ferretman/1868)
-- [missanthropologist:chaifootsteps:lickkaballs:the mother called her babies just for me ;;;Blessed.the most blessed, pure thing…via Ferret Story https:...](https://t.me/ferretman/1867)
-- [Media🥺🥺 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649649232537665536](https://t.me/ferretman/1866)
+- [Mediatheferrets:theferrets:The whole gangWish I could take another photo of all four of them together </3 via Ferret Story https://just-a-catastrophy...](https://t.me/ferretman/1862)
+- [MediaCaught! Licking up raindrops.via Ferret Story https://scrisoridemai.tumblr.com/post/649630239020990464](https://t.me/ferretman/1861)
+- [MediaOur boys Rupert ( The Chunker) & Tipsy (Tiny Nibbler) sleeping soundly together, after a long day of playing 🤣via Ferret Story https://prettyp...](https://t.me/ferretman/1860)
+- [MediaFursnakes Bathing in the Sun : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649622669147422720](https://t.me/ferretman/1859)
+- [is-destiel-canon-yet:Is Destiel Canon Yet ?11/5/2020: Yes.via Ferret Story https://xxcrybby.tumblr.com/post/649618951198867456](https://t.me/ferretman/1858)
 <!-- TELEGRAM:END -->
