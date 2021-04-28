@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaJust performed another successful surgery on a toy 😂😂 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649667951738355712](https://t.me/ferretman/1872)
-- [MediaThis was Clyde he liked hanging out with the cats and his favorite hobby was stealing all the dog toys and hiding them behind the couchvia Ferret...](https://t.me/ferretman/1871)
-- [MediaMediaawfulland:happy birthday Glumpfyvia Ferret Story https://scrisoridemai.tumblr.com/post/649660440531648512](https://t.me/ferretman/1870)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/649660405925478401](https://t.me/ferretman/1869)
-- [Mediatheparadoxmachine:gummygomamon:nebula-cnidaria:unseeliequeen:tawnks:gifak-net:Wisconsin White Deer Surprised by his own Antlers Sheddingimageaw h...](https://t.me/ferretman/1868)
+- [p-a-n-s-y:shout out to my parents for not supervising what i do on the internet evervia Ferret Story https://xxcrybby.tumblr.com/post/6497094945568522...](https://t.me/ferretman/1881)
+- [MediaReally melting into those scratches : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649709493723201536](https://t.me/ferretman/1880)
+- [MediaMountain Ferretsvia Ferret Story https://babyiwannaknow.tumblr.com/post/649709486246903808](https://t.me/ferretman/1879)
+- [MediaRice pit time! :p : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649709487010332672](https://t.me/ferretman/1878)
+- [Mediachibird:Tag yourself! Some lighthearted characters and their personalities stuck at home.Chibird Store | Patreon | Webtoonvia Ferret Story https...](https://t.me/ferretman/1877)
 <!-- TELEGRAM:END -->
