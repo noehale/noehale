@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaJust performed another successful surgery on a toy 😂😂 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649667951738355712](https://t.me/ferretman/1875)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/649607553459814400](https://t.me/ferretman/1874)
-- [laysiaprincess:mintzy:dalishpariah:we opened at 11 this morning. i watched an old man literally pry the fucking sliding doors open at 10:43 and stand ...](https://t.me/ferretman/1873)
 - [MediaJust performed another successful surgery on a toy 😂😂 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649667951738355712](https://t.me/ferretman/1872)
 - [MediaThis was Clyde he liked hanging out with the cats and his favorite hobby was stealing all the dog toys and hiding them behind the couchvia Ferret...](https://t.me/ferretman/1871)
+- [MediaMediaawfulland:happy birthday Glumpfyvia Ferret Story https://scrisoridemai.tumblr.com/post/649660440531648512](https://t.me/ferretman/1870)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/649660405925478401](https://t.me/ferretman/1869)
+- [Mediatheparadoxmachine:gummygomamon:nebula-cnidaria:unseeliequeen:tawnks:gifak-net:Wisconsin White Deer Surprised by his own Antlers Sheddingimageaw h...](https://t.me/ferretman/1868)
 <!-- TELEGRAM:END -->
