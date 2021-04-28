@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaI got to see my sweetheart the other day. His name is Pippin. : ferretsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/64972459323339...](https://t.me/ferretman/1885)
+- [everythingfox:Slinky boi(via)via Ferret Story https://scrisoridemai.tumblr.com/post/649720833578860544](https://t.me/ferretman/1884)
+- [Mediaottermatopoeia:Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/649720810627645441](https://t.me/ferretman/1883)
+- [MediaIs Artemis happy or scared?via Ferret Story https://anasfalhhhs.tumblr.com/post/649713308221472768](https://t.me/ferretman/1882)
 - [p-a-n-s-y:shout out to my parents for not supervising what i do on the internet evervia Ferret Story https://xxcrybby.tumblr.com/post/6497094945568522...](https://t.me/ferretman/1881)
-- [MediaReally melting into those scratches : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649709493723201536](https://t.me/ferretman/1880)
-- [MediaMountain Ferretsvia Ferret Story https://babyiwannaknow.tumblr.com/post/649709486246903808](https://t.me/ferretman/1879)
-- [MediaRice pit time! :p : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649709487010332672](https://t.me/ferretman/1878)
-- [Mediachibird:Tag yourself! Some lighthearted characters and their personalities stuck at home.Chibird Store | Patreon | Webtoonvia Ferret Story https...](https://t.me/ferretman/1877)
 <!-- TELEGRAM:END -->
