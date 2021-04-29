@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaI’m pretty sure he’s got a new favorite activity, and by activity I mean I just rub his belly while he lays there.via Ferret Story https://just...](https://t.me/ferretman/1905)
+- [foxgal:bugpussy:foxgal:hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAAMediashut upMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/6498114480...](https://t.me/ferretman/1904)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/649811429893013505](https://t.me/ferretman/1903)
 - [MediaPic of 3 of my babies having a nap : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649803868821176320](https://t.me/ferretman/1902)
 - [princessbento:bob-artist:By the way, Kit REALLY likes dig boxes.unrestrained summer funvia Ferret Story https://babyiwannaknow.tumblr.com/post/6498000...](https://t.me/ferretman/1901)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediareseteados:Decorando el árbol de Navidad con clase y estilo via Ferret Story https://falalamingo.t...](https://t.me/ferretman/1900)
-- [MediaNoodle drama dancingvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649800096667648000](https://t.me/ferretman/1899)
-- [MediaI have no memory of this but last night I apparently did this to one my ferrets baby pictures : ferretsvia Ferret Story https://xxcrybby.tumblr.c...](https://t.me/ferretman/1898)
 <!-- TELEGRAM:END -->
