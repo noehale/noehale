@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediastultiloquentia:goliaththecatt:vice-of-virtue:doctormemelordmd:fangirling-so-hard-rn:nowyoukno:Now You Know (Source)Crows are scaryTheyuse tools...](https://t.me/ferretman/1895)
-- [whatthefuuuuuuccckkkk: spookyspiritw0lf: why test on animals when there are prisons full of...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/1894)
-- [popop-maru:beaniebabyoftheday:clover:beaniebabyoftheday:i’m thinking about her……..who?her………MediaMediaMediaShe’s thinking about you too…..via ...](https://t.me/ferretman/1893)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/649751010859974657](https://t.me/ferretman/1892)
-- [Mediahi frends! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649743500247793664](https://t.me/ferretman/1891)
+- [MediaMy heart is breaking, but even after it mends your paw prints will remain stamped on it forever. DIP Lilo, 2014-2021. : ferretsvia Ferret Story h...](https://t.me/ferretman/1890)
+- [MediaPure excitement : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649739798116990976](https://t.me/ferretman/1889)
+- [MediaLeftover Easter eggs? That is quite alright with Kirby. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649739786380345344](https://t.me/ferretman/1888)
+- [MediaNap Time all the Time!!! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649739735657594880](https://t.me/ferretman/1887)
+- [cloudfreed:uglyrad:thebestoftumbling:a ferret making a nesti need this, and this, and this, and this, and this, and thismust… aim… butt… correctly...](https://t.me/ferretman/1886)
 <!-- TELEGRAM:END -->
