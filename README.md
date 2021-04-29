@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Media4 ferrets 4 cups : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649788750993424384](https://t.me/ferretman/1896)
 - [Mediastultiloquentia:goliaththecatt:vice-of-virtue:doctormemelordmd:fangirling-so-hard-rn:nowyoukno:Now You Know (Source)Crows are scaryTheyuse tools...](https://t.me/ferretman/1895)
 - [whatthefuuuuuuccckkkk: spookyspiritw0lf: why test on animals when there are prisons full of...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/1894)
 - [popop-maru:beaniebabyoftheday:clover:beaniebabyoftheday:i’m thinking about her……..who?her………MediaMediaMediaShe’s thinking about you too…..via ...](https://t.me/ferretman/1893)
 - [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/649751010859974657](https://t.me/ferretman/1892)
-- [Mediahi frends! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649743500247793664](https://t.me/ferretman/1891)
 <!-- TELEGRAM:END -->
