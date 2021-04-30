@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Buy FoenixGrey a Coffee. ko-fi.com/foenixgrey:phoenix:phoenix:I only got a few days left to make this month’s payment for the plumbing bill.  I ned ...](https://t.me/ferretman/1916)
 - [MediaLittle guy only wakes up for foodstuffs : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649849172176125952](https://t.me/ferretman/1915)
 - [MediaTiktok Amalia.Jaynexvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649845461663006720](https://t.me/ferretman/1914)
 - [Mediascrixels:924. Ferretvia Ferret Story https://scrisoridemai.tumblr.com/post/649841600754761728](https://t.me/ferretman/1913)
 - [MediaShe seems sweet in the pictures I post on here, but this is the real Diamond 😂❤️via Ferret Story https://prettypeterparkr.tumblr.com/post/64...](https://t.me/ferretman/1912)
-- [MediaThe “What is it I hear?” Look. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649834104397922304](https://t.me/ferretman/1911)
 <!-- TELEGRAM:END -->
