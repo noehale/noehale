@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaeggroli:source: [x]via Ferret Story https://just-a-catastrophy.tumblr.com/post/649905805368410112](https://t.me/ferretman/1925)
 - [Mediaferretfarts:PSAvia Ferret Story https://prettypeterparkr.tumblr.com/post/649902023839481856](https://t.me/ferretman/1924)
 - [Mediaultrafacts:(Fact Source) Follow Ultrafacts for more factsvia Ferret Story https://scrisoridemai.tumblr.com/post/649902001936809984](https://t.me/ferretman/1923)
 - [MediaInsert something incredibly profound about how cute his little paws are and how he isn’t even trying to be adorable, it’s just his natural stat...](https://t.me/ferretman/1922)
 - [MediaMy girl is so sweet! She’s curled up next to me in my bed while I watch TV. Now I’m afraid to move because I don’t want wake her LOL : ferrets...](https://t.me/ferretman/1921)
-- [everythingfox:“This is how I found my ferrets this morning”(Source)via Ferret Story https://babyiwannaknow.tumblr.com/post/649890713350422528](https://t.me/ferretman/1920)
 <!-- TELEGRAM:END -->
