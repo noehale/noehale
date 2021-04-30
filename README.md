@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI’m pretty sure he’s got a new favorite activity, and by activity I mean I just rub his belly while he lays there.via Ferret Story https://just...](https://t.me/ferretman/1905)
-- [foxgal:bugpussy:foxgal:hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAAMediashut upMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/6498114480...](https://t.me/ferretman/1904)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/649811429893013505](https://t.me/ferretman/1903)
-- [MediaPic of 3 of my babies having a nap : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649803868821176320](https://t.me/ferretman/1902)
-- [princessbento:bob-artist:By the way, Kit REALLY likes dig boxes.unrestrained summer funvia Ferret Story https://babyiwannaknow.tumblr.com/post/6498000...](https://t.me/ferretman/1901)
+- [Mediascrixels:924. Ferretvia Ferret Story https://scrisoridemai.tumblr.com/post/649841600754761728](https://t.me/ferretman/1913)
+- [MediaShe seems sweet in the pictures I post on here, but this is the real Diamond 😂❤️via Ferret Story https://prettypeterparkr.tumblr.com/post/64...](https://t.me/ferretman/1912)
+- [MediaThe “What is it I hear?” Look. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649834104397922304](https://t.me/ferretman/1911)
+- [Mediaa-captions-blog:ninpotato:I literally cannot think of a single anime that doesn’t do this 😂[ID: A comparison meme. The first thing is “Anime...](https://t.me/ferretman/1910)
+- [Mediazachpennington:Iteration.via Ferret Story https://falalamingo.tumblr.com/post/649830375755071488](https://t.me/ferretman/1909)
 <!-- TELEGRAM:END -->
