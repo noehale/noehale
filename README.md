@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/649969930264018944](https://t.me/ferretman/1936)
-- [MediaThis is normal….right? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649939754597613569](https://t.me/ferretman/1935)
-- [Media4gifs:This my life now. [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/649935994602274816](https://t.me/ferretman/1934)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies 💔❤️via Ferret Story http...](https://t.me/ferretman/1933)
-- [MediaThese boys are always up to no good!via Ferret Story https://prettypeterparkr.tumblr.com/post/649932205247823872](https://t.me/ferretman/1932)
+- [Mediawhat can I use to cover the gap between heater and floorboard? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649985066220535808](https://t.me/ferretman/1942)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649981298615713792](https://t.me/ferretman/1941)
+- [MediaToo much partying : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/649981294668824576](https://t.me/ferretman/1940)
+- [MediaToday I lost my baby boy frosty : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/649981294687764480](https://t.me/ferretman/1939)
+- [MediaI love my little, fuzzy noodle friends. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649981294692925440](https://t.me/ferretman/1938)
 <!-- TELEGRAM:END -->
