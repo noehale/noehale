@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaThis is normal….right? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649939754597613569](https://t.me/ferretman/1935)
 - [Media4gifs:This my life now. [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/649935994602274816](https://t.me/ferretman/1934)
 - [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies 💔❤️via Ferret Story http...](https://t.me/ferretman/1933)
 - [MediaThese boys are always up to no good!via Ferret Story https://prettypeterparkr.tumblr.com/post/649932205247823872](https://t.me/ferretman/1932)
 - [MediaDoes anyone know if this is a cold 9 Weeks old : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649924697268551680](https://t.me/ferretman/1931)
-- [MediaPeek-a-boo!! Evie playing in the plushies : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649921010193285120](https://t.me/ferretman/1930)
 <!-- TELEGRAM:END -->
