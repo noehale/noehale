@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferretfarts:PSAvia Ferret Story https://prettypeterparkr.tumblr.com/post/649902023839481856](https://t.me/ferretman/1924)
-- [Mediaultrafacts:(Fact Source) Follow Ultrafacts for more factsvia Ferret Story https://scrisoridemai.tumblr.com/post/649902001936809984](https://t.me/ferretman/1923)
-- [MediaInsert something incredibly profound about how cute his little paws are and how he isn’t even trying to be adorable, it’s just his natural stat...](https://t.me/ferretman/1922)
-- [MediaMy girl is so sweet! She’s curled up next to me in my bed while I watch TV. Now I’m afraid to move because I don’t want wake her LOL : ferrets...](https://t.me/ferretman/1921)
-- [everythingfox:“This is how I found my ferrets this morning”(Source)via Ferret Story https://babyiwannaknow.tumblr.com/post/649890713350422528](https://t.me/ferretman/1920)
+- [Media4gifs:This my life now. [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/649935994602274816](https://t.me/ferretman/1934)
+- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies 💔❤️via Ferret Story http...](https://t.me/ferretman/1933)
+- [MediaThese boys are always up to no good!via Ferret Story https://prettypeterparkr.tumblr.com/post/649932205247823872](https://t.me/ferretman/1932)
+- [MediaDoes anyone know if this is a cold 9 Weeks old : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649924697268551680](https://t.me/ferretman/1931)
+- [MediaPeek-a-boo!! Evie playing in the plushies : ferretsvia Ferret Story https://redzgn.tumblr.com/post/649921010193285120](https://t.me/ferretman/1930)
 <!-- TELEGRAM:END -->
