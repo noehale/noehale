@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaLittle guy only wakes up for foodstuffs : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649849172176125952](https://t.me/ferretman/1915)
-- [MediaTiktok Amalia.Jaynexvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649845461663006720](https://t.me/ferretman/1914)
-- [Mediascrixels:924. Ferretvia Ferret Story https://scrisoridemai.tumblr.com/post/649841600754761728](https://t.me/ferretman/1913)
-- [MediaShe seems sweet in the pictures I post on here, but this is the real Diamond 😂❤️via Ferret Story https://prettypeterparkr.tumblr.com/post/64...](https://t.me/ferretman/1912)
-- [MediaThe “What is it I hear?” Look. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649834104397922304](https://t.me/ferretman/1911)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/649969930264018944](https://t.me/ferretman/1936)
+- [MediaThis is normal….right? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649939754597613569](https://t.me/ferretman/1935)
+- [Media4gifs:This my life now. [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/649935994602274816](https://t.me/ferretman/1934)
+- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies 💔❤️via Ferret Story http...](https://t.me/ferretman/1933)
+- [MediaThese boys are always up to no good!via Ferret Story https://prettypeterparkr.tumblr.com/post/649932205247823872](https://t.me/ferretman/1932)
 <!-- TELEGRAM:END -->
