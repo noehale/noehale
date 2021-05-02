@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [bootyisagirlsbestfriend:shysweetthing:imhellafit-personal:sailed-0ut:Please don’t hesitate1 penny below reporting limit for the IRS… I see what you ...](https://t.me/ferretman/1956)
 - [MediaOne of my two new boys. First time ferret owner and I’m so excited. This is Booger! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/pos...](https://t.me/ferretman/1955)
 - [MediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/650026588351676416](https://t.me/ferretman/1954)
 - [MediaMediaMediaMediastiegsart:My ferrets and their fancy new bath floaties! <3 <3 <3 Pictured: Calypso, Al, Caramel, Bean, Coco, Ruby, Wolfy (no tube...](https://t.me/ferretman/1953)
 - [veta-lopis:“my battery is low and it’s getting dark” is so hauntingly human, so crushingly lonely. I can’t articulate the deep, profound ache that...](https://t.me/ferretman/1952)
-- [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/650015245990068225](https://t.me/ferretman/1951)
 <!-- TELEGRAM:END -->
