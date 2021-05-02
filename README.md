@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaThis is normal….right? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/649939754597613569](https://t.me/ferretman/1935)
-- [Media4gifs:This my life now. [video]via Ferret Story https://just-a-catastrophy.tumblr.com/post/649935994602274816](https://t.me/ferretman/1934)
-- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies 💔❤️via Ferret Story http...](https://t.me/ferretman/1933)
-- [MediaThese boys are always up to no good!via Ferret Story https://prettypeterparkr.tumblr.com/post/649932205247823872](https://t.me/ferretman/1932)
-- [MediaDoes anyone know if this is a cold 9 Weeks old : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649924697268551680](https://t.me/ferretman/1931)
+- [MediaOne of my two new boys. First time ferret owner and I’m so excited. This is Booger! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/pos...](https://t.me/ferretman/1955)
+- [MediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/650026588351676416](https://t.me/ferretman/1954)
+- [MediaMediaMediaMediastiegsart:My ferrets and their fancy new bath floaties! <3 <3 <3 Pictured: Calypso, Al, Caramel, Bean, Coco, Ruby, Wolfy (no tube...](https://t.me/ferretman/1953)
+- [veta-lopis:“my battery is low and it’s getting dark” is so hauntingly human, so crushingly lonely. I can’t articulate the deep, profound ache that...](https://t.me/ferretman/1952)
+- [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/650015245990068225](https://t.me/ferretman/1951)
 <!-- TELEGRAM:END -->
