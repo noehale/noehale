@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediatheferrets:My babiesvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649996402987089920](https://t.me/ferretman/1945)
-- [ferretsofmine:Going into Monday like …via Ferret Story https://scrisoridemai.tumblr.com/post/649992610851766272](https://t.me/ferretman/1944)
-- [Media2nd snow for this one! This time has her nice thick coat!via Ferret Story https://prettypeterparkr.tumblr.com/post/649992610672443392](https://t.me/ferretman/1943)
-- [Mediawhat can I use to cover the gap between heater and floorboard? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649985066220535808](https://t.me/ferretman/1942)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649981298615713792](https://t.me/ferretman/1941)
+- [misioandkinga:no i won’t stop showing u all how cute tad is playing in the bead pitvia Ferret Story https://scrisoridemai.tumblr.com/post/65008321670...](https://t.me/ferretman/1964)
+- [thelifeofmyferrets:MediaMediaMediaMediaMediaMediaMedia(SN: I didn’t look at the pictures from Lucy’s Day. I just need to focus on Ducky because he i...](https://t.me/ferretman/1963)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMedia9pieceboom:ottermatopoeia:robsource:Twilight (2008) dir. Catherine HardwickeMedia@ottermatopoeiaMediavia ...](https://t.me/ferretman/1962)
+- [Mediahughie after working hard at his job 😪 (he chases vacuums) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650071907874537472](https://t.me/ferretman/1961)
+- [MediaOrzo is miffed that she has been awoken from her nap 😠 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650071893988311040](https://t.me/ferretman/1960)
 <!-- TELEGRAM:END -->
