@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediatheferrets:My babiesvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649996402987089920](https://t.me/ferretman/1945)
-- [ferretsofmine:Going into Monday like …via Ferret Story https://scrisoridemai.tumblr.com/post/649992610851766272](https://t.me/ferretman/1944)
-- [Media2nd snow for this one! This time has her nice thick coat!via Ferret Story https://prettypeterparkr.tumblr.com/post/649992610672443392](https://t.me/ferretman/1943)
-- [Mediawhat can I use to cover the gap between heater and floorboard? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649985066220535808](https://t.me/ferretman/1942)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649981298615713792](https://t.me/ferretman/1941)
+- [bootyisagirlsbestfriend:shysweetthing:imhellafit-personal:sailed-0ut:Please don’t hesitate1 penny below reporting limit for the IRS… I see what you ...](https://t.me/ferretman/1956)
+- [MediaOne of my two new boys. First time ferret owner and I’m so excited. This is Booger! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/pos...](https://t.me/ferretman/1955)
+- [MediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/650026588351676416](https://t.me/ferretman/1954)
+- [MediaMediaMediaMediastiegsart:My ferrets and their fancy new bath floaties! <3 <3 <3 Pictured: Calypso, Al, Caramel, Bean, Coco, Ruby, Wolfy (no tube...](https://t.me/ferretman/1953)
+- [veta-lopis:“my battery is low and it’s getting dark” is so hauntingly human, so crushingly lonely. I can’t articulate the deep, profound ache that...](https://t.me/ferretman/1952)
 <!-- TELEGRAM:END -->
