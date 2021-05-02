@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediatheferrets:My babiesvia Ferret Story https://just-a-catastrophy.tumblr.com/post/649996402987089920](https://t.me/ferretman/1945)
-- [ferretsofmine:Going into Monday like …via Ferret Story https://scrisoridemai.tumblr.com/post/649992610851766272](https://t.me/ferretman/1944)
-- [Media2nd snow for this one! This time has her nice thick coat!via Ferret Story https://prettypeterparkr.tumblr.com/post/649992610672443392](https://t.me/ferretman/1943)
-- [Mediawhat can I use to cover the gap between heater and floorboard? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/649985066220535808](https://t.me/ferretman/1942)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/649981298615713792](https://t.me/ferretman/1941)
+- [MediaMediavia Ferret Story https://anasfalhhhs.tumblr.com/post/650015245990068225](https://t.me/ferretman/1951)
+- [ferretsoftiktok:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/650011569697243136](https://t.me/ferretman/1950)
+- [MediaDerp : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650011529916383232](https://t.me/ferretman/1949)
+- [MediaCalm Ferret (short) : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650011529433022464](https://t.me/ferretman/1948)
+- [MediaSquid loves the snow! (Wait til the end to see his snow plowing abilities) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/65001149...](https://t.me/ferretman/1947)
 <!-- TELEGRAM:END -->
