@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/1973)
+- [cannonball-the-ferret:sprouted-moth:cat-harman92:delpad-captain:zachsanomaiy:Sinosauropteryx is one of the only dinosaurs where we know exactly what t...](https://t.me/ferretman/1972)
+- [MediaJust adopted two new ferrets (2Y F and M) and briefly introduced them to my older ferret (10Y)! Sadly the light brown one(F) is underweight so I ...](https://t.me/ferretman/1971)
+- [MediaMisty’s just too cute sometimes 💜 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650105861689294848](https://t.me/ferretman/1970)
 - [MediaWhen are they NOT cute!? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650102171314126848](https://t.me/ferretman/1969)
-- [dicaeopolis:dicaeopolis:Human beings b like. *sits and stares peacefully at a fire* *sits and stares peacefully at the ocean* *sits and stares peacefu...](https://t.me/ferretman/1968)
-- [MediaMediaMediaMediasirfrogsworth:Matt created an important update. [ Matt Bors ]via Ferret Story https://xxcrybby.tumblr.com/post/650102129088970752](https://t.me/ferretman/1967)
-- [Mediathenatsdorf:Cat meets hedgehog.via Ferret Story https://babyiwannaknow.tumblr.com/post/650102098665635840](https://t.me/ferretman/1966)
-- [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代とカワウソ葵 (@ponchan918)shes-a-maslaniac:ashleyodette:beeslybee:*slams f...](https://t.me/ferretman/1965)
 <!-- TELEGRAM:END -->
