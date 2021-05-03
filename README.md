@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [misioandkinga:no i won’t stop showing u all how cute tad is playing in the bead pitvia Ferret Story https://scrisoridemai.tumblr.com/post/65008321670...](https://t.me/ferretman/1964)
-- [thelifeofmyferrets:MediaMediaMediaMediaMediaMediaMedia(SN: I didn’t look at the pictures from Lucy’s Day. I just need to focus on Ducky because he i...](https://t.me/ferretman/1963)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMedia9pieceboom:ottermatopoeia:robsource:Twilight (2008) dir. Catherine HardwickeMedia@ottermatopoeiaMediavia ...](https://t.me/ferretman/1962)
-- [Mediahughie after working hard at his job 😪 (he chases vacuums) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650071907874537472](https://t.me/ferretman/1961)
-- [MediaOrzo is miffed that she has been awoken from her nap 😠 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650071893988311040](https://t.me/ferretman/1960)
+- [bootyisagirlsbestfriend:shysweetthing:imhellafit-personal:sailed-0ut:Please don’t hesitate1 penny below reporting limit for the IRS… I see what you ...](https://t.me/ferretman/1956)
+- [MediaOne of my two new boys. First time ferret owner and I’m so excited. This is Booger! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/pos...](https://t.me/ferretman/1955)
+- [MediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/650026588351676416](https://t.me/ferretman/1954)
+- [MediaMediaMediaMediastiegsart:My ferrets and their fancy new bath floaties! <3 <3 <3 Pictured: Calypso, Al, Caramel, Bean, Coco, Ruby, Wolfy (no tube...](https://t.me/ferretman/1953)
+- [veta-lopis:“my battery is low and it’s getting dark” is so hauntingly human, so crushingly lonely. I can’t articulate the deep, profound ache that...](https://t.me/ferretman/1952)
 <!-- TELEGRAM:END -->
