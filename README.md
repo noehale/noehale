@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHappy 6th birthday to my little valentine Rascal! 💜 you to the moon little girl! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post...](https://t.me/ferretman/1974)
 - [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/1973)
 - [cannonball-the-ferret:sprouted-moth:cat-harman92:delpad-captain:zachsanomaiy:Sinosauropteryx is one of the only dinosaurs where we know exactly what t...](https://t.me/ferretman/1972)
 - [MediaJust adopted two new ferrets (2Y F and M) and briefly introduced them to my older ferret (10Y)! Sadly the light brown one(F) is underweight so I ...](https://t.me/ferretman/1971)
 - [MediaMisty’s just too cute sometimes 💜 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650105861689294848](https://t.me/ferretman/1970)
+- [MediaWhen are they NOT cute!? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650102171314126848](https://t.me/ferretman/1969)
 <!-- TELEGRAM:END -->
