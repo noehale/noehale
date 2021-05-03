@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaWhen are they NOT cute!? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650102171314126848](https://t.me/ferretman/1969)
+- [dicaeopolis:dicaeopolis:Human beings b like. *sits and stares peacefully at a fire* *sits and stares peacefully at the ocean* *sits and stares peacefu...](https://t.me/ferretman/1968)
+- [MediaMediaMediaMediasirfrogsworth:Matt created an important update. [ Matt Bors ]via Ferret Story https://xxcrybby.tumblr.com/post/650102129088970752](https://t.me/ferretman/1967)
+- [Mediathenatsdorf:Cat meets hedgehog.via Ferret Story https://babyiwannaknow.tumblr.com/post/650102098665635840](https://t.me/ferretman/1966)
 - [View this post on InstagramA post shared by ａｙａｋｏ🇯🇵カワウソ竹千代とカワウソ葵 (@ponchan918)shes-a-maslaniac:ashleyodette:beeslybee:*slams f...](https://t.me/ferretman/1965)
-- [misioandkinga:no i won’t stop showing u all how cute tad is playing in the bead pitvia Ferret Story https://scrisoridemai.tumblr.com/post/65008321670...](https://t.me/ferretman/1964)
-- [thelifeofmyferrets:MediaMediaMediaMediaMediaMediaMedia(SN: I didn’t look at the pictures from Lucy’s Day. I just need to focus on Ducky because he i...](https://t.me/ferretman/1963)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMedia9pieceboom:ottermatopoeia:robsource:Twilight (2008) dir. Catherine HardwickeMedia@ottermatopoeiaMediavia ...](https://t.me/ferretman/1962)
-- [Mediahughie after working hard at his job 😪 (he chases vacuums) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650071907874537472](https://t.me/ferretman/1961)
 <!-- TELEGRAM:END -->
