@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [phoenix:the-only-useful-lesbian:Ralph Dibney was on the list of names that Wells said who died in the Particle Accelerator explosionBarry’s changing ...](https://t.me/ferretman/1995)
-- [revawo:pisswolf:ultrabeast05:OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANTMediaMedia!!!!!!!!!!!!via Ferret Story https://punkrocknat.tumb...](https://t.me/ferretman/1994)
-- [MediaLick lick lick :Pvia Ferret Story https://just-a-catastrophy.tumblr.com/post/650207786102390784](https://t.me/ferretman/1993)
-- [i-am-fert:h0m0d4chi:how can him go inside but me notitis okay. you can stil particitate in othor fert activties suck as:Mediasleepsleepand sleepMediaM...](https://t.me/ferretman/1992)
-- [MediaMy boy Klaus loving his new rice box. Thanks for the idea.via Ferret Story https://prettypeterparkr.tumblr.com/post/650203989628092416](https://t.me/ferretman/1991)
+- [MediaAnyone know where u can get good chew toys for ferrets? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650256876656836608](https://t.me/ferretman/2001)
+- [MediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650253140765114368](https://t.me/ferretman/2000)
+- [everythingfox:wiggly boiisvia Ferret Story https://babyiwannaknow.tumblr.com/post/650253116314468352](https://t.me/ferretman/1999)
+- [MediaGood morning all I wanted to know if this is playing or fighting and are the sounds marshmallow making ok or is she afraid? I allowed this so I w...](https://t.me/ferretman/1998)
+- [becausebirds:cataradical:genderviscera:shedidnthaveaface:Please enjoy this tiny twirling water owl.Rotate your owl for science@babblingbuground and ro...](https://t.me/ferretman/1997)
 <!-- TELEGRAM:END -->
