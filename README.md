@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [revawo:pisswolf:ultrabeast05:OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANTMediaMedia!!!!!!!!!!!!via Ferret Story https://punkrocknat.tumb...](https://t.me/ferretman/1994)
+- [MediaLick lick lick :Pvia Ferret Story https://just-a-catastrophy.tumblr.com/post/650207786102390784](https://t.me/ferretman/1993)
+- [i-am-fert:h0m0d4chi:how can him go inside but me notitis okay. you can stil particitate in othor fert activties suck as:Mediasleepsleepand sleepMediaM...](https://t.me/ferretman/1992)
+- [MediaMy boy Klaus loving his new rice box. Thanks for the idea.via Ferret Story https://prettypeterparkr.tumblr.com/post/650203989628092416](https://t.me/ferretman/1991)
 - [MediaDuring my daily 10 hr, all-you-can-eat brain buffet aka “college”, Tommy stops by for a visit and tries to steal my coffee. ( No cat noodles we...](https://t.me/ferretman/1990)
-- [Media“Mom just one more game! I swear I won’t hide your hotels this time!” : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com...](https://t.me/ferretman/1989)
-- [MediaVery sleep furbabies ❤ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650192704547012608](https://t.me/ferretman/1988)
-- [Mediawhen you’re trying to nap but your brothers don’t care : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650192703057969152](https://t.me/ferretman/1987)
-- [MediaBleep : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650192699515912192](https://t.me/ferretman/1986)
 <!-- TELEGRAM:END -->
