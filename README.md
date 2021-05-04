@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediapokemonpika77:Guys, this is season ONE of the Simpsons.via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/2004)
+- [MediaMediaMediaMediaskullgarden:hey everyone! I just launched a Kickstarter to fund the purchase and operation of a large scale giclee printer so I ca...](https://t.me/ferretman/2003)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/650264425308274688](https://t.me/ferretman/2002)
 - [MediaAnyone know where u can get good chew toys for ferrets? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650256876656836608](https://t.me/ferretman/2001)
 - [MediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650253140765114368](https://t.me/ferretman/2000)
-- [everythingfox:wiggly boiisvia Ferret Story https://babyiwannaknow.tumblr.com/post/650253116314468352](https://t.me/ferretman/1999)
-- [MediaGood morning all I wanted to know if this is playing or fighting and are the sounds marshmallow making ok or is she afraid? I allowed this so I w...](https://t.me/ferretman/1998)
-- [becausebirds:cataradical:genderviscera:shedidnthaveaface:Please enjoy this tiny twirling water owl.Rotate your owl for science@babblingbuground and ro...](https://t.me/ferretman/1997)
 <!-- TELEGRAM:END -->
