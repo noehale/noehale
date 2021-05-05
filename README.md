@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediathelifeofmyferrets:My Ducky used to do this. Now he poops on me if I try to get him wet. 😂via Ferret Story https://punkrocknat....](https://t.me/ferretman/2014)
-- [MediaYou dear play with my toys!!! : ferretsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/650298450281447424](https://t.me/ferretman/2013)
 - [via Ferret Story https://scrisoridemai.tumblr.com/post/650294594270117889](https://t.me/ferretman/2012)
 - [Mediaferretfarts:WEALTHY FUR NOODLE HAS GRACED YOUR TIMELINE!Reblog weathly fur noodle for a thousand moneys and good luck for the rest of ur life!!vi...](https://t.me/ferretman/2011)
 - [MediaMy little cuddle buddy ❤ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650287057625825280](https://t.me/ferretman/2010)
+- [MediaMediaMediaMediaspidaerman:To all my black followers and friends, stay safe.Also, I would like to add that black lives have always mattered, will ...](https://t.me/ferretman/2009)
+- [Mediadietaryfiber:mayordog:a warningwe have Ten Daysvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650283330912272384](https://t.me/ferretman/2008)
 <!-- TELEGRAM:END -->
