@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediapokemonpika77:Guys, this is season ONE of the Simpsons.via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/2004)
-- [MediaMediaMediaMediaskullgarden:hey everyone! I just launched a Kickstarter to fund the purchase and operation of a large scale giclee printer so I ca...](https://t.me/ferretman/2003)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/650264425308274688](https://t.me/ferretman/2002)
-- [MediaAnyone know where u can get good chew toys for ferrets? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650256876656836608](https://t.me/ferretman/2001)
-- [MediaMediaMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650253140765114368](https://t.me/ferretman/2000)
+- [via Ferret Story https://scrisoridemai.tumblr.com/post/650294594270117889](https://t.me/ferretman/2012)
+- [Mediaferretfarts:WEALTHY FUR NOODLE HAS GRACED YOUR TIMELINE!Reblog weathly fur noodle for a thousand moneys and good luck for the rest of ur life!!vi...](https://t.me/ferretman/2011)
+- [MediaMy little cuddle buddy ❤ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650287057625825280](https://t.me/ferretman/2010)
+- [MediaMediaMediaMediaspidaerman:To all my black followers and friends, stay safe.Also, I would like to add that black lives have always mattered, will ...](https://t.me/ferretman/2009)
+- [Mediadietaryfiber:mayordog:a warningwe have Ten Daysvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650283330912272384](https://t.me/ferretman/2008)
 <!-- TELEGRAM:END -->
