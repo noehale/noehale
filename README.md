@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaferret-flops:ferret-flops:Sorry for potato quality but I put this tshirt on Helo and he is too “puffy” for it lmao 😂😂😂Don’t worry, I ...](https://t.me/ferretman/2024)
+- [MediaMistakes were madevia Ferret Story https://prettypeterparkr.tumblr.com/post/650355032655527936](https://t.me/ferretman/2023)
+- [MediaFound my 4 girls in a lil cuddle puddle tonight 🥰via Ferret Story https://scrisoridemai.tumblr.com/post/650355007269519360](https://t.me/ferretman/2022)
+- [MediaBabies got an upgrade :) : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650347433108406273](https://t.me/ferretman/2021)
 - [MediaThe only thing you need for Christmas 🎄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650343769950027776](https://t.me/ferretman/2020)
-- [MediaThe shoe bandit got caught red handed : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650343769919602688](https://t.me/ferretman/2019)
-- [MediaWhat a sweet face! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650343757009600512](https://t.me/ferretman/2018)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/650343687014973440](https://t.me/ferretman/2017)
-- [MediaPercy 🐾 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650343687802535936](https://t.me/ferretman/2016)
 <!-- TELEGRAM:END -->
