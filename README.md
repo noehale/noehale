@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediathelifeofmyferrets:My Ducky used to do this. Now he poops on me if I try to get him wet. 😂via Ferret Story https://punkrocknat....](https://t.me/ferretman/2014)
-- [MediaYou dear play with my toys!!! : ferretsvia Ferret Story https://just-a-catastrophy.tumblr.com/post/650298450281447424](https://t.me/ferretman/2013)
-- [via Ferret Story https://scrisoridemai.tumblr.com/post/650294594270117889](https://t.me/ferretman/2012)
-- [Mediaferretfarts:WEALTHY FUR NOODLE HAS GRACED YOUR TIMELINE!Reblog weathly fur noodle for a thousand moneys and good luck for the rest of ur life!!vi...](https://t.me/ferretman/2011)
-- [MediaMy little cuddle buddy ❤ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650287057625825280](https://t.me/ferretman/2010)
+- [MediaThe only thing you need for Christmas 🎄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650343769950027776](https://t.me/ferretman/2020)
+- [MediaThe shoe bandit got caught red handed : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650343769919602688](https://t.me/ferretman/2019)
+- [MediaWhat a sweet face! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650343757009600512](https://t.me/ferretman/2018)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/650343687014973440](https://t.me/ferretman/2017)
+- [MediaPercy 🐾 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650343687802535936](https://t.me/ferretman/2016)
 <!-- TELEGRAM:END -->
