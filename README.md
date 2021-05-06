@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret-flops:ferret-flops:Sorry for potato quality but I put this tshirt on Helo and he is too “puffy” for it lmao 😂😂😂Don’t worry, I ...](https://t.me/ferretman/2024)
-- [MediaMistakes were madevia Ferret Story https://prettypeterparkr.tumblr.com/post/650355032655527936](https://t.me/ferretman/2023)
-- [MediaFound my 4 girls in a lil cuddle puddle tonight 🥰via Ferret Story https://scrisoridemai.tumblr.com/post/650355007269519360](https://t.me/ferretman/2022)
-- [MediaBabies got an upgrade :) : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650347433108406273](https://t.me/ferretman/2021)
-- [MediaThe only thing you need for Christmas 🎄 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650343769950027776](https://t.me/ferretman/2020)
+- [theferrets:MediaMediaMediaMy little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://babyiwannaknow.tu...](https://t.me/ferretman/2029)
+- [MediaWhat!?!?! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650373928510996480](https://t.me/ferretman/2028)
+- [waitinforthebus:ring around the rosiepocket full ofMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650373913844547584](https://t.me/ferretman/2027)
+- [MediaSister cuddles : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650373913914867712](https://t.me/ferretman/2026)
+- [MediaMan y’all are so lame and sensitive for blocking this photo 🤦🏽‍♂️ like i would actually like my ferret eat an edible. : ferretsvia Ferr...](https://t.me/ferretman/2025)
 <!-- TELEGRAM:END -->
