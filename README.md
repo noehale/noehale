@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaWelcome little Blossom! Birthday May 25th 🌸via Ferret Story https://just-a-catastrophy.tumblr.com/post/650449402896547841](https://t.me/ferretman/2044)
+- [Mediatheferrets:This ladies and gentlemen, this is a sock ferret.via Ferret Story https://scrisoridemai.tumblr.com/post/650445590772269056](https://t.me/ferretman/2043)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/650445590770188288](https://t.me/ferretman/2042)
 - [Media“do u have a treat for me?” : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650438081519992832](https://t.me/ferretman/2041)
 - [inkskinned:“if you take medication for that, you’ll be taking medication all your life!!” yeah, and?? bud, i already put on my glasses every mornin...](https://t.me/ferretman/2040)
-- [Mediabecausebirds:starrythighz:a safe birdmommavia Ferret Story https://xxcrybby.tumblr.com/post/650434309149392896](https://t.me/ferretman/2039)
-- [MediaDIP Smeagol 2014-2021 He was a cuddler and a great collector of plastic colored balls. He loved to take long walks outside to try a chase the rab...](https://t.me/ferretman/2038)
-- [MediaWould these treats be okay for ferrets? Tried to find the ones with the most meat. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/65043...](https://t.me/ferretman/2037)
 <!-- TELEGRAM:END -->
