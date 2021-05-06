@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [theferrets:MediaMediaMediaMy little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://babyiwannaknow.tu...](https://t.me/ferretman/2029)
-- [MediaWhat!?!?! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650373928510996480](https://t.me/ferretman/2028)
-- [waitinforthebus:ring around the rosiepocket full ofMediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650373913844547584](https://t.me/ferretman/2027)
-- [MediaSister cuddles : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650373913914867712](https://t.me/ferretman/2026)
-- [MediaMan y’all are so lame and sensitive for blocking this photo 🤦🏽‍♂️ like i would actually like my ferret eat an edible. : ferretsvia Ferr...](https://t.me/ferretman/2025)
+- [Mediaenjoy this pic of goose smiling : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/650392746779099136](https://t.me/ferretman/2034)
+- [lazybitch:*cringes at 9 year old me* *cringes at 13 year old me* *cringes at year ago me* *cringes...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/2033)
+- [Mediaexactly-who:astro-limbed:splantamello:I am both of these peopleWait, did you just flirt with me?: Gemini, Leo, Capricorn, PISCES, Taurus, CancerH...](https://t.me/ferretman/2032)
+- [thatweirdferretlady:deadbyinsidee:MediaI’ve been having a tough time so that’s why I don’t post a lot anymore.Stay lovely, lovelies. See you soon.v...](https://t.me/ferretman/2031)
+- [MediaBlep : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650377635899244544](https://t.me/ferretman/2030)
 <!-- TELEGRAM:END -->
