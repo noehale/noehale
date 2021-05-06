@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHappy 6th birthday to my little valentine Rascal! 💜 you to the moon little girl! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post...](https://t.me/ferretman/1974)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediathelifeofmyferrets:babyanimalgifs:animals cuddling their toysimageDucky and his Duckvia Ferret Story http...](https://t.me/ferretman/1973)
-- [cannonball-the-ferret:sprouted-moth:cat-harman92:delpad-captain:zachsanomaiy:Sinosauropteryx is one of the only dinosaurs where we know exactly what t...](https://t.me/ferretman/1972)
-- [MediaJust adopted two new ferrets (2Y F and M) and briefly introduced them to my older ferret (10Y)! Sadly the light brown one(F) is underweight so I ...](https://t.me/ferretman/1971)
-- [MediaMisty’s just too cute sometimes 💜 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650105861689294848](https://t.me/ferretman/1970)
+- [Media“do u have a treat for me?” : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650438081519992832](https://t.me/ferretman/2041)
+- [inkskinned:“if you take medication for that, you’ll be taking medication all your life!!” yeah, and?? bud, i already put on my glasses every mornin...](https://t.me/ferretman/2040)
+- [Mediabecausebirds:starrythighz:a safe birdmommavia Ferret Story https://xxcrybby.tumblr.com/post/650434309149392896](https://t.me/ferretman/2039)
+- [MediaDIP Smeagol 2014-2021 He was a cuddler and a great collector of plastic colored balls. He loved to take long walks outside to try a chase the rab...](https://t.me/ferretman/2038)
+- [MediaWould these treats be okay for ferrets? Tried to find the ones with the most meat. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/65043...](https://t.me/ferretman/2037)
 <!-- TELEGRAM:END -->
