@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWelcome little Blossom! Birthday May 25th 🌸via Ferret Story https://just-a-catastrophy.tumblr.com/post/650449402896547841](https://t.me/ferretman/2044)
-- [Mediatheferrets:This ladies and gentlemen, this is a sock ferret.via Ferret Story https://scrisoridemai.tumblr.com/post/650445590772269056](https://t.me/ferretman/2043)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/650445590770188288](https://t.me/ferretman/2042)
-- [Media“do u have a treat for me?” : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650438081519992832](https://t.me/ferretman/2041)
-- [inkskinned:“if you take medication for that, you’ll be taking medication all your life!!” yeah, and?? bud, i already put on my glasses every mornin...](https://t.me/ferretman/2040)
+- [MediaGetting snazzy!via Ferret Story https://scrisoridemai.tumblr.com/post/650475804224077824](https://t.me/ferretman/2052)
+- [bob-artist:bob-artist:bob-artist:Even Kit’s FEET get so super fluffy in winter, and I can’t handle it.MediaBtw for the sake of reference:Summer feet...](https://t.me/ferretman/2051)
+- [MediaWalked in the room to grab something. Needless to say i think i woke my poor baby boy up : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com...](https://t.me/ferretman/2050)
+- [MediaLittle Max and his bubble mustache!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650464555658559488](https://t.me/ferretman/2049)
+- [Mediacuddle bug say Rawr XD : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650464555151015936](https://t.me/ferretman/2048)
 <!-- TELEGRAM:END -->
