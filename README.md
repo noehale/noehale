@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Media“Good morning ma.” Oh she is so precious 😭🥺via Ferret Story https://just-a-catastrophy.tumblr.com/post/650539985353736192](https://t.me/ferretman/2064)
+- [bob-artist:bob-artist:bob-artist:I reach into my garbage can and locate my trash child.For the record, Kit doesn’t *only* sleep in that garbage can.H...](https://t.me/ferretman/2063)
+- [i-am-fert:den-father:fawkes-y:ferretsoftiktok:@clockworkapostleSomeone who knows ferrets, explain what this creature is doingoh! i can explane!the sti...](https://t.me/ferretman/2062)
+- [MediaOne eared boy : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650528658025529344](https://t.me/ferretman/2061)
 - [Mediaadrianrahardja:#scenes from #dahanaranch : friendliest #dog you’ll ever meet, Q and her #stubborn #horse ‘Quanjo’, and my very well behaved ‘...](https://t.me/ferretman/2060)
-- [MediaThis is Marbles. He loves to run, steal everything, and is incredibly photogenic! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650524...](https://t.me/ferretman/2059)
-- [MediaAggressive Hob Advice! Is this aggression or just rough play? He is a new addition to our family. Over 1yr old, implanted. HELP! : ferretsvia Fer...](https://t.me/ferretman/2058)
-- [Mediaclotpolesonly:mattg124:angrynerdyblogger:straight-up-juggahos:kendralynora:buginateacup:jaydenw:whitepajamas:automatonic-absinthe:isaia:rosswoodp...](https://t.me/ferretman/2057)
-- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/2056)
 <!-- TELEGRAM:END -->
