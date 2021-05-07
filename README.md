@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [<a href="https://64.media.tumblr.com/20be8b116f391eee5a6294a699785951/tumblr_obgi15XDaj1uqi7gio1_500.jpg">Media</a><a href="https://64.media.tumblr.co...](https://t.me/ferretman/2054)
+- [grimdark:i may not be beautiful but at least i know a lot of useless informationvia Ferret Story https://just-a-catastrophy.tumblr.com/post/6504796208...](https://t.me/ferretman/2053)
 - [MediaGetting snazzy!via Ferret Story https://scrisoridemai.tumblr.com/post/650475804224077824](https://t.me/ferretman/2052)
 - [bob-artist:bob-artist:bob-artist:Even Kit’s FEET get so super fluffy in winter, and I can’t handle it.MediaBtw for the sake of reference:Summer feet...](https://t.me/ferretman/2051)
 - [MediaWalked in the room to grab something. Needless to say i think i woke my poor baby boy up : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com...](https://t.me/ferretman/2050)
-- [MediaLittle Max and his bubble mustache!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650464555658559488](https://t.me/ferretman/2049)
-- [Mediacuddle bug say Rawr XD : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650464555151015936](https://t.me/ferretman/2048)
 <!-- TELEGRAM:END -->
