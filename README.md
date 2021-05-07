@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [<a href="https://64.media.tumblr.com/20be8b116f391eee5a6294a699785951/tumblr_obgi15XDaj1uqi7gio1_500.jpg">Media</a><a href="https://64.media.tumblr.co...](https://t.me/ferretman/2054)
-- [grimdark:i may not be beautiful but at least i know a lot of useless informationvia Ferret Story https://just-a-catastrophy.tumblr.com/post/6504796208...](https://t.me/ferretman/2053)
-- [MediaGetting snazzy!via Ferret Story https://scrisoridemai.tumblr.com/post/650475804224077824](https://t.me/ferretman/2052)
-- [bob-artist:bob-artist:bob-artist:Even Kit’s FEET get so super fluffy in winter, and I can’t handle it.MediaBtw for the sake of reference:Summer feet...](https://t.me/ferretman/2051)
-- [MediaWalked in the room to grab something. Needless to say i think i woke my poor baby boy up : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com...](https://t.me/ferretman/2050)
+- [Mediaadrianrahardja:#scenes from #dahanaranch : friendliest #dog you’ll ever meet, Q and her #stubborn #horse ‘Quanjo’, and my very well behaved ‘...](https://t.me/ferretman/2060)
+- [MediaThis is Marbles. He loves to run, steal everything, and is incredibly photogenic! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650524...](https://t.me/ferretman/2059)
+- [MediaAggressive Hob Advice! Is this aggression or just rough play? He is a new addition to our family. Over 1yr old, implanted. HELP! : ferretsvia Fer...](https://t.me/ferretman/2058)
+- [Mediaclotpolesonly:mattg124:angrynerdyblogger:straight-up-juggahos:kendralynora:buginateacup:jaydenw:whitepajamas:automatonic-absinthe:isaia:rosswoodp...](https://t.me/ferretman/2057)
+- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/2056)
 <!-- TELEGRAM:END -->
