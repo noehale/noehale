@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Media“Good morning ma.” Oh she is so precious 😭🥺via Ferret Story https://just-a-catastrophy.tumblr.com/post/650539985353736192](https://t.me/ferretman/2064)
-- [bob-artist:bob-artist:bob-artist:I reach into my garbage can and locate my trash child.For the record, Kit doesn’t *only* sleep in that garbage can.H...](https://t.me/ferretman/2063)
-- [i-am-fert:den-father:fawkes-y:ferretsoftiktok:@clockworkapostleSomeone who knows ferrets, explain what this creature is doingoh! i can explane!the sti...](https://t.me/ferretman/2062)
-- [MediaOne eared boy : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650528658025529344](https://t.me/ferretman/2061)
-- [Mediaadrianrahardja:#scenes from #dahanaranch : friendliest #dog you’ll ever meet, Q and her #stubborn #horse ‘Quanjo’, and my very well behaved ‘...](https://t.me/ferretman/2060)
+- [MediaThese are my two new ferrets! I got them from someone on Facebook saying they were 8 weeks old, but when i went back on their profile to see when...](https://t.me/ferretman/2074)
+- [MediaMy stunning Milo playing in the snow🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/650570183561363456](https://t.me/ferretman/2073)
+- [somecutething:via Ferret Story https://prettypeterparkr.tumblr.com/post/650566418192089088](https://t.me/ferretman/2072)
+- [silverhawk:look at these lil leopard ferretsMediaMediaMediathis lil guy is called the marbled polecat!!!!!Mediavia Ferret Story https://scrisoridemai....](https://t.me/ferretman/2071)
+- [MediaIs 100% meat dog food suitable for ferrets? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650558851349938176](https://t.me/ferretman/2070)
 <!-- TELEGRAM:END -->
