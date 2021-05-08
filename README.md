@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Media“Good morning ma.” Oh she is so precious 😭🥺via Ferret Story https://just-a-catastrophy.tumblr.com/post/650539985353736192](https://t.me/ferretman/2064)
-- [bob-artist:bob-artist:bob-artist:I reach into my garbage can and locate my trash child.For the record, Kit doesn’t *only* sleep in that garbage can.H...](https://t.me/ferretman/2063)
-- [i-am-fert:den-father:fawkes-y:ferretsoftiktok:@clockworkapostleSomeone who knows ferrets, explain what this creature is doingoh! i can explane!the sti...](https://t.me/ferretman/2062)
-- [MediaOne eared boy : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650528658025529344](https://t.me/ferretman/2061)
-- [Mediaadrianrahardja:#scenes from #dahanaranch : friendliest #dog you’ll ever meet, Q and her #stubborn #horse ‘Quanjo’, and my very well behaved ‘...](https://t.me/ferretman/2060)
+- [MediaIs 100% meat dog food suitable for ferrets? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650558851349938176](https://t.me/ferretman/2070)
+- [MediaNoodles mad that he in a timeout : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650555173203279872](https://t.me/ferretman/2069)
+- [MediaAthos and Zeldavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650555147408244736](https://t.me/ferretman/2068)
+- [MediaMediaMediaMediadechart:the-tumblest-jacob:lilaccatholic:thetatteredveil:starbitchunlimited:sunshine-tattoo:she’s that perfect combination of ext...](https://t.me/ferretman/2067)
+- [MediaMediaMediaMediarenasanse:coolfrogdude:original thread by @pukicho and several other usersI always love seeing this comic because it interprets T...](https://t.me/ferretman/2066)
 <!-- TELEGRAM:END -->
