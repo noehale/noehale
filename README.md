@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaThese are my two new ferrets! I got them from someone on Facebook saying they were 8 weeks old, but when i went back on their profile to see when...](https://t.me/ferretman/2074)
+- [MediaMy stunning Milo playing in the snow🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/650570183561363456](https://t.me/ferretman/2073)
+- [somecutething:via Ferret Story https://prettypeterparkr.tumblr.com/post/650566418192089088](https://t.me/ferretman/2072)
+- [silverhawk:look at these lil leopard ferretsMediaMediaMediathis lil guy is called the marbled polecat!!!!!Mediavia Ferret Story https://scrisoridemai....](https://t.me/ferretman/2071)
 - [MediaIs 100% meat dog food suitable for ferrets? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650558851349938176](https://t.me/ferretman/2070)
-- [MediaNoodles mad that he in a timeout : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650555173203279872](https://t.me/ferretman/2069)
-- [MediaAthos and Zeldavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650555147408244736](https://t.me/ferretman/2068)
-- [MediaMediaMediaMediadechart:the-tumblest-jacob:lilaccatholic:thetatteredveil:starbitchunlimited:sunshine-tattoo:she’s that perfect combination of ext...](https://t.me/ferretman/2067)
-- [MediaMediaMediaMediarenasanse:coolfrogdude:original thread by @pukicho and several other usersI always love seeing this comic because it interprets T...](https://t.me/ferretman/2066)
 <!-- TELEGRAM:END -->
