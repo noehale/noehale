@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaBlack footed ferret cloned : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/650604121216466944](https://t.me/ferretman/2075)
 - [MediaThese are my two new ferrets! I got them from someone on Facebook saying they were 8 weeks old, but when i went back on their profile to see when...](https://t.me/ferretman/2074)
 - [MediaMy stunning Milo playing in the snow🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/650570183561363456](https://t.me/ferretman/2073)
 - [somecutething:via Ferret Story https://prettypeterparkr.tumblr.com/post/650566418192089088](https://t.me/ferretman/2072)
 - [silverhawk:look at these lil leopard ferretsMediaMediaMediathis lil guy is called the marbled polecat!!!!!Mediavia Ferret Story https://scrisoridemai....](https://t.me/ferretman/2071)
-- [MediaIs 100% meat dog food suitable for ferrets? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650558851349938176](https://t.me/ferretman/2070)
 <!-- TELEGRAM:END -->
