@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediamisioandkinga:| ferret intensifies |@iamanandroidvia Ferret Story https://just-a-catastrophy.tumblr.com/post/650630566179422208](https://t.me/ferretman/2084)
+- [bob-artist:Trash weasels caught in the actvia Ferret Story https://prettypeterparkr.tumblr.com/post/650626823849410560](https://t.me/ferretman/2083)
+- [ferretsoftiktok:via Ferret Story https://scrisoridemai.tumblr.com/post/650626796823445504](https://t.me/ferretman/2082)
 - [MediaThe beach is kinda spooky 👻 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650619259225063424](https://t.me/ferretman/2081)
 - [thebootydiaries:me: omfg ily i swear we’re like long lost twins or something your blog is my lifeme: also what is your namevia Ferret Story https://f...](https://t.me/ferretman/2080)
-- [MediaBeautifully stretched and very carefully shipped this. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650615502696300544](https://t.me/ferretman/2079)
-- [MediaHey, I’m always trying to be diligent so I wanna ask! Does this breathing seem normal? I can’t tell if it’s laborous or if he’s just in a dee...](https://t.me/ferretman/2078)
-- [MediaTeddyBear : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650615472956620800](https://t.me/ferretman/2077)
 <!-- TELEGRAM:END -->
