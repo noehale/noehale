@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaThe beach is kinda spooky 👻 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650619259225063424](https://t.me/ferretman/2081)
-- [thebootydiaries:me: omfg ily i swear we’re like long lost twins or something your blog is my lifeme: also what is your namevia Ferret Story https://f...](https://t.me/ferretman/2080)
-- [MediaBeautifully stretched and very carefully shipped this. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650615502696300544](https://t.me/ferretman/2079)
-- [MediaHey, I’m always trying to be diligent so I wanna ask! Does this breathing seem normal? I can’t tell if it’s laborous or if he’s just in a dee...](https://t.me/ferretman/2078)
-- [MediaTeddyBear : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650615472956620800](https://t.me/ferretman/2077)
+- [MediaBlack footed ferret cloned : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/650604121216466944](https://t.me/ferretman/2075)
+- [MediaThese are my two new ferrets! I got them from someone on Facebook saying they were 8 weeks old, but when i went back on their profile to see when...](https://t.me/ferretman/2074)
+- [MediaMy stunning Milo playing in the snow🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/650570183561363456](https://t.me/ferretman/2073)
+- [somecutething:via Ferret Story https://prettypeterparkr.tumblr.com/post/650566418192089088](https://t.me/ferretman/2072)
+- [silverhawk:look at these lil leopard ferretsMediaMediaMediathis lil guy is called the marbled polecat!!!!!Mediavia Ferret Story https://scrisoridemai....](https://t.me/ferretman/2071)
 <!-- TELEGRAM:END -->
