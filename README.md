@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaBlack footed ferret cloned : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/650604121216466944](https://t.me/ferretman/2075)
-- [MediaThese are my two new ferrets! I got them from someone on Facebook saying they were 8 weeks old, but when i went back on their profile to see when...](https://t.me/ferretman/2074)
-- [MediaMy stunning Milo playing in the snow🥰via Ferret Story https://just-a-catastrophy.tumblr.com/post/650570183561363456](https://t.me/ferretman/2073)
-- [somecutething:via Ferret Story https://prettypeterparkr.tumblr.com/post/650566418192089088](https://t.me/ferretman/2072)
-- [silverhawk:look at these lil leopard ferretsMediaMediaMediathis lil guy is called the marbled polecat!!!!!Mediavia Ferret Story https://scrisoridemai....](https://t.me/ferretman/2071)
+- [Mediaalways quadruple check your appliances for ferrets before running them! 🚨 : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/6506...](https://t.me/ferretman/2092)
+- [MediaHandsome boyvia Ferret Story https://prettypeterparkr.tumblr.com/post/650656986176929792](https://t.me/ferretman/2091)
+- [MediaThe balls are lava! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650649432981929984](https://t.me/ferretman/2090)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/650645751799726080](https://t.me/ferretman/2089)
+- [MediaAlways check the bottom drawer : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650645724129902592](https://t.me/ferretman/2088)
 <!-- TELEGRAM:END -->
