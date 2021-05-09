@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaTwo days before his 2nd birthday; he crawled on me for a nap for the first time! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/65...](https://t.me/ferretman/2094)
+- [MediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/650660810725736448](https://t.me/ferretman/2093)
 - [Mediaalways quadruple check your appliances for ferrets before running them! 🚨 : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/6506...](https://t.me/ferretman/2092)
 - [MediaHandsome boyvia Ferret Story https://prettypeterparkr.tumblr.com/post/650656986176929792](https://t.me/ferretman/2091)
 - [MediaThe balls are lava! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650649432981929984](https://t.me/ferretman/2090)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/650645751799726080](https://t.me/ferretman/2089)
-- [MediaAlways check the bottom drawer : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650645724129902592](https://t.me/ferretman/2088)
 <!-- TELEGRAM:END -->
