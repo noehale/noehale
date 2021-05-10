@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaSharing water with my noodle! Loki always gets in my cups of water 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/65074003429...](https://t.me/ferretman/2118)
-- [MediaI basically cried today when these two finally reunited after Daxter was in quarantine for 4 weeks. Nova (white) was quick to provide cuddles/gro...](https://t.me/ferretman/2117)
-- [mr-mononucleosis:lunalovegouda:The intro cards for Futurama have always been one of my favorite parts of the show because people always talk about the...](https://t.me/ferretman/2116)
-- [MediaWho needs a bed when you have a rice box? 😴 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650706130665881600](https://t.me/ferretman/2115)
-- [MediaHi! I’ve hidden most of my toys, can I have more please? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/650785326743306240](https://t.me/ferretman/2114)
+- [vet-and-wild:A very happy Ravvia Ferret Story https://scrisoridemai.tumblr.com/post/650807985273241600](https://t.me/ferretman/2125)
+- [thelifeofmyferrets:MediaStop. Drop. And Roll.via Ferret Story https://prettypeterparkr.tumblr.com/post/650807953052565504](https://t.me/ferretman/2124)
+- [MediaI LOVE when they’re in a deep sleep but it looks like they were in a car accident. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post...](https://t.me/ferretman/2123)
+- [MediaWhen you accidentally open the front camera.. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650796725692416000](https://t.me/ferretman/2122)
+- [MediaAlways sleeping with a paw out : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650796726111862784](https://t.me/ferretman/2121)
 <!-- TELEGRAM:END -->
