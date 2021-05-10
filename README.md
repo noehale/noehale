@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [mr-mononucleosis:lunalovegouda:The intro cards for Futurama have always been one of my favorite parts of the show because people always talk about the...](https://t.me/ferretman/2101)
-- [via Ferret Story https://babyiwannaknow.tumblr.com/post/650706137584418816](https://t.me/ferretman/2100)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediaicecoldfrost:catsbeaversandducks:Cat Circles, the amazing phenomenon in which a cat will deliberatel...](https://t.me/ferretman/2099)
-- [MediaWho needs a bed when you have a rice box? 😴 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650706130665881600](https://t.me/ferretman/2098)
-- [composerinprogress:Hey now, you’re an all starlisten to what I orchestratedSoundCloudYouTubeInstagram (mine, not a repost)via Ferret Story https://fa...](https://t.me/ferretman/2097)
+- [MediaSharing water with my noodle! Loki always gets in my cups of water 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/65074003429...](https://t.me/ferretman/2109)
+- [welele:No me quedan calipos ninio, solo masibón.via Ferret Story https://falalamingo.tumblr.com/post/650736332676677632](https://t.me/ferretman/2108)
+- [MediaI basically cried today when these two finally reunited after Daxter was in quarantine for 4 weeks. Nova (white) was quick to provide cuddles/gro...](https://t.me/ferretman/2107)
+- [MediaMy little Athena passed away today : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650736268189351936](https://t.me/ferretman/2106)
+- [deceive:me not understanding a movie: wow… the cinnamon tographyvia Ferret Story https://xxcrybby.tumblr.com/post/650736268195577856](https://t.me/ferretman/2105)
 <!-- TELEGRAM:END -->
