@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaSharing water with my noodle! Loki always gets in my cups of water 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/65074003429...](https://t.me/ferretman/2118)
+- [MediaI basically cried today when these two finally reunited after Daxter was in quarantine for 4 weeks. Nova (white) was quick to provide cuddles/gro...](https://t.me/ferretman/2117)
+- [mr-mononucleosis:lunalovegouda:The intro cards for Futurama have always been one of my favorite parts of the show because people always talk about the...](https://t.me/ferretman/2116)
+- [MediaWho needs a bed when you have a rice box? 😴 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650706130665881600](https://t.me/ferretman/2115)
 - [MediaHi! I’ve hidden most of my toys, can I have more please? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/650785326743306240](https://t.me/ferretman/2114)
-- [MediaI had to put a pee pad in their hammock so they don’t sleep on the ones meant for going potty in. They quit play time to go lay in it… : ferret...](https://t.me/ferretman/2113)
-- [MediaMy pretty boy 😍via Ferret Story https://just-a-catastrophy.tumblr.com/post/650751365666291712](https://t.me/ferretman/2112)
-- [sm980:popop-maru:beaniebabyoftheday:clover:beaniebabyoftheday:i’m thinking about her……..who?her………MediaMediaMediaShe’s thinking about you too…...](https://t.me/ferretman/2111)
-- [MediaFewix ❤via Ferret Story https://prettypeterparkr.tumblr.com/post/650747580908748800](https://t.me/ferretman/2110)
 <!-- TELEGRAM:END -->
