@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaI had to put a pee pad in their hammock so they don’t sleep on the ones meant for going potty in. They quit play time to go lay in it… : ferret...](https://t.me/ferretman/2113)
+- [MediaMy pretty boy 😍via Ferret Story https://just-a-catastrophy.tumblr.com/post/650751365666291712](https://t.me/ferretman/2112)
+- [sm980:popop-maru:beaniebabyoftheday:clover:beaniebabyoftheday:i’m thinking about her……..who?her………MediaMediaMediaShe’s thinking about you too…...](https://t.me/ferretman/2111)
+- [MediaFewix ❤via Ferret Story https://prettypeterparkr.tumblr.com/post/650747580908748800](https://t.me/ferretman/2110)
 - [MediaSharing water with my noodle! Loki always gets in my cups of water 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/65074003429...](https://t.me/ferretman/2109)
-- [welele:No me quedan calipos ninio, solo masibón.via Ferret Story https://falalamingo.tumblr.com/post/650736332676677632](https://t.me/ferretman/2108)
-- [MediaI basically cried today when these two finally reunited after Daxter was in quarantine for 4 weeks. Nova (white) was quick to provide cuddles/gro...](https://t.me/ferretman/2107)
-- [MediaMy little Athena passed away today : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650736268189351936](https://t.me/ferretman/2106)
-- [deceive:me not understanding a movie: wow… the cinnamon tographyvia Ferret Story https://xxcrybby.tumblr.com/post/650736268195577856](https://t.me/ferretman/2105)
 <!-- TELEGRAM:END -->
