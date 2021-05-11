@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [My Cat Will Die Without Surgery, organized by Trinity Fischer: sitara200: “My name is Trinity...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/2126)
-- [vet-and-wild:A very happy Ravvia Ferret Story https://scrisoridemai.tumblr.com/post/650807985273241600](https://t.me/ferretman/2125)
-- [thelifeofmyferrets:MediaStop. Drop. And Roll.via Ferret Story https://prettypeterparkr.tumblr.com/post/650807953052565504](https://t.me/ferretman/2124)
-- [MediaI LOVE when they’re in a deep sleep but it looks like they were in a car accident. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post...](https://t.me/ferretman/2123)
-- [MediaWhen you accidentally open the front camera.. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650796725692416000](https://t.me/ferretman/2122)
+- [Mediathe-book-ferret:Wasabi is sending love from the Mountain Burrow to anyone who needs it today. via Ferret Story https://scrisoridemai.tumblr.com/...](https://t.me/ferretman/2134)
+- [Mediabob-artist:delphina2k:beepost-generator:mango-werm:MediaYOU SHAVED THEM?!?@bob-artistTheir true form :Ovia Ferret Story https://prettypeterparkr....](https://t.me/ferretman/2133)
+- [MediaHappy national ferret day from Toast and her brothers Shawn and Gus : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650830619104968...](https://t.me/ferretman/2132)
+- [MediaMy copilot this morning was especially cute… almost too cute! 😍😅 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/...](https://t.me/ferretman/2131)
+- [MediaHow Chester preferred to spend his walks. 💕 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650826980962549760](https://t.me/ferretman/2130)
 <!-- TELEGRAM:END -->
