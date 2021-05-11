@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [theferrets:unorthodox-views: ckascade: rotg-fan-page: xaramizomai: hope your pets stay healthy in...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/2146)
+- [i-am-fert:redbloodedamerica:MediaMediaoh there is a solution for that. get a fert and then you will find them all in one place. that place will be und...](https://t.me/ferretman/2145)
+- [MediaMeet Boba, no one wanted her due to a hip deformity making her nickname wigglebutt. She just recovered from a bad ear infection.via Ferret Story ...](https://t.me/ferretman/2144)
+- [MediaLizzie, Loda, Lester, and Louis : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650891024755982336](https://t.me/ferretman/2143)
 - [MediaTongue out tuesday : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650887342117339136](https://t.me/ferretman/2142)
-- [roman-sunshine:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/650887309967917056](https://t.me/ferretman/2141)
-- [MediaMediaMediadoodleofboredom:Oh, octopuses.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650887285929377792](https://t.me/ferretman/2140)
-- [Mediawhat’s it like living with two free roam ferrets you ask? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650887274421190657](https://t.me/ferretman/2139)
-- [MediaAlive and Well and Far Away From Drywall : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650887274427465728](https://t.me/ferretman/2138)
 <!-- TELEGRAM:END -->
