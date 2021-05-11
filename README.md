@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediathe-book-ferret:Wasabi is sending love from the Mountain Burrow to anyone who needs it today. via Ferret Story https://scrisoridemai.tumblr.com/...](https://t.me/ferretman/2134)
-- [Mediabob-artist:delphina2k:beepost-generator:mango-werm:MediaYOU SHAVED THEM?!?@bob-artistTheir true form :Ovia Ferret Story https://prettypeterparkr....](https://t.me/ferretman/2133)
-- [MediaHappy national ferret day from Toast and her brothers Shawn and Gus : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650830619104968...](https://t.me/ferretman/2132)
-- [MediaMy copilot this morning was especially cute… almost too cute! 😍😅 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/...](https://t.me/ferretman/2131)
-- [MediaHow Chester preferred to spend his walks. 💕 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650826980962549760](https://t.me/ferretman/2130)
+- [MediaSharing water with my noodle! Loki always gets in my cups of water 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/65074003429...](https://t.me/ferretman/2118)
+- [MediaI basically cried today when these two finally reunited after Daxter was in quarantine for 4 weeks. Nova (white) was quick to provide cuddles/gro...](https://t.me/ferretman/2117)
+- [mr-mononucleosis:lunalovegouda:The intro cards for Futurama have always been one of my favorite parts of the show because people always talk about the...](https://t.me/ferretman/2116)
+- [MediaWho needs a bed when you have a rice box? 😴 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650706130665881600](https://t.me/ferretman/2115)
+- [MediaHi! I’ve hidden most of my toys, can I have more please? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/650785326743306240](https://t.me/ferretman/2114)
 <!-- TELEGRAM:END -->
