@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/650845725521051648](https://t.me/ferretman/2136)
-- [Humans' Use Of Pain-Relief Creams Proves Fatal To Felines:...via Ferret Story https://just-a-catastrophy.tumblr.com/post/650842007608147968](https://t.me/ferretman/2135)
-- [Mediathe-book-ferret:Wasabi is sending love from the Mountain Burrow to anyone who needs it today. via Ferret Story https://scrisoridemai.tumblr.com/...](https://t.me/ferretman/2134)
-- [Mediabob-artist:delphina2k:beepost-generator:mango-werm:MediaYOU SHAVED THEM?!?@bob-artistTheir true form :Ovia Ferret Story https://prettypeterparkr....](https://t.me/ferretman/2133)
-- [MediaHappy national ferret day from Toast and her brothers Shawn and Gus : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650830619104968...](https://t.me/ferretman/2132)
+- [MediaTongue out tuesday : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650887342117339136](https://t.me/ferretman/2142)
+- [roman-sunshine:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/650887309967917056](https://t.me/ferretman/2141)
+- [MediaMediaMediadoodleofboredom:Oh, octopuses.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650887285929377792](https://t.me/ferretman/2140)
+- [Mediawhat’s it like living with two free roam ferrets you ask? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650887274421190657](https://t.me/ferretman/2139)
+- [MediaAlive and Well and Far Away From Drywall : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650887274427465728](https://t.me/ferretman/2138)
 <!-- TELEGRAM:END -->
