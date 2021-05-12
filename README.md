@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [paininmyheart-imalive:THERES MORE THIS POST JUST KEEPS GETTING BETTER 😂😂😂ladyshinga:Media(source)callmebliss:Can haz snackytreatnotcaycepolla...](https://t.me/ferretman/2157)
-- [jadefyre:technicallity:sometimes I wanna reply “bitch me too” to my mutuals posts but I’ve never talked 2 them so they might not see it as friendly...](https://t.me/ferretman/2156)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/650932596114636800](https://t.me/ferretman/2155)
-- [Why You Should Leave the Leaves:typhlonectes:Savvy gardeners know that keeping fallen leaves on their property benefits wildlife and the environmentIT...](https://t.me/ferretman/2154)
-- [MediaMediabob-artist:I really hope my neighbors can’t hear me in my unit, because if they can, today they got an exceptionally robust and annoying ve...](https://t.me/ferretman/2153)
+- [MediaMy squeaky treasure attttaaaaacccckkkk! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650981611559632896](https://t.me/ferretman/2163)
+- [imherongraystairstrash:acupofteaandmore:if i ever misgender you or use slang (bro, man, gurl, dude) that makes you feel even slightly uncomfortable pl...](https://t.me/ferretman/2162)
+- [MediaAlways brothers awake or asleep.via Ferret Story https://babyiwannaknow.tumblr.com/post/650977880703172608](https://t.me/ferretman/2161)
+- [Mediamy little goofball 👅 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650977872700407808](https://t.me/ferretman/2160)
+- [Mediadaddyhyperion:mygoldengeist:the-archetype-of-civilization:askstarliner:This is real film of a real ghostJESUS FUCK. GET THE GHOSTBUSTERS.you can...](https://t.me/ferretman/2159)
 <!-- TELEGRAM:END -->
