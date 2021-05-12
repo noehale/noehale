@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [paininmyheart-imalive:THERES MORE THIS POST JUST KEEPS GETTING BETTER 😂😂😂ladyshinga:Media(source)callmebliss:Can haz snackytreatnotcaycepolla...](https://t.me/ferretman/2157)
 - [jadefyre:technicallity:sometimes I wanna reply “bitch me too” to my mutuals posts but I’ve never talked 2 them so they might not see it as friendly...](https://t.me/ferretman/2156)
 - [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/650932596114636800](https://t.me/ferretman/2155)
 - [Why You Should Leave the Leaves:typhlonectes:Savvy gardeners know that keeping fallen leaves on their property benefits wildlife and the environmentIT...](https://t.me/ferretman/2154)
 - [MediaMediabob-artist:I really hope my neighbors can’t hear me in my unit, because if they can, today they got an exceptionally robust and annoying ve...](https://t.me/ferretman/2153)
+- [Mediar/theferrettrapisworking : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650921218655027201](https://t.me/ferretman/2152)
 <!-- TELEGRAM:END -->
