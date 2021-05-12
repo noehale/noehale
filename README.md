@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [theferrets:unorthodox-views: ckascade: rotg-fan-page: xaramizomai: hope your pets stay healthy in...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/2146)
-- [i-am-fert:redbloodedamerica:MediaMediaoh there is a solution for that. get a fert and then you will find them all in one place. that place will be und...](https://t.me/ferretman/2145)
-- [MediaMeet Boba, no one wanted her due to a hip deformity making her nickname wigglebutt. She just recovered from a bad ear infection.via Ferret Story ...](https://t.me/ferretman/2144)
-- [MediaLizzie, Loda, Lester, and Louis : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650891024755982336](https://t.me/ferretman/2143)
-- [MediaTongue out tuesday : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650887342117339136](https://t.me/ferretman/2142)
+- [Mediar/theferrettrapisworking : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650921218655027201](https://t.me/ferretman/2152)
+- [MediaI can’t stop posting ferret photos (fotos!!) : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650917526138683392](https://t.me/ferretman/2151)
+- [MediaI spiked his fur! 😂❤ : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650917515481006080](https://t.me/ferretman/2150)
+- [MediaI couldn’t resist. Hes in dead sleep and his tongue and teefs were too tempting to ignore. : ferretsvia Ferret Story https://somewhere-inthe-dee...](https://t.me/ferretman/2149)
+- [Mediagaycomicsnshit:emir-dynamite:sharkchunks:iandsharman:notahoe:my type of public transportation “Why were you late in today?”“Oh, I got tied up...](https://t.me/ferretman/2148)
 <!-- TELEGRAM:END -->
