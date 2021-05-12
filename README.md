@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediathatweirdferretlady:What’s the password?via Ferret Story https://scrisoridemai.tumblr.com/post/650989164449415168](https://t.me/ferretman/2165)
+- [MediaIts gus. Short for asparagus. : ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/650989164417957888](https://t.me/ferretman/2164)
 - [MediaMy squeaky treasure attttaaaaacccckkkk! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650981611559632896](https://t.me/ferretman/2163)
 - [imherongraystairstrash:acupofteaandmore:if i ever misgender you or use slang (bro, man, gurl, dude) that makes you feel even slightly uncomfortable pl...](https://t.me/ferretman/2162)
 - [MediaAlways brothers awake or asleep.via Ferret Story https://babyiwannaknow.tumblr.com/post/650977880703172608](https://t.me/ferretman/2161)
-- [Mediamy little goofball 👅 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650977872700407808](https://t.me/ferretman/2160)
-- [Mediadaddyhyperion:mygoldengeist:the-archetype-of-civilization:askstarliner:This is real film of a real ghostJESUS FUCK. GET THE GHOSTBUSTERS.you can...](https://t.me/ferretman/2159)
 <!-- TELEGRAM:END -->
