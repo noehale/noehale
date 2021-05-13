@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaLucky sleeping on my feet. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651026905931366400](https://t.me/ferretman/2175)
+- [because-its-warm: sandersstudies: veganconnor: things that made me stop wanting to die that...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/2174)
+- [via Ferret Story https://prettypeterparkr.tumblr.com/post/651019430430752768](https://t.me/ferretman/2173)
+- [vet-and-wild:Weasel war dance!via Ferret Story https://scrisoridemai.tumblr.com/post/651019400126889984](https://t.me/ferretman/2172)
 - [mistergoodkat:bobby: your house is blue and grey now antoni: do you like diptan: patterned shirt, french tuckjonathan: literally just wash your facek...](https://t.me/ferretman/2171)
-- [Media❤️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651008179592986624](https://t.me/ferretman/2170)
-- [cateyedcrow:shakespork:shakespork:shakespork:it’s always “this doll is haunted and is ominously shattering the china” and never “how can I provide...](https://t.me/ferretman/2169)
-- [MediaI was getting on her last nerve here during her 4th AM nap : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651008147335643136](https://t.me/ferretman/2168)
-- [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets:joyeuse-noelle:burntcopper:There is nothing about this title I do...](https://t.me/ferretman/2167)
 <!-- TELEGRAM:END -->
