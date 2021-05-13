@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaTongue out tuesday : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/650887342117339136](https://t.me/ferretman/2142)
-- [roman-sunshine:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/650887309967917056](https://t.me/ferretman/2141)
-- [MediaMediaMediadoodleofboredom:Oh, octopuses.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/650887285929377792](https://t.me/ferretman/2140)
-- [Mediawhat’s it like living with two free roam ferrets you ask? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/650887274421190657](https://t.me/ferretman/2139)
-- [MediaAlive and Well and Far Away From Drywall : ferretsvia Ferret Story https://redzgn.tumblr.com/post/650887274427465728](https://t.me/ferretman/2138)
+- [MediaLucky sleeping on my feet. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651026905931366400](https://t.me/ferretman/2175)
+- [because-its-warm: sandersstudies: veganconnor: things that made me stop wanting to die that...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/2174)
+- [via Ferret Story https://prettypeterparkr.tumblr.com/post/651019430430752768](https://t.me/ferretman/2173)
+- [vet-and-wild:Weasel war dance!via Ferret Story https://scrisoridemai.tumblr.com/post/651019400126889984](https://t.me/ferretman/2172)
+- [mistergoodkat:bobby: your house is blue and grey now antoni: do you like diptan: patterned shirt, french tuckjonathan: literally just wash your facek...](https://t.me/ferretman/2171)
 <!-- TELEGRAM:END -->
