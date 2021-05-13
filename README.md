@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaDoes anyone else’s Ferrets love to lick? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651057117443293184](https://t.me/ferretman/2176)
 - [MediaLucky sleeping on my feet. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651026905931366400](https://t.me/ferretman/2175)
 - [because-its-warm: sandersstudies: veganconnor: things that made me stop wanting to die that...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/2174)
 - [via Ferret Story https://prettypeterparkr.tumblr.com/post/651019430430752768](https://t.me/ferretman/2173)
 - [vet-and-wild:Weasel war dance!via Ferret Story https://scrisoridemai.tumblr.com/post/651019400126889984](https://t.me/ferretman/2172)
-- [mistergoodkat:bobby: your house is blue and grey now antoni: do you like diptan: patterned shirt, french tuckjonathan: literally just wash your facek...](https://t.me/ferretman/2171)
 <!-- TELEGRAM:END -->
