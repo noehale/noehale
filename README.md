@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaDoes anyone else’s Ferrets love to lick? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651057117443293184](https://t.me/ferretman/2176)
-- [MediaLucky sleeping on my feet. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651026905931366400](https://t.me/ferretman/2175)
-- [because-its-warm: sandersstudies: veganconnor: things that made me stop wanting to die that...via Ferret Story https://just-a-catastrophy.tumblr.com/p...](https://t.me/ferretman/2174)
-- [via Ferret Story https://prettypeterparkr.tumblr.com/post/651019430430752768](https://t.me/ferretman/2173)
-- [vet-and-wild:Weasel war dance!via Ferret Story https://scrisoridemai.tumblr.com/post/651019400126889984](https://t.me/ferretman/2172)
+- [Mediathis is what ferrets seevia Ferret Story https://just-a-catastrophy.tumblr.com/post/651083654340149248](https://t.me/ferretman/2185)
+- [via Ferret Story https://prettypeterparkr.tumblr.com/post/651079797223604225](https://t.me/ferretman/2184)
+- [vet-and-wild:Evolution hit its peak with ferrets there’s no need for further improvementsvia Ferret Story https://scrisoridemai.tumblr.com/post/65107...](https://t.me/ferretman/2183)
+- [MediaGus is confused : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651072213267742720](https://t.me/ferretman/2182)
+- [Mediagoodnight from slinky : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651068512699285504](https://t.me/ferretman/2181)
 <!-- TELEGRAM:END -->
