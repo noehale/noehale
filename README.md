@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediathatweirdferretlady:What’s the password?via Ferret Story https://scrisoridemai.tumblr.com/post/650989164449415168](https://t.me/ferretman/2165)
-- [MediaIts gus. Short for asparagus. : ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/650989164417957888](https://t.me/ferretman/2164)
-- [MediaMy squeaky treasure attttaaaaacccckkkk! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/650981611559632896](https://t.me/ferretman/2163)
-- [imherongraystairstrash:acupofteaandmore:if i ever misgender you or use slang (bro, man, gurl, dude) that makes you feel even slightly uncomfortable pl...](https://t.me/ferretman/2162)
-- [MediaAlways brothers awake or asleep.via Ferret Story https://babyiwannaknow.tumblr.com/post/650977880703172608](https://t.me/ferretman/2161)
+- [mistergoodkat:bobby: your house is blue and grey now antoni: do you like diptan: patterned shirt, french tuckjonathan: literally just wash your facek...](https://t.me/ferretman/2171)
+- [Media❤️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651008179592986624](https://t.me/ferretman/2170)
+- [cateyedcrow:shakespork:shakespork:shakespork:it’s always “this doll is haunted and is ominously shattering the china” and never “how can I provide...](https://t.me/ferretman/2169)
+- [MediaI was getting on her last nerve here during her 4th AM nap : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651008147335643136](https://t.me/ferretman/2168)
+- [US government plans to use drones to fire vaccine-laced M&Ms near endangered ferrets:joyeuse-noelle:burntcopper:There is nothing about this title I do...](https://t.me/ferretman/2167)
 <!-- TELEGRAM:END -->
