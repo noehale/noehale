@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [derpycats:2-hit K.O.via Ferret Story https://punkrocknat.tumblr.com/post/651147691920850944](https://t.me/ferretman/2196)
-- [thelifeofmyferrets:iwatobigreg:mothmaam:panicatthepilotsinbeaconhills:mothmaam:MediaOriginally posted by hechosastrologicosis your name snowman?AnnaMe...](https://t.me/ferretman/2195)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/651113771087134720](https://t.me/ferretman/2194)
-- [pisswolf:ultrabeast05:OK EVERYBODY SHUT UP AND FOCUS ON WHAT’S REALLY IMPORTANTMediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/65111...](https://t.me/ferretman/2193)
-- [meladoodle:*forgets what im talking about halfway through a sentence*via Ferret Story https://prettypeterparkr.tumblr.com/post/651109968034103296](https://t.me/ferretman/2192)
+- [<a href="https://64.media.tumblr.com/c1fc6391bd49f04ccb6706bec05c653b/tumblr_mxcfm2R7iu1rhavdko1_500.png">Media</a><a href="https://mjaydziarand.tumbl...](https://t.me/ferretman/2210)
+- [MediaNewest Babyvia Ferret Story https://scrisoridemai.tumblr.com/post/651170371165470720](https://t.me/ferretman/2209)
+- [Mediaball in a peanut jar? 10/10 ferret toy : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651162813932470272](https://t.me/ferretman/2208)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediafernlom:teadalek:HAPPY LAO BAN SANTA DAYI 100% support this it’s awesomevia Ferret Story https://so...](https://t.me/ferretman/2207)
+- [truestoriesaboutme:ravenslunas:i hate how reward systems never work for me like i can’t just say “if i finish this assignment i can have a cookie” ...](https://t.me/ferretman/2206)
 <!-- TELEGRAM:END -->
