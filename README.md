@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediakarinyamasaki:Veins, 2013; Embroidery thread on leaf, 2 hours and 53 minutes. (by Karin Yamasaki)Facebook | Flickr | DeviantARTvia Ferret ...](https://t.me/ferretman/2221)
-- [MediaThey are not always like this I swear 😓. They told me not to post about when they bite my feet :(via Ferret Story https://just-a-catastrophy.t...](https://t.me/ferretman/2220)
-- [cannonball-the-ferret:shartgod420:you guys know what’s super important?MediaMediaMediaMediaMediaMediaMediabee buttsMediaCouldn’t help but add Bumble...](https://t.me/ferretman/2219)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/651200570383859712](https://t.me/ferretman/2218)
-- [MediaMolly’s little baby hops : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651193015830986752](https://t.me/ferretman/2217)
+- [Mediamerlin:jennhasablog:whippit-princess:lasso:Guys seriously would you LOOK at mini Adam Scott from Boy Meets World circa 1994was this when he was m...](https://t.me/ferretman/2239)
+- [elvenferretots:MediaThey’re affectionate,MediaAnd playful,MediaSilly,MediaAnd clever,MediaTenacious little thieves,MediaAnd clumsy as all hell.MediaS...](https://t.me/ferretman/2238)
+- [MediaThis sweet, handsome, blind and deaf, senior ferret was surrendered bc his owners no longer wanted him. This was his first time outside.. his fir...](https://t.me/ferretman/2237)
+- [MediaSorry human, your bed is mine now 🦝 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651238321391075328](https://t.me/ferretman/2236)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/651200570383859712](https://t.me/ferretman/2235)
 <!-- TELEGRAM:END -->
