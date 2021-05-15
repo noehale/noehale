@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [<a href="https://64.media.tumblr.com/c1fc6391bd49f04ccb6706bec05c653b/tumblr_mxcfm2R7iu1rhavdko1_500.png">Media</a><a href="https://mjaydziarand.tumbl...](https://t.me/ferretman/2210)
-- [MediaNewest Babyvia Ferret Story https://scrisoridemai.tumblr.com/post/651170371165470720](https://t.me/ferretman/2209)
-- [Mediaball in a peanut jar? 10/10 ferret toy : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651162813932470272](https://t.me/ferretman/2208)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediafernlom:teadalek:HAPPY LAO BAN SANTA DAYI 100% support this it’s awesomevia Ferret Story https://so...](https://t.me/ferretman/2207)
-- [truestoriesaboutme:ravenslunas:i hate how reward systems never work for me like i can’t just say “if i finish this assignment i can have a cookie” ...](https://t.me/ferretman/2206)
+- [MediaDo not disturb my slumber 😂 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651189376257310720](https://t.me/ferretman/2216)
+- [MediaGhost face killah catching some zzzzzzz : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651189376658882560](https://t.me/ferretman/2215)
+- [MediaFerrets in the Morning p.2 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651189376563527681](https://t.me/ferretman/2214)
+- [MediaIt wasn’t me! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651189376343293952](https://t.me/ferretman/2213)
+- [catsindoors:“Am I a bad pet owner?”In my opinion what makes a bad pet owner is not what we’ve done, we all start somewhere, we all make mistakes. N...](https://t.me/ferretman/2212)
 <!-- TELEGRAM:END -->
