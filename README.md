@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediamerlin:jennhasablog:whippit-princess:lasso:Guys seriously would you LOOK at mini Adam Scott from Boy Meets World circa 1994was this when he was m...](https://t.me/ferretman/2239)
-- [elvenferretots:MediaThey’re affectionate,MediaAnd playful,MediaSilly,MediaAnd clever,MediaTenacious little thieves,MediaAnd clumsy as all hell.MediaS...](https://t.me/ferretman/2238)
-- [MediaThis sweet, handsome, blind and deaf, senior ferret was surrendered bc his owners no longer wanted him. This was his first time outside.. his fir...](https://t.me/ferretman/2237)
-- [MediaSorry human, your bed is mine now 🦝 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651238321391075328](https://t.me/ferretman/2236)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/651200570383859712](https://t.me/ferretman/2235)
+- [MediaMediaMediaMediaMediaMediaMediaMediasefuns:Baekhyun being extra during ‘RAINISM’ + poor Minho // 170114 GDA↳ (video: meraphic)via Ferret Story ...](https://t.me/ferretman/2245)
+- [MediaCatching zzz’s after a good playtime sessionvia Ferret Story https://prettypeterparkr.tumblr.com/post/651260978255757312](https://t.me/ferretman/2244)
+- [Mediatheferrets:ultra-firelily:fandomlife-universe:What is it?A butterfly. What does that get me?I now have ferret powersvia Ferret Story https://scri...](https://t.me/ferretman/2243)
+- [MediaWho stole Lucy’s toy? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651249728949993472](https://t.me/ferretman/2242)
+- [MediaLittle ferret, big world. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651249721207390209](https://t.me/ferretman/2241)
 <!-- TELEGRAM:END -->
