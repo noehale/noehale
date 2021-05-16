@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaamnhnyc:Did you know? 👀 The blue-eyed black lemur (Eulemur flavifrons) is the only primate, other than humans, to consistently have blue eyes,...](https://t.me/ferretman/2248)
-- [MediaI think it’s safe to they like their new bed. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651279862900867073](https://t.me/ferretman/2247)
-- [MediaFinally Back Together : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651279862900867072](https://t.me/ferretman/2246)
-- [MediaMediaMediaMediaMediaMediaMediaMediasefuns:Baekhyun being extra during ‘RAINISM’ + poor Minho // 170114 GDA↳ (video: meraphic)via Ferret Story ...](https://t.me/ferretman/2245)
-- [MediaCatching zzz’s after a good playtime sessionvia Ferret Story https://prettypeterparkr.tumblr.com/post/651260978255757312](https://t.me/ferretman/2244)
+- [Mediakarinyamasaki:Veins, 2013; Embroidery thread on leaf, 2 hours and 53 minutes. (by Karin Yamasaki)Facebook | Flickr | DeviantARTvia Ferret ...](https://t.me/ferretman/2221)
+- [MediaThey are not always like this I swear 😓. They told me not to post about when they bite my feet :(via Ferret Story https://just-a-catastrophy.t...](https://t.me/ferretman/2220)
+- [cannonball-the-ferret:shartgod420:you guys know what’s super important?MediaMediaMediaMediaMediaMediaMediabee buttsMediaCouldn’t help but add Bumble...](https://t.me/ferretman/2219)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/651200570383859712](https://t.me/ferretman/2218)
+- [MediaMolly’s little baby hops : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651193015830986752](https://t.me/ferretman/2217)
 <!-- TELEGRAM:END -->
