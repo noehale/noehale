@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaScarlett loves to take the liners out of the boots. And this is normal freedom from the cage crazinessvia Ferret Story https://just-a-catastrophy...](https://t.me/ferretman/2254)
-- [MediaI’m not sure how he sleeps like this.via Ferret Story https://prettypeterparkr.tumblr.com/post/651291205588664320](https://t.me/ferretman/2253)
 - [MediaMediaMediaMediaMediaMediatheferrets:Guys. We just got a tonne of snow, and Niku is so excited. Well that makes one of us! via Ferret Story https...](https://t.me/ferretman/2252)
 - [MediaMy fettuccine mocking me after he tipped his water bowl over and soaking his whole cage. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com...](https://t.me/ferretman/2251)
 - [MediaMy first full day with Zuko and Azula! Zuko loves jumping!via Ferret Story https://babyiwannaknow.tumblr.com/post/651279883492802560](https://t.me/ferretman/2250)
+- [MediaResetti popping up to remind you to save your game! : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651279862913482752](https://t.me/ferretman/2249)
+- [Mediaamnhnyc:Did you know? 👀 The blue-eyed black lemur (Eulemur flavifrons) is the only primate, other than humans, to consistently have blue eyes,...](https://t.me/ferretman/2248)
 <!-- TELEGRAM:END -->
