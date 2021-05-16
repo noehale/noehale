@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaamnhnyc:Did you know? 👀 The blue-eyed black lemur (Eulemur flavifrons) is the only primate, other than humans, to consistently have blue eyes,...](https://t.me/ferretman/2248)
+- [MediaI think it’s safe to they like their new bed. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651279862900867073](https://t.me/ferretman/2247)
+- [MediaFinally Back Together : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651279862900867072](https://t.me/ferretman/2246)
 - [MediaMediaMediaMediaMediaMediaMediaMediasefuns:Baekhyun being extra during ‘RAINISM’ + poor Minho // 170114 GDA↳ (video: meraphic)via Ferret Story ...](https://t.me/ferretman/2245)
 - [MediaCatching zzz’s after a good playtime sessionvia Ferret Story https://prettypeterparkr.tumblr.com/post/651260978255757312](https://t.me/ferretman/2244)
-- [Mediatheferrets:ultra-firelily:fandomlife-universe:What is it?A butterfly. What does that get me?I now have ferret powersvia Ferret Story https://scri...](https://t.me/ferretman/2243)
-- [MediaWho stole Lucy’s toy? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651249728949993472](https://t.me/ferretman/2242)
-- [MediaLittle ferret, big world. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651249721207390209](https://t.me/ferretman/2241)
 <!-- TELEGRAM:END -->
