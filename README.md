@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [<a href="https://64.media.tumblr.com/9c8501b8dc8f52310ef2287d3e3c0b8c/tumblr_n2utpvHl231rkygemo1_500.png">Media</a><a href="https://friendlyneighborho...](https://t.me/ferretman/2285)
+- [elvenferretots:MediaThey’re affectionate,MediaAnd playful,MediaSilly,MediaAnd clever,MediaTenacious little thieves,MediaAnd clumsy as all hell.MediaS...](https://t.me/ferretman/2284)
+- [MediaMy ferret Tazz loves to sleep in the bed with us like thisvia Ferret Story https://prettypeterparkr.tumblr.com/post/651442168232312832](https://t.me/ferretman/2283)
 - [MediaShe does NOT like the harness! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651434615147495424](https://t.me/ferretman/2282)
 - [MediaSleepy pebbles 😴 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651430945144094720](https://t.me/ferretman/2281)
-- [MediaI came across this story about a group attempting to bring back wild ferrets from near extinction in America! : ferretsvia Ferret Story https://f...](https://t.me/ferretman/2280)
-- [MediaEvery business needs an Ivory Tower : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651430865216356354](https://t.me/ferretman/2279)
-- [MediaHE’S SO CHONKY : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651430865205886976](https://t.me/ferretman/2278)
 <!-- TELEGRAM:END -->
