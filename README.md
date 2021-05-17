@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediarori sound asleep with his toy 🧸 while I on the other hand cannot get a wink of Zzz’s : ferretsvia Ferret Story https://punkrocknat.tumblr.co...](https://t.me/ferretman/2275)
-- [MediaMeet my ferocious ferret, Adelaidevia Ferret Story https://just-a-catastrophy.tumblr.com/post/651385544201371648](https://t.me/ferretman/2274)
-- [MediaJust ferrets thingsvia Ferret Story https://prettypeterparkr.tumblr.com/post/651381770057580544](https://t.me/ferretman/2273)
-- [thatweirdferretlady:shaynethechangingman:pixels-after-dark:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious v...](https://t.me/ferretman/2272)
-- [MediaPeanut playing fetch! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651374236881092608](https://t.me/ferretman/2271)
+- [MediaShe does NOT like the harness! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651434615147495424](https://t.me/ferretman/2282)
+- [MediaSleepy pebbles 😴 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651430945144094720](https://t.me/ferretman/2281)
+- [MediaI came across this story about a group attempting to bring back wild ferrets from near extinction in America! : ferretsvia Ferret Story https://f...](https://t.me/ferretman/2280)
+- [MediaEvery business needs an Ivory Tower : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651430865216356354](https://t.me/ferretman/2279)
+- [MediaHE’S SO CHONKY : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651430865205886976](https://t.me/ferretman/2278)
 <!-- TELEGRAM:END -->
