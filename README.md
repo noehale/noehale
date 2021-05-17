@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [foxgal:bugpussy:foxgal:hey pals whats upaaaaaaAAAAAAAAAAAAAAAAAAMediashut upMediavia Ferret Story https://punkrocknat.tumblr.com/post/651328911934980...](https://t.me/ferretman/2256)
-- [Mediaparkour 😂 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651298745447825408](https://t.me/ferretman/2255)
-- [MediaScarlett loves to take the liners out of the boots. And this is normal freedom from the cage crazinessvia Ferret Story https://just-a-catastrophy...](https://t.me/ferretman/2254)
-- [MediaI’m not sure how he sleeps like this.via Ferret Story https://prettypeterparkr.tumblr.com/post/651291205588664320](https://t.me/ferretman/2253)
-- [MediaMediaMediaMediaMediaMediatheferrets:Guys. We just got a tonne of snow, and Niku is so excited. Well that makes one of us! via Ferret Story https...](https://t.me/ferretman/2252)
+- [Mediarori sound asleep with his toy 🧸 while I on the other hand cannot get a wink of Zzz’s : ferretsvia Ferret Story https://punkrocknat.tumblr.co...](https://t.me/ferretman/2275)
+- [MediaMeet my ferocious ferret, Adelaidevia Ferret Story https://just-a-catastrophy.tumblr.com/post/651385544201371648](https://t.me/ferretman/2274)
+- [MediaJust ferrets thingsvia Ferret Story https://prettypeterparkr.tumblr.com/post/651381770057580544](https://t.me/ferretman/2273)
+- [thatweirdferretlady:shaynethechangingman:pixels-after-dark:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious v...](https://t.me/ferretman/2272)
+- [MediaPeanut playing fetch! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651374236881092608](https://t.me/ferretman/2271)
 <!-- TELEGRAM:END -->
