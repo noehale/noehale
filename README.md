@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaJust let me sleeepvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651355354645594112](https://t.me/ferretman/2265)
-- [Mediathatweirdferretlady:What’s the password?via Ferret Story https://prettypeterparkr.tumblr.com/post/651351579445821440](https://t.me/ferretman/2264)
-- [domesticfanfic:Momo: Mom, can I help set up the Halloween decorations?Momo, 3 Seconds Later: NEVERMIND NEVERMIND NEVERMIND NEVERMIND NEVERMINDvia Ferr...](https://t.me/ferretman/2263)
-- [MediaFerret is protecting family by fighting with a Swiffer : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651343999072911360](https://t.me/ferretman/2262)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://babyiwannaknow.tumblr.com/post/651340303036497920](https://t.me/ferretman/2261)
+- [MediaMeet my ferocious ferret, Adelaidevia Ferret Story https://just-a-catastrophy.tumblr.com/post/651385544201371648](https://t.me/ferretman/2274)
+- [MediaJust ferrets thingsvia Ferret Story https://prettypeterparkr.tumblr.com/post/651381770057580544](https://t.me/ferretman/2273)
+- [thatweirdferretlady:shaynethechangingman:pixels-after-dark:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious v...](https://t.me/ferretman/2272)
+- [MediaPeanut playing fetch! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651374236881092608](https://t.me/ferretman/2271)
+- [Mediaferret-flops:citymod:mynewplaidpants:Jake Gyllenhaal and a ferretMediaomgvia Ferret Story https://babyiwannaknow.tumblr.com/post/6513705354842931...](https://t.me/ferretman/2270)
 <!-- TELEGRAM:END -->
