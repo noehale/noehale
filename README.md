@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [View this post on InstagramA post shared by カワウソ竹千代&葵🇯🇵ａｙａｋｏ (@ponchan918)shes-a-maslaniac:ashleyodette:beeslybee:*slams fist on th...](https://t.me/ferretman/2296)
 - [MediaI think Gretl likes the penthouse I made her 😂 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651479930076545024](https://t.me/ferretman/2295)
 - [MediaMediaMediatheferrets:thelifeofmyferrets:“Free Your Skin” Advertising Campaign for Schickgo here to see how they made these awesome ferret beard...](https://t.me/ferretman/2294)
 - [Media10am zoomies.via Ferret Story https://prettypeterparkr.tumblr.com/post/651472391641448448](https://t.me/ferretman/2293)
 - [wild-weasels:Toast likes to drink out of a spray bottle 💛via Ferret Story https://scrisoridemai.tumblr.com/post/651472359327498240](https://t.me/ferretman/2292)
-- [MediaStu as a baby & Stu today…he’s completely white. His color changed but he still cuddles the same :) : ferretsvia Ferret Story https://anasfalhh...](https://t.me/ferretman/2291)
 <!-- TELEGRAM:END -->
