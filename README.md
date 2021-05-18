@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [<a href="https://64.media.tumblr.com/9c8501b8dc8f52310ef2287d3e3c0b8c/tumblr_n2utpvHl231rkygemo1_500.png">Media</a><a href="https://friendlyneighborho...](https://t.me/ferretman/2285)
-- [elvenferretots:MediaThey’re affectionate,MediaAnd playful,MediaSilly,MediaAnd clever,MediaTenacious little thieves,MediaAnd clumsy as all hell.MediaS...](https://t.me/ferretman/2284)
-- [MediaMy ferret Tazz loves to sleep in the bed with us like thisvia Ferret Story https://prettypeterparkr.tumblr.com/post/651442168232312832](https://t.me/ferretman/2283)
-- [MediaShe does NOT like the harness! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651434615147495424](https://t.me/ferretman/2282)
-- [MediaSleepy pebbles 😴 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651430945144094720](https://t.me/ferretman/2281)
+- [MediaStu as a baby & Stu today…he’s completely white. His color changed but he still cuddles the same :) : ferretsvia Ferret Story https://anasfalhh...](https://t.me/ferretman/2291)
+- [MediaI submit for your consideration, Billy and his teefies. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651461164938723328](https://t.me/ferretman/2290)
+- [everythingfox:Face to face with a 90 year old turtle🎥: Nicholas Breauxvia Ferret Story https://redzgn.tumblr.com/post/651461164690243584](https://t.me/ferretman/2289)
+- [MediaAll folded up! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651461129534603264](https://t.me/ferretman/2288)
+- [Mediamayleeillustration:A rainy dayvia Ferret Story https://babyiwannaknow.tumblr.com/post/651461064288026624](https://t.me/ferretman/2287)
 <!-- TELEGRAM:END -->
