@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [View this post on InstagramA post shared by カワウソ竹千代&葵🇯🇵ａｙａｋｏ (@ponchan918)shes-a-maslaniac:ashleyodette:beeslybee:*slams fist on th...](https://t.me/ferretman/2296)
-- [MediaI think Gretl likes the penthouse I made her 😂 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651479930076545024](https://t.me/ferretman/2295)
-- [MediaMediaMediatheferrets:thelifeofmyferrets:“Free Your Skin” Advertising Campaign for Schickgo here to see how they made these awesome ferret beard...](https://t.me/ferretman/2294)
-- [Media10am zoomies.via Ferret Story https://prettypeterparkr.tumblr.com/post/651472391641448448](https://t.me/ferretman/2293)
-- [wild-weasels:Toast likes to drink out of a spray bottle 💛via Ferret Story https://scrisoridemai.tumblr.com/post/651472359327498240](https://t.me/ferretman/2292)
+- [MediaMediaMediapowertothecauliflower:Fergus has no plans of getting up todayvia Ferret Story https://just-a-catastrophy.tumblr.com/post/65153655120191...](https://t.me/ferretman/2305)
+- [MediaMediabob-artist:How ferrets climb stairs.via Ferret Story https://scrisoridemai.tumblr.com/post/651532770757214208](https://t.me/ferretman/2304)
+- [Media80% cuteness, 20% troublevia Ferret Story https://prettypeterparkr.tumblr.com/post/651532770733129728](https://t.me/ferretman/2303)
+- [MediaSomeone’s excited for Easter 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651525219167682560](https://t.me/ferretman/2302)
+- [MediaGet off my edibles : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651521494482141184](https://t.me/ferretman/2301)
 <!-- TELEGRAM:END -->
