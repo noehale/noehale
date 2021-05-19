@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaHe lays down and gives me this look when he wants me to come pet him lol : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/6515705550...](https://t.me/ferretman/2315)
+- [MediaFerrets wrestle. Ferrets play. Ferrets chase. We love our little guys!via Ferret Story https://just-a-catastrophy.tumblr.com/post/651566755485024...](https://t.me/ferretman/2314)
+- [thatweirdferretlady:cwote:You are NOT a burden for asking for help.You are NOT annoying when you ramble.You are NOT weird for crying for no reason.You...](https://t.me/ferretman/2313)
+- [MediaHis flexibility puts cats to shamevia Ferret Story https://prettypeterparkr.tumblr.com/post/651562960590946304](https://t.me/ferretman/2312)
 - [MediaMy peach and plum love their tubes : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651555432382496768](https://t.me/ferretman/2311)
-- [MediaLoony ft. her very manly owner in his pink dressing gown : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651551686345785345](https://t.me/ferretman/2310)
-- [Mediamy baby’s giving kissesvia Ferret Story https://babyiwannaknow.tumblr.com/post/651551683841851392](https://t.me/ferretman/2309)
-- [verylittlebird:a magician asks you to pick a card - any card, in fact. you do. they ask you to put the card back in the pack - anywhere in the pack, i...](https://t.me/ferretman/2308)
-- [thebootydiaries:me: i love this bandsomeone 30-40 years older than me: they’ve been around for awhile you just getting into them?me: why didn’t you ...](https://t.me/ferretman/2307)
 <!-- TELEGRAM:END -->
