@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediapowertothecauliflower:Fergus has no plans of getting up todayvia Ferret Story https://just-a-catastrophy.tumblr.com/post/65153655120191...](https://t.me/ferretman/2305)
-- [MediaMediabob-artist:How ferrets climb stairs.via Ferret Story https://scrisoridemai.tumblr.com/post/651532770757214208](https://t.me/ferretman/2304)
-- [Media80% cuteness, 20% troublevia Ferret Story https://prettypeterparkr.tumblr.com/post/651532770733129728](https://t.me/ferretman/2303)
-- [MediaSomeone’s excited for Easter 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651525219167682560](https://t.me/ferretman/2302)
-- [MediaGet off my edibles : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651521494482141184](https://t.me/ferretman/2301)
+- [MediaMy peach and plum love their tubes : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651555432382496768](https://t.me/ferretman/2311)
+- [MediaLoony ft. her very manly owner in his pink dressing gown : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651551686345785345](https://t.me/ferretman/2310)
+- [Mediamy baby’s giving kissesvia Ferret Story https://babyiwannaknow.tumblr.com/post/651551683841851392](https://t.me/ferretman/2309)
+- [verylittlebird:a magician asks you to pick a card - any card, in fact. you do. they ask you to put the card back in the pack - anywhere in the pack, i...](https://t.me/ferretman/2308)
+- [thebootydiaries:me: i love this bandsomeone 30-40 years older than me: they’ve been around for awhile you just getting into them?me: why didn’t you ...](https://t.me/ferretman/2307)
 <!-- TELEGRAM:END -->
