@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaOne of our fuzzies is a morning ferret. The other is not. Can you guess which is which? : ferretsvia Ferret Story https://punkrocknat.tumblr.com/...](https://t.me/ferretman/2316)
-- [MediaHe lays down and gives me this look when he wants me to come pet him lol : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/6515705550...](https://t.me/ferretman/2315)
-- [MediaFerrets wrestle. Ferrets play. Ferrets chase. We love our little guys!via Ferret Story https://just-a-catastrophy.tumblr.com/post/651566755485024...](https://t.me/ferretman/2314)
-- [thatweirdferretlady:cwote:You are NOT a burden for asking for help.You are NOT annoying when you ramble.You are NOT weird for crying for no reason.You...](https://t.me/ferretman/2313)
-- [MediaHis flexibility puts cats to shamevia Ferret Story https://prettypeterparkr.tumblr.com/post/651562960590946304](https://t.me/ferretman/2312)
+- [MediaSpoon hiding amongst the grocery bags. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651615797435891712](https://t.me/ferretman/2322)
+- [MediaSnacks?!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651612167993507840](https://t.me/ferretman/2321)
+- [Mediarori : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651612165074190336](https://t.me/ferretman/2320)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediagifsboom:Ferret gifsvia Ferret Story https://babyiwannaknow.tumblr.com/post/651612125171712000](https://t.me/ferretman/2319)
+- [MediaMy new baby girl…Xena❤️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651612125605871616](https://t.me/ferretman/2318)
 <!-- TELEGRAM:END -->
