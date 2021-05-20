@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediathatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on impulse. You are to...](https://t.me/ferretman/2325)
-- [Mediacats and ferretsvia Ferret Story https://prettypeterparkr.tumblr.com/post/651623342059716608](https://t.me/ferretman/2324)
-- [Mediacosidraws:fun little ferret commission!via Ferret Story https://scrisoridemai.tumblr.com/post/651623336112177153](https://t.me/ferretman/2323)
-- [MediaSpoon hiding amongst the grocery bags. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651615797435891712](https://t.me/ferretman/2322)
-- [MediaSnacks?!via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651612167993507840](https://t.me/ferretman/2321)
+- [via Ferret Story https://scrisoridemai.tumblr.com/post/651653583706669056](https://t.me/ferretman/2333)
+- [MediaThis is why I rescue 😍via Ferret Story https://prettypeterparkr.tumblr.com/post/651653560996691968](https://t.me/ferretman/2332)
+- [MediaIt’s Not Going to Happen Izzy : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651645990780190720](https://t.me/ferretman/2331)
+- [MediaMediavia Ferret Story https://babyiwannaknow.tumblr.com/post/651642329128681472](https://t.me/ferretman/2330)
+- [Media“oh hey, didn’t see you there” my photogenic boy : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651642271783124992](https://t.me/ferretman/2329)
 <!-- TELEGRAM:END -->
