@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediadooktrain:I found these old photos of baby Jack!via Ferret Story https://just-a-catastrophy.tumblr.com/post/651717731776872448](https://t.me/ferretman/2344)
-- [beaniebabyoftheday:i’m thinking about her……..via Ferret Story https://scrisoridemai.tumblr.com/post/651713945504251904](https://t.me/ferretman/2343)
-- [thelifeofmyferrets:MediaYesterday, Insight landed safely on mars. Today is Tilly’s birthday and she gets to spend it on Mars. Thank you @theferrets f...](https://t.me/ferretman/2342)
 - [Mediaboop : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651706432563118080](https://t.me/ferretman/2341)
 - [via Ferret Story https://babyiwannaknow.tumblr.com/post/651702683811627008](https://t.me/ferretman/2340)
+- [Mediathey played in there for like an hour 😂 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651702674227658752](https://t.me/ferretman/2339)
+- [Mediascottlava:“It’s a beautiful day in this neighborhood.”via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651702649699385344](https://t.me/ferretman/2338)
+- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://xxcrybby.tumblr.com/post/651702649533677568](https://t.me/ferretman/2337)
 <!-- TELEGRAM:END -->
