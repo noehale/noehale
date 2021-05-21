@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/2358)
-- [MediaFerret Snow Day ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651751702393995266](https://t.me/ferretman/2357)
-- [MediaHes wearing a Sombrerovia Ferret Story https://just-a-catastrophy.tumblr.com/post/651747987215810560](https://t.me/ferretman/2356)
-- [gothiccmlm:MediaMediareaction images!💖like or rb if you use please!💖via Ferret Story https://scrisoridemai.tumblr.com/post/651744189167681536](https://t.me/ferretman/2355)
-- [MediaWe love to digvia Ferret Story https://prettypeterparkr.tumblr.com/post/651744176397074432](https://t.me/ferretman/2354)
+- [Mediamisioandkinga:💕no offense but this is as beautiful as most masterpiece paintings 💕via Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/2370)
+- [MediaMy sweet angels (until they wake up)via Ferret Story https://prettypeterparkr.tumblr.com/post/651804551489437696](https://t.me/ferretman/2369)
+- [vferret:via Ferret Story https://scrisoridemai.tumblr.com/post/651804532486144000](https://t.me/ferretman/2368)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/651793292269436928](https://t.me/ferretman/2367)
+- [MediaActual footage of Mars Rover making first contact with natives : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651793291451449344](https://t.me/ferretman/2366)
 <!-- TELEGRAM:END -->
