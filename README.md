@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaboop : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651706432563118080](https://t.me/ferretman/2347)
-- [MediaIt’s Not Going to Happen Izzy : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651645990780190720](https://t.me/ferretman/2346)
-- [MediaSpoon hiding amongst the grocery bags. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651615797435891712](https://t.me/ferretman/2345)
-- [MediaMediadooktrain:I found these old photos of baby Jack!via Ferret Story https://just-a-catastrophy.tumblr.com/post/651717731776872448](https://t.me/ferretman/2344)
-- [beaniebabyoftheday:i’m thinking about her……..via Ferret Story https://scrisoridemai.tumblr.com/post/651713945504251904](https://t.me/ferretman/2343)
+- [MediaFerret Snow Day ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651751702393995266](https://t.me/ferretman/2357)
+- [MediaHes wearing a Sombrerovia Ferret Story https://just-a-catastrophy.tumblr.com/post/651747987215810560](https://t.me/ferretman/2356)
+- [gothiccmlm:MediaMediareaction images!💖like or rb if you use please!💖via Ferret Story https://scrisoridemai.tumblr.com/post/651744189167681536](https://t.me/ferretman/2355)
+- [MediaWe love to digvia Ferret Story https://prettypeterparkr.tumblr.com/post/651744176397074432](https://t.me/ferretman/2354)
+- [Mediaferrets : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651736605648912384](https://t.me/ferretman/2353)
 <!-- TELEGRAM:END -->
