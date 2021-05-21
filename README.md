@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCaught! Doing the Pancake train. So sweet! They seem to just be screaming, rub my belly ! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.co...](https://t.me/ferretman/2362)
-- [gothiccmlm:MediaMediareaction images!💖like or rb if you use please!💖via Ferret Story https://scrisoridemai.tumblr.com/post/651744189167681536](https://t.me/ferretman/2361)
-- [beaniebabyoftheday:i’m thinking about her……..via Ferret Story https://scrisoridemai.tumblr.com/post/651713945504251904](https://t.me/ferretman/2360)
-- [via Ferret Story https://scrisoridemai.tumblr.com/post/651653583706669056](https://t.me/ferretman/2359)
 - [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/2358)
+- [MediaFerret Snow Day ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651751702393995266](https://t.me/ferretman/2357)
+- [MediaHes wearing a Sombrerovia Ferret Story https://just-a-catastrophy.tumblr.com/post/651747987215810560](https://t.me/ferretman/2356)
+- [gothiccmlm:MediaMediareaction images!💖like or rb if you use please!💖via Ferret Story https://scrisoridemai.tumblr.com/post/651744189167681536](https://t.me/ferretman/2355)
+- [MediaWe love to digvia Ferret Story https://prettypeterparkr.tumblr.com/post/651744176397074432](https://t.me/ferretman/2354)
 <!-- TELEGRAM:END -->
