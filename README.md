@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaLooks like everyone’s ready for me to let them out. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651827198516412416](https://t.me/ferretman/2376)
 - [MediaSnake’s catch of the day : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651823491782459392](https://t.me/ferretman/2375)
 - [MediaTofu doing a sleep. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651823469571522560](https://t.me/ferretman/2374)
 - [MediaBaby Ferret First Bath. Cinnamon’s First Bath. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651823469166788608](https://t.me/ferretman/2373)
 - [MediaJust showing off my noodle!!! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651823446642343936](https://t.me/ferretman/2372)
-- [MediaI’m leaving , but first one last picture of my boys killing each other.via Ferret Story https://babyiwannaknow.tumblr.com/post/65182344565461811...](https://t.me/ferretman/2371)
 <!-- TELEGRAM:END -->
