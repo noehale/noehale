@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaTube sleeping 😂 peep the stretchvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651898964654882816](https://t.me/ferretman/2393)
-- [MediaI may be bias but Scathach is the perfect ferret. I love this little warrior to bits.via Ferret Story https://scrisoridemai.tumblr.com/post/65189...](https://t.me/ferretman/2392)
-- [bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.via Ferret Story https://prettypeterparkr.tumblr.com/post/6518951...](https://t.me/ferretman/2391)
 - [MediaI am not having a good run with Ferrets lately I just lost my 2nd baby ferret Coco about 2 weeks after Ruby : ferretsvia Ferret Story https://ana...](https://t.me/ferretman/2390)
 - [MediaMad because I hid the duck hearts : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651883893647163392](https://t.me/ferretman/2389)
+- [MediaL’booshel d’woozel : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651883891247005696](https://t.me/ferretman/2388)
+- [Mediaeuqinimodart:Let’s Get Liftedvia Ferret Story https://babyiwannaknow.tumblr.com/post/651883842960064512](https://t.me/ferretman/2387)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/651883843648880640](https://t.me/ferretman/2386)
 <!-- TELEGRAM:END -->
