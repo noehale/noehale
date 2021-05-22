@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediamisioandkinga:💕no offense but this is as beautiful as most masterpiece paintings 💕via Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/2370)
-- [MediaMy sweet angels (until they wake up)via Ferret Story https://prettypeterparkr.tumblr.com/post/651804551489437696](https://t.me/ferretman/2369)
-- [vferret:via Ferret Story https://scrisoridemai.tumblr.com/post/651804532486144000](https://t.me/ferretman/2368)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/651793292269436928](https://t.me/ferretman/2367)
-- [MediaActual footage of Mars Rover making first contact with natives : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651793291451449344](https://t.me/ferretman/2366)
+- [MediaSnake’s catch of the day : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651823491782459392](https://t.me/ferretman/2375)
+- [MediaTofu doing a sleep. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651823469571522560](https://t.me/ferretman/2374)
+- [MediaBaby Ferret First Bath. Cinnamon’s First Bath. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651823469166788608](https://t.me/ferretman/2373)
+- [MediaJust showing off my noodle!!! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651823446642343936](https://t.me/ferretman/2372)
+- [MediaI’m leaving , but first one last picture of my boys killing each other.via Ferret Story https://babyiwannaknow.tumblr.com/post/65182344565461811...](https://t.me/ferretman/2371)
 <!-- TELEGRAM:END -->
