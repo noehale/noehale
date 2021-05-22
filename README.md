@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaLooks like everyone’s ready for me to let them out. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651827198516412416](https://t.me/ferretman/2376)
-- [MediaSnake’s catch of the day : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651823491782459392](https://t.me/ferretman/2375)
-- [MediaTofu doing a sleep. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651823469571522560](https://t.me/ferretman/2374)
-- [MediaBaby Ferret First Bath. Cinnamon’s First Bath. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651823469166788608](https://t.me/ferretman/2373)
-- [MediaJust showing off my noodle!!! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651823446642343936](https://t.me/ferretman/2372)
+- [Mediathelifeofmyferrets:thatvegancosplayer:superveggiegoth:vegan-animallover:be-their-sound:carnalsnail:Small Pets Are Not ToysNever buy an animal on ...](https://t.me/ferretman/2358)
+- [MediaFerret Snow Day ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/651751702393995266](https://t.me/ferretman/2357)
+- [MediaHes wearing a Sombrerovia Ferret Story https://just-a-catastrophy.tumblr.com/post/651747987215810560](https://t.me/ferretman/2356)
+- [gothiccmlm:MediaMediareaction images!💖like or rb if you use please!💖via Ferret Story https://scrisoridemai.tumblr.com/post/651744189167681536](https://t.me/ferretman/2355)
+- [MediaWe love to digvia Ferret Story https://prettypeterparkr.tumblr.com/post/651744176397074432](https://t.me/ferretman/2354)
 <!-- TELEGRAM:END -->
