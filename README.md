@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediacelticshenanigans:aconnormanning:maneth985:fallen-angel-with-a-shotgun:dajo42:if you dont have me on facebook you are probably not missing out on...](https://t.me/ferretman/2403)
-- [Mediaborlax:now this is what Im talkin about via Ferret Story https://just-a-catastrophy.tumblr.com/post/651929169872158720](https://t.me/ferretman/2402)
-- [theferrets:MediaMediaMediaMy little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://scrisoridemai.tum...](https://t.me/ferretman/2401)
-- [MediaMediaMediaMediaboredpanda:Japanese Artist Depicts The Typical Life Of His Pet Hamster, And The Result Is Adorablevia Ferret Story https://prettyp...](https://t.me/ferretman/2400)
-- [champagne-pocky:the old who framed roger rabbit trickvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651914114588901376](https://t.me/ferretman/2399)
+- [dizzy-pup:wildlifewednesdays:A camerashy little weasel!It’s a Mewvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651989524103200768](https://t.me/ferretman/2413)
+- [Mediaferretfarts:snuv:cool ferret picI have two sable masks - Mako and Coco One panda - Lady One Blaze - Syreno And one that I cant tell if he’s cinn...](https://t.me/ferretman/2412)
+- [shar-and-beans-collect-dice:Well SOMEONE got into my dice bag last nightMediaThere was four more dice underneath him 😂via Ferret Story https://scri...](https://t.me/ferretman/2411)
+- [gyeomdrop:this is so fucking funnyvia Ferret Story https://anasfalhhhs.tumblr.com/post/651978196162592768](https://t.me/ferretman/2410)
+- [MediaI promise he is still alive. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651974452325892097](https://t.me/ferretman/2409)
 <!-- TELEGRAM:END -->
