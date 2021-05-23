@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI am not having a good run with Ferrets lately I just lost my 2nd baby ferret Coco about 2 weeks after Ruby : ferretsvia Ferret Story https://ana...](https://t.me/ferretman/2390)
-- [MediaMad because I hid the duck hearts : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651883893647163392](https://t.me/ferretman/2389)
-- [MediaL’booshel d’woozel : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651883891247005696](https://t.me/ferretman/2388)
-- [Mediaeuqinimodart:Let’s Get Liftedvia Ferret Story https://babyiwannaknow.tumblr.com/post/651883842960064512](https://t.me/ferretman/2387)
-- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/651883843648880640](https://t.me/ferretman/2386)
+- [Mediaferret-flops:goasthed:imageMediavia Ferret Story https://punkrocknat.tumblr.com/post/651842273428029441](https://t.me/ferretman/2380)
+- [MediaMediaeggplantgoddess:I made him a little kitty snow fort and I think he likes it as much as I dovia Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/2379)
+- [somecutething:He’s really loving the pets!!(via Puku_Puku_Gram)via Ferret Story https://scrisoridemai.tumblr.com/post/651834746979172352](https://t.me/ferretman/2378)
+- [bob-artist:quietdoppelganger:bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.@bob-artist drop the link I’m beggi...](https://t.me/ferretman/2377)
+- [MediaLooks like everyone’s ready for me to let them out. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651827198516412416](https://t.me/ferretman/2376)
 <!-- TELEGRAM:END -->
