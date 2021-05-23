@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediacelticshenanigans:aconnormanning:maneth985:fallen-angel-with-a-shotgun:dajo42:if you dont have me on facebook you are probably not missing out on...](https://t.me/ferretman/2403)
+- [Mediaborlax:now this is what Im talkin about via Ferret Story https://just-a-catastrophy.tumblr.com/post/651929169872158720](https://t.me/ferretman/2402)
 - [theferrets:MediaMediaMediaMy little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://scrisoridemai.tum...](https://t.me/ferretman/2401)
 - [MediaMediaMediaMediaboredpanda:Japanese Artist Depicts The Typical Life Of His Pet Hamster, And The Result Is Adorablevia Ferret Story https://prettyp...](https://t.me/ferretman/2400)
 - [champagne-pocky:the old who framed roger rabbit trickvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651914114588901376](https://t.me/ferretman/2399)
-- [fluffygif:“Oh lawd, he comin’!via Ferret Story https://babyiwannaknow.tumblr.com/post/651914072296652800](https://t.me/ferretman/2398)
-- [MediaEver since she started sleeping on the floor of her cage, she has given us rhe best poses ever. : ferretsvia Ferret Story https://falalamingo.tum...](https://t.me/ferretman/2397)
 <!-- TELEGRAM:END -->
