@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHappy National Ferret Day! Here is Star with her 3 day old kits on her 2nd birthday! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/pos...](https://t.me/ferretman/2394)
-- [MediaTube sleeping 😂 peep the stretchvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651898964654882816](https://t.me/ferretman/2393)
-- [MediaI may be bias but Scathach is the perfect ferret. I love this little warrior to bits.via Ferret Story https://scrisoridemai.tumblr.com/post/65189...](https://t.me/ferretman/2392)
-- [bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.via Ferret Story https://prettypeterparkr.tumblr.com/post/6518951...](https://t.me/ferretman/2391)
-- [MediaI am not having a good run with Ferrets lately I just lost my 2nd baby ferret Coco about 2 weeks after Ruby : ferretsvia Ferret Story https://ana...](https://t.me/ferretman/2390)
+- [theferrets:MediaMediaMediaMy little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://scrisoridemai.tum...](https://t.me/ferretman/2401)
+- [MediaMediaMediaMediaboredpanda:Japanese Artist Depicts The Typical Life Of His Pet Hamster, And The Result Is Adorablevia Ferret Story https://prettyp...](https://t.me/ferretman/2400)
+- [champagne-pocky:the old who framed roger rabbit trickvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651914114588901376](https://t.me/ferretman/2399)
+- [fluffygif:“Oh lawd, he comin’!via Ferret Story https://babyiwannaknow.tumblr.com/post/651914072296652800](https://t.me/ferretman/2398)
+- [MediaEver since she started sleeping on the floor of her cage, she has given us rhe best poses ever. : ferretsvia Ferret Story https://falalamingo.tum...](https://t.me/ferretman/2397)
 <!-- TELEGRAM:END -->
