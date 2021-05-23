@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediacelticshenanigans:aconnormanning:maneth985:fallen-angel-with-a-shotgun:dajo42:if you dont have me on facebook you are probably not missing out on...](https://t.me/ferretman/2403)
-- [Mediaborlax:now this is what Im talkin about via Ferret Story https://just-a-catastrophy.tumblr.com/post/651929169872158720](https://t.me/ferretman/2402)
-- [theferrets:MediaMediaMediaMy little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://scrisoridemai.tum...](https://t.me/ferretman/2401)
-- [MediaMediaMediaMediaboredpanda:Japanese Artist Depicts The Typical Life Of His Pet Hamster, And The Result Is Adorablevia Ferret Story https://prettyp...](https://t.me/ferretman/2400)
-- [champagne-pocky:the old who framed roger rabbit trickvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651914114588901376](https://t.me/ferretman/2399)
+- [MediaI promise he is still alive. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651974452325892097](https://t.me/ferretman/2409)
+- [MediaLazy bones : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651974452332068864](https://t.me/ferretman/2408)
+- [MediaMy old man being a lap-ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651974452341604352](https://t.me/ferretman/2407)
+- [MediaYea? I’m trying to sleep here. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651974452329037824](https://t.me/ferretman/2406)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/651974451444989953](https://t.me/ferretman/2405)
 <!-- TELEGRAM:END -->
