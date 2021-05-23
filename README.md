@@ -60,9 +60,9 @@ Ferret sees snow for the first time(via)](https://come-forth-into-the-light.tumb
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret-flops:goasthed:imageMediavia Ferret Story https://punkrocknat.tumblr.com/post/651842273428029441](https://t.me/ferretman/2380)
-- [MediaMediaeggplantgoddess:I made him a little kitty snow fort and I think he likes it as much as I dovia Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/2379)
-- [somecutething:He’s really loving the pets!!(via Puku_Puku_Gram)via Ferret Story https://scrisoridemai.tumblr.com/post/651834746979172352](https://t.me/ferretman/2378)
-- [bob-artist:quietdoppelganger:bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.@bob-artist drop the link I’m beggi...](https://t.me/ferretman/2377)
-- [MediaLooks like everyone’s ready for me to let them out. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/651827198516412416](https://t.me/ferretman/2376)
+- [MediaHappy National Ferret Day! Here is Star with her 3 day old kits on her 2nd birthday! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/pos...](https://t.me/ferretman/2394)
+- [MediaTube sleeping 😂 peep the stretchvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651898964654882816](https://t.me/ferretman/2393)
+- [MediaI may be bias but Scathach is the perfect ferret. I love this little warrior to bits.via Ferret Story https://scrisoridemai.tumblr.com/post/65189...](https://t.me/ferretman/2392)
+- [bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.via Ferret Story https://prettypeterparkr.tumblr.com/post/6518951...](https://t.me/ferretman/2391)
+- [MediaI am not having a good run with Ferrets lately I just lost my 2nd baby ferret Coco about 2 weeks after Ruby : ferretsvia Ferret Story https://ana...](https://t.me/ferretman/2390)
 <!-- TELEGRAM:END -->
