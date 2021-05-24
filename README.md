@@ -68,9 +68,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [mairithepotato:mairithepotato:angel-ani:setheverman:what is the january mood?MediaI. LOVE. DR. SEUSS.and again! Happy new year!via Ferret Story https:...](https://t.me/ferretman/2423)
-- [MediaFloofvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652019756476530688](https://t.me/ferretman/2422)
-- [MediaLyncoln is a little sleepy today.via Ferret Story https://scrisoridemai.tumblr.com/post/652015952156852224](https://t.me/ferretman/2421)
-- [MediaStewie looks like he’s laughing hysterically about something, I don’t think little sister Val is amused!via Ferret Story https://prettypeterpar...](https://t.me/ferretman/2420)
-- [MediaMy new guy, Luka! He slid off my lap and pretzeled. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652008403005308928](https://t.me/ferretman/2419)
+- [MediaThe audacity! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652065063010779137](https://t.me/ferretman/2429)
+- [MediaChopper enjoying his first birthday cake! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652065028691918848](https://t.me/ferretman/2428)
+- [MediaI call this box “The WeaselDome” : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652065008016048130](https://t.me/ferretman/2427)
+- [MediaMediaMediaMediaMediabrattynympho:unclefather:“who ARE you” “You Fake as FUCK!”via Ferret Story https://xxcrybby.tumblr.com/post/652065008031...](https://t.me/ferretman/2426)
+- [MediaMediaMediaMediaMediaMediahorrorandhalloween:by Laure Svia Ferret Story https://babyiwannaknow.tumblr.com/post/652065006478868480](https://t.me/ferretman/2425)
 <!-- TELEGRAM:END -->
