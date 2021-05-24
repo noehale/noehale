@@ -63,9 +63,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [misioandkinga:🐍 🐍 🐍via Ferret Story https://just-a-catastrophy.tumblr.com/post/652080140373934080](https://t.me/ferretman/2433)
+- [malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTvia Ferret Story https://scrisoridemai.tumblr.com/post/65207636914302156...](https://t.me/ferretman/2432)
+- [MediaMy daughter has an affliction with needing to hold as many in the business as she can get her hands on.via Ferret Story https://prettypeterparkr....](https://t.me/ferretman/2431)
 - [MediaHello from Noodle! Haven’t posted here since Mochi passed, noodle and I spent a while grieving the loss but we are doing better now and consider...](https://t.me/ferretman/2430)
 - [MediaThe audacity! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652065063010779137](https://t.me/ferretman/2429)
-- [MediaChopper enjoying his first birthday cake! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652065028691918848](https://t.me/ferretman/2428)
-- [MediaI call this box “The WeaselDome” : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652065008016048130](https://t.me/ferretman/2427)
-- [MediaMediaMediaMediaMediabrattynympho:unclefather:“who ARE you” “You Fake as FUCK!”via Ferret Story https://xxcrybby.tumblr.com/post/652065008031...](https://t.me/ferretman/2426)
 <!-- TELEGRAM:END -->
