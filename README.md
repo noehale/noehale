@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [weloveshortvideos:The hardest baby I ever encountered](https://come-forth-into-the-light.tumblr.com/post/652034791045300224)
 - [icarrottop:aribadu:
 
 theblacklesbiancorner:
@@ -58,7 +59,6 @@ i refuse...](https://come-forth-into-the-light.tumblr.com/post/65201217239898521
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/651989521636999168)
 - [tried my hand at sewing… pleasantly surprised](https://come-forth-into-the-light.tumblr.com/post/647980599933648896)
 - [what’s the password?](https://come-forth-into-the-light.tumblr.com/post/647935285514125312)
-- [I drew a picture of our stinky girl Gator 🐊](https://come-forth-into-the-light.tumblr.com/post/647912710478168064)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
