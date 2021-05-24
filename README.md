@@ -64,9 +64,9 @@ i refuse...](https://come-forth-into-the-light.tumblr.com/post/65201217239898521
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [dizzy-pup:wildlifewednesdays:A camerashy little weasel!It’s a Mewvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651989524103200768](https://t.me/ferretman/2413)
-- [Mediaferretfarts:snuv:cool ferret picI have two sable masks - Mako and Coco One panda - Lady One Blaze - Syreno And one that I cant tell if he’s cinn...](https://t.me/ferretman/2412)
-- [shar-and-beans-collect-dice:Well SOMEONE got into my dice bag last nightMediaThere was four more dice underneath him 😂via Ferret Story https://scri...](https://t.me/ferretman/2411)
-- [gyeomdrop:this is so fucking funnyvia Ferret Story https://anasfalhhhs.tumblr.com/post/651978196162592768](https://t.me/ferretman/2410)
-- [MediaI promise he is still alive. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651974452325892097](https://t.me/ferretman/2409)
+- [deaneggsandsam:when u sneeze in front of your pet and they look like you’ve just offended their great ancestorsimagevia Ferret Story https://falalami...](https://t.me/ferretman/2418)
+- [MediaWhat you mean it’s laundry day? You cannot haves! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652004673490960385](https://t.me/ferretman/2417)
+- [MediaGarret found her lookalike! Just got my copy in the mail : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/6520046402...](https://t.me/ferretman/2416)
+- [Mediatypette:koriinku:headrubs:meanplastic:me in 70 yearshow many elmos must die101 elmoscruelmo devillevia Ferret Story https://xxcrybby.tumblr.com/p...](https://t.me/ferretman/2415)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/652004639699550208](https://t.me/ferretman/2414)
 <!-- TELEGRAM:END -->
