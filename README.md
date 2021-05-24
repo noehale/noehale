@@ -67,9 +67,9 @@ i refuse...](https://come-forth-into-the-light.tumblr.com/post/65201217239898521
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [dizzy-pup:wildlifewednesdays:A camerashy little weasel!It’s a Mewvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651989524103200768](https://t.me/ferretman/2413)
-- [Mediaferretfarts:snuv:cool ferret picI have two sable masks - Mako and Coco One panda - Lady One Blaze - Syreno And one that I cant tell if he’s cinn...](https://t.me/ferretman/2412)
-- [shar-and-beans-collect-dice:Well SOMEONE got into my dice bag last nightMediaThere was four more dice underneath him 😂via Ferret Story https://scri...](https://t.me/ferretman/2411)
-- [gyeomdrop:this is so fucking funnyvia Ferret Story https://anasfalhhhs.tumblr.com/post/651978196162592768](https://t.me/ferretman/2410)
 - [MediaI promise he is still alive. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651974452325892097](https://t.me/ferretman/2409)
+- [MediaLazy bones : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651974452332068864](https://t.me/ferretman/2408)
+- [MediaMy old man being a lap-ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651974452341604352](https://t.me/ferretman/2407)
+- [MediaYea? I’m trying to sleep here. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651974452329037824](https://t.me/ferretman/2406)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/651974451444989953](https://t.me/ferretman/2405)
 <!-- TELEGRAM:END -->
