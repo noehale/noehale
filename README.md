@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [roachpatrol:
+itchycoil:
+
+Whenever you’re feeling sudden calm its because I took your voodoo doll out...](https://come-forth-into-the-light.tumblr.com/post/652057461744926721)
+- [R to @guccoguchiko:...](https://come-forth-into-the-light.tumblr.com/post/652053524536000512)
+- [RT by @ThatDarned: #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/652052821055881216)
 - [weloveshortvideos:The hardest baby I ever encountered](https://come-forth-into-the-light.tumblr.com/post/652034791045300224)
 - [icarrottop:aribadu:
 
@@ -56,9 +62,6 @@ theblacklesbiancorner:
 jnghyns:
 
 i refuse...](https://come-forth-into-the-light.tumblr.com/post/652012172398985216)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/651989521636999168)
-- [tried my hand at sewing… pleasantly surprised](https://come-forth-into-the-light.tumblr.com/post/647980599933648896)
-- [what’s the password?](https://come-forth-into-the-light.tumblr.com/post/647935285514125312)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
