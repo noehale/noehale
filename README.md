@@ -68,9 +68,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaHello from Noodle! Haven’t posted here since Mochi passed, noodle and I spent a while grieving the loss but we are doing better now and consider...](https://t.me/ferretman/2430)
 - [MediaThe audacity! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652065063010779137](https://t.me/ferretman/2429)
 - [MediaChopper enjoying his first birthday cake! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652065028691918848](https://t.me/ferretman/2428)
 - [MediaI call this box “The WeaselDome” : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652065008016048130](https://t.me/ferretman/2427)
 - [MediaMediaMediaMediaMediabrattynympho:unclefather:“who ARE you” “You Fake as FUCK!”via Ferret Story https://xxcrybby.tumblr.com/post/652065008031...](https://t.me/ferretman/2426)
-- [MediaMediaMediaMediaMediaMediahorrorandhalloween:by Laure Svia Ferret Story https://babyiwannaknow.tumblr.com/post/652065006478868480](https://t.me/ferretman/2425)
 <!-- TELEGRAM:END -->
