@@ -64,9 +64,9 @@ i refuse...](https://come-forth-into-the-light.tumblr.com/post/65201217239898521
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [mairithepotato:mairithepotato:angel-ani:setheverman:what is the january mood?MediaI. LOVE. DR. SEUSS.and again! Happy new year!via Ferret Story https:...](https://t.me/ferretman/2423)
-- [MediaFloofvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652019756476530688](https://t.me/ferretman/2422)
-- [MediaLyncoln is a little sleepy today.via Ferret Story https://scrisoridemai.tumblr.com/post/652015952156852224](https://t.me/ferretman/2421)
-- [MediaStewie looks like he’s laughing hysterically about something, I don’t think little sister Val is amused!via Ferret Story https://prettypeterpar...](https://t.me/ferretman/2420)
-- [MediaMy new guy, Luka! He slid off my lap and pretzeled. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652008403005308928](https://t.me/ferretman/2419)
+- [dizzy-pup:wildlifewednesdays:A camerashy little weasel!It’s a Mewvia Ferret Story https://just-a-catastrophy.tumblr.com/post/651989524103200768](https://t.me/ferretman/2413)
+- [Mediaferretfarts:snuv:cool ferret picI have two sable masks - Mako and Coco One panda - Lady One Blaze - Syreno And one that I cant tell if he’s cinn...](https://t.me/ferretman/2412)
+- [shar-and-beans-collect-dice:Well SOMEONE got into my dice bag last nightMediaThere was four more dice underneath him 😂via Ferret Story https://scri...](https://t.me/ferretman/2411)
+- [gyeomdrop:this is so fucking funnyvia Ferret Story https://anasfalhhhs.tumblr.com/post/651978196162592768](https://t.me/ferretman/2410)
+- [MediaI promise he is still alive. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651974452325892097](https://t.me/ferretman/2409)
 <!-- TELEGRAM:END -->
