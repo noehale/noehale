@@ -67,9 +67,9 @@ i refuse...](https://come-forth-into-the-light.tumblr.com/post/65201217239898521
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI promise he is still alive. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/651974452325892097](https://t.me/ferretman/2409)
-- [MediaLazy bones : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/651974452332068864](https://t.me/ferretman/2408)
-- [MediaMy old man being a lap-ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/651974452341604352](https://t.me/ferretman/2407)
-- [MediaYea? I’m trying to sleep here. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/651974452329037824](https://t.me/ferretman/2406)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/651974451444989953](https://t.me/ferretman/2405)
+- [mairithepotato:mairithepotato:angel-ani:setheverman:what is the january mood?MediaI. LOVE. DR. SEUSS.and again! Happy new year!via Ferret Story https:...](https://t.me/ferretman/2423)
+- [MediaFloofvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652019756476530688](https://t.me/ferretman/2422)
+- [MediaLyncoln is a little sleepy today.via Ferret Story https://scrisoridemai.tumblr.com/post/652015952156852224](https://t.me/ferretman/2421)
+- [MediaStewie looks like he’s laughing hysterically about something, I don’t think little sister Val is amused!via Ferret Story https://prettypeterpar...](https://t.me/ferretman/2420)
+- [MediaMy new guy, Luka! He slid off my lap and pretzeled. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652008403005308928](https://t.me/ferretman/2419)
 <!-- TELEGRAM:END -->
