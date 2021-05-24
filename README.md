@@ -48,20 +48,21 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
-- [roachpatrol:
-itchycoil:
+- [ベロ出してまーす。
+#フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/652064892227059712)
+- [2週間前に注射したところの内出血が未だ残るわしの腕って…💦
 
-Whenever you’re feeling sudden calm its because I took your voodoo doll out...](https://come-forth-into-the-light.tumblr.com/post/652057461744926721)
-- [R to @guccoguchiko:...](https://come-forth-into-the-light.tumblr.com/post/652053524536000512)
-- [RT by @ThatDarned: #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/652052821055881216)
-- [weloveshortvideos:The hardest baby I ever encountered](https://come-forth-into-the-light.tumblr.com/post/652034791045300224)
-- [icarrottop:aribadu:
+😇ちっちゃいことにこだわるねー。ずうたいはおっきいのにさ…(ㆀ˘･з...](https://come-forth-into-the-light.tumblr.com/post/652064887167664128)
+- [ブンちゃんの寝方が可愛い
+＃ferret
+＃フェレット](https://come-forth-into-the-light.tumblr.com/post/652064881912233984)
+- [Let’s roll in the grass 🐾 #Ferret](https://come-forth-into-the-light.tumblr.com/post/652061083057651712)
+- [助手席にじお、後ろに奥さん✨
+楽しいドライブでした♪
 
-theblacklesbiancorner:
-
-jnghyns:
-
-i refuse...](https://come-forth-into-the-light.tumblr.com/post/652012172398985216)
+#フェレット
+#ferret
+#ドライブ](https://come-forth-into-the-light.tumblr.com/post/652061077006434304)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
