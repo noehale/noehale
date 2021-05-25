@@ -63,9 +63,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [yurensohn:yurensohn:Mason was curious what I was unwrapping and it was bubblegum, so i let him sniff aND HE REALLY DIDN’T LIKE ITimageD I S G U S Tvi...](https://t.me/ferretman/2443)
+- [MediaSo sleepy girl with her purple dinosaur 🦕 anyone else have a ferret that is absolutely obsessed with a toy?? 😂via Ferret Story https://just...](https://t.me/ferretman/2442)
+- [thatweirdferretlady:malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTSo cute!via Ferret Story https://scrisoridemai.tumbl...](https://t.me/ferretman/2441)
+- [MediaHe’s the best boivia Ferret Story https://prettypeterparkr.tumblr.com/post/652106549255421952](https://t.me/ferretman/2440)
 - [MediaScooter waiting for his sister Xena to come through the tube. ❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6520989790745395...](https://t.me/ferretman/2439)
-- [Mediainfiltrating the stash cave and boyfriend caught this gem of a video : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/65209525800556...](https://t.me/ferretman/2438)
-- [MediaCuddle buddies : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652095258075742208](https://t.me/ferretman/2437)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/652095258019184640](https://t.me/ferretman/2436)
-- [MediaI knew I saved my ring sling for a reason. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652095258004520961](https://t.me/ferretman/2435)
 <!-- TELEGRAM:END -->
