@@ -63,9 +63,9 @@ reblog if u a lil ugly
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaYou’re gonna have terrible neck pain in the morning, bud… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652159384534859776](https://t.me/ferretman/2445)
-- [MediaRori making my hoodie his : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/652144270719025153](https://t.me/ferretman/2444)
-- [yurensohn:yurensohn:Mason was curious what I was unwrapping and it was bubblegum, so i let him sniff aND HE REALLY DIDN’T LIKE ITimageD I S G U S Tvi...](https://t.me/ferretman/2443)
-- [MediaSo sleepy girl with her purple dinosaur 🦕 anyone else have a ferret that is absolutely obsessed with a toy?? 😂via Ferret Story https://just...](https://t.me/ferretman/2442)
-- [thatweirdferretlady:malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTSo cute!via Ferret Story https://scrisoridemai.tumbl...](https://t.me/ferretman/2441)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652170767025438720](https://t.me/ferretman/2453)
+- [thatweirdferretlady:shaynethechangingman:@thatweirdferretladyThis is amazing!!via Ferret Story https://scrisoridemai.tumblr.com/post/65216694834243174...](https://t.me/ferretman/2452)
+- [Mediam-muscle-chan:allthenamesilikearetaken:sweet-cherry-fairy:ladynorbert:raisehelia:nonespark:strikercorbie:g8dtier:avodaco:me when i get my student...](https://t.me/ferretman/2451)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652155731074760704](https://t.me/ferretman/2450)
+- [MediaAppa… yip yip? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652155665462247424](https://t.me/ferretman/2449)
 <!-- TELEGRAM:END -->
