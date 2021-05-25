@@ -63,9 +63,9 @@ reblog if u a lil ugly
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaYou’re gonna have terrible neck pain in the morning, bud… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652159384534859776](https://t.me/ferretman/2445)
+- [MediaRori making my hoodie his : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/652144270719025153](https://t.me/ferretman/2444)
 - [yurensohn:yurensohn:Mason was curious what I was unwrapping and it was bubblegum, so i let him sniff aND HE REALLY DIDN’T LIKE ITimageD I S G U S Tvi...](https://t.me/ferretman/2443)
 - [MediaSo sleepy girl with her purple dinosaur 🦕 anyone else have a ferret that is absolutely obsessed with a toy?? 😂via Ferret Story https://just...](https://t.me/ferretman/2442)
 - [thatweirdferretlady:malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTSo cute!via Ferret Story https://scrisoridemai.tumbl...](https://t.me/ferretman/2441)
-- [MediaHe’s the best boivia Ferret Story https://prettypeterparkr.tumblr.com/post/652106549255421952](https://t.me/ferretman/2440)
-- [MediaScooter waiting for his sister Xena to come through the tube. ❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6520989790745395...](https://t.me/ferretman/2439)
 <!-- TELEGRAM:END -->
