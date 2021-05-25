@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [1000drawings:by Sophie Schultz
+
+](https://come-forth-into-the-light.tumblr.com/post/652125414252298241)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652102793119793152)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652080140065570816)
 - [ベロ出してまーす。
@@ -55,9 +58,6 @@
 - [2週間前に注射したところの内出血が未だ残るわしの腕って…💦
 
 😇ちっちゃいことにこだわるねー。ずうたいはおっきいのにさ…(ㆀ˘･з...](https://come-forth-into-the-light.tumblr.com/post/652064887167664128)
-- [ブンちゃんの寝方が可愛い
-＃ferret
-＃フェレット](https://come-forth-into-the-light.tumblr.com/post/652064881912233984)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
