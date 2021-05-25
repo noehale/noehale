@@ -63,9 +63,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [misioandkinga:🐍 🐍 🐍via Ferret Story https://just-a-catastrophy.tumblr.com/post/652080140373934080](https://t.me/ferretman/2433)
-- [malmalforever:If you’re happy and you know it WAG YOUR TAIL AGGRESSIVELY FASTvia Ferret Story https://scrisoridemai.tumblr.com/post/65207636914302156...](https://t.me/ferretman/2432)
-- [MediaMy daughter has an affliction with needing to hold as many in the business as she can get her hands on.via Ferret Story https://prettypeterparkr....](https://t.me/ferretman/2431)
-- [MediaHello from Noodle! Haven’t posted here since Mochi passed, noodle and I spent a while grieving the loss but we are doing better now and consider...](https://t.me/ferretman/2430)
-- [MediaThe audacity! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652065063010779137](https://t.me/ferretman/2429)
+- [MediaScooter waiting for his sister Xena to come through the tube. ❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6520989790745395...](https://t.me/ferretman/2439)
+- [Mediainfiltrating the stash cave and boyfriend caught this gem of a video : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/65209525800556...](https://t.me/ferretman/2438)
+- [MediaCuddle buddies : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652095258075742208](https://t.me/ferretman/2437)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/652095258019184640](https://t.me/ferretman/2436)
+- [MediaI knew I saved my ring sling for a reason. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652095258004520961](https://t.me/ferretman/2435)
 <!-- TELEGRAM:END -->
