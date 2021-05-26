@@ -48,6 +48,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [pixpup:
+disco-vader:
+
+kangals:
+
+pixpup:
+
+LEAF HEAD LEAF HEAD...](https://come-forth-into-the-light.tumblr.com/post/652261340868673536)
 - [eastcoastslang:
 im in the mood to receive a check for six hundred thousand dollars 
 ](https://come-forth-into-the-light.tumblr.com/post/652238673137614848)
@@ -61,9 +69,6 @@ imaginethedarkerside:
 dunflower:
 
 u know someone is having a rough day when...](https://come-forth-into-the-light.tumblr.com/post/652170791885160448)
-- [aduhm:
-reblog if u a lil ugly
-](https://come-forth-into-the-light.tumblr.com/post/652148045080870912)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
