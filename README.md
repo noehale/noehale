@@ -69,9 +69,9 @@ reblog if u a lil ugly
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652170767025438720](https://t.me/ferretman/2453)
-- [thatweirdferretlady:shaynethechangingman:@thatweirdferretladyThis is amazing!!via Ferret Story https://scrisoridemai.tumblr.com/post/65216694834243174...](https://t.me/ferretman/2452)
-- [Mediam-muscle-chan:allthenamesilikearetaken:sweet-cherry-fairy:ladynorbert:raisehelia:nonespark:strikercorbie:g8dtier:avodaco:me when i get my student...](https://t.me/ferretman/2451)
-- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652155731074760704](https://t.me/ferretman/2450)
-- [MediaAppa… yip yip? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652155665462247424](https://t.me/ferretman/2449)
+- [MediaMediaMediaMediaMediaMediabiwitched:whosfuckingbad:maltese-vulcan:french-verbz:Well now I can correctly moonwalk away from uncomfortable situation...](https://t.me/ferretman/2463)
+- [MediaSAILvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652200917023768577](https://t.me/ferretman/2462)
+- [MediaDo you think he’s comfy?via Ferret Story https://scrisoridemai.tumblr.com/post/652197149673717760](https://t.me/ferretman/2461)
+- [thelifeofmyferrets:😍via Ferret Story https://prettypeterparkr.tumblr.com/post/652197149672701952](https://t.me/ferretman/2460)
+- [MediaJust daisy and pebbles snuggling 🥰 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652189599035260928](https://t.me/ferretman/2459)
 <!-- TELEGRAM:END -->
