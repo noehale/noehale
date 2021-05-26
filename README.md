@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Summer is almost here, so here’s some swimsuits for Bee...](https://come-forth-into-the-light.tumblr.com/post/652215999419088896)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652193367702241280)
 - [dunflower:
 dunflower:
@@ -63,7 +64,6 @@ reblog if u a lil ugly
 - [1000drawings:by Sophie Schultz
 
 ](https://come-forth-into-the-light.tumblr.com/post/652125414252298241)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/652102793119793152)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
