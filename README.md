@@ -69,9 +69,9 @@ reblog if u a lil ugly
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCrazy tongue Sunday 😂 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652185884550168576](https://t.me/ferretman/2458)
-- [MediaCan we all talk couch proofing?? I saw someone staple down screen door mesh on the bottom. : ferretsvia Ferret Story https://redzgn.tumblr.com/po...](https://t.me/ferretman/2457)
-- [MediaWus poppin 🅱️?via Ferret Story https://babyiwannaknow.tumblr.com/post/652185864530804736](https://t.me/ferretman/2456)
-- [tikkety-tok:This is what Rasputin would’ve wanted.via Ferret Story https://falalamingo.tumblr.com/post/652185812517158912](https://t.me/ferretman/2455)
-- [MediaJust wanted to share my Nashi : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652185812518273024](https://t.me/ferretman/2454)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652170767025438720](https://t.me/ferretman/2453)
+- [thatweirdferretlady:shaynethechangingman:@thatweirdferretladyThis is amazing!!via Ferret Story https://scrisoridemai.tumblr.com/post/65216694834243174...](https://t.me/ferretman/2452)
+- [Mediam-muscle-chan:allthenamesilikearetaken:sweet-cherry-fairy:ladynorbert:raisehelia:nonespark:strikercorbie:g8dtier:avodaco:me when i get my student...](https://t.me/ferretman/2451)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652155731074760704](https://t.me/ferretman/2450)
+- [MediaAppa… yip yip? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652155665462247424](https://t.me/ferretman/2449)
 <!-- TELEGRAM:END -->
