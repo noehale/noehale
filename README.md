@@ -74,9 +74,9 @@ u know someone is having a rough day when...](https://come-forth-into-the-light.
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [clowncare: when u used to be an overachiever but now ur barely running on enough energy to function...via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/2488)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/652257543762132992](https://t.me/ferretman/2487)
+- [daughterofsarenrae:MediaMerry Christmas!via Ferret Story https://prettypeterparkr.tumblr.com/post/652257523269828608](https://t.me/ferretman/2486)
 - [MediaSleepy ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652246266653376512](https://t.me/ferretman/2485)
 - [MediaNeville made his small human very happy when for the first time he chose her for cuddle. : ferretsvia Ferret Story https://somewhere-inthe-deepde...](https://t.me/ferretman/2484)
-- [MediaIdentical stretches : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652246248500396032](https://t.me/ferretman/2483)
-- [MediaSleepy ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652246266653376512](https://t.me/ferretman/2482)
-- [MediaNeville made his small human very happy when for the first time he chose her for cuddle. : ferretsvia Ferret Story https://somewhere-inthe-deepde...](https://t.me/ferretman/2481)
 <!-- TELEGRAM:END -->
