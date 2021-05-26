@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [eastcoastslang:
+im in the mood to receive a check for six hundred thousand dollars 
+](https://come-forth-into-the-light.tumblr.com/post/652238673137614848)
 - [Summer is almost here, so here’s some swimsuits for Bee...](https://come-forth-into-the-light.tumblr.com/post/652215999419088896)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652193367702241280)
 - [dunflower:
@@ -61,9 +64,6 @@ u know someone is having a rough day when...](https://come-forth-into-the-light.
 - [aduhm:
 reblog if u a lil ugly
 ](https://come-forth-into-the-light.tumblr.com/post/652148045080870912)
-- [1000drawings:by Sophie Schultz
-
-](https://come-forth-into-the-light.tumblr.com/post/652125414252298241)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
