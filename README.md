@@ -69,9 +69,9 @@ reblog if u a lil ugly
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaSleepy ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652246266653376512](https://t.me/ferretman/2485)
+- [MediaNeville made his small human very happy when for the first time he chose her for cuddle. : ferretsvia Ferret Story https://somewhere-inthe-deepde...](https://t.me/ferretman/2484)
+- [MediaIdentical stretches : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652246248500396032](https://t.me/ferretman/2483)
 - [MediaSleepy ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652246266653376512](https://t.me/ferretman/2482)
 - [MediaNeville made his small human very happy when for the first time he chose her for cuddle. : ferretsvia Ferret Story https://somewhere-inthe-deepde...](https://t.me/ferretman/2481)
-- [MediaIdentical stretches : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652246248500396032](https://t.me/ferretman/2480)
-- [MediaFOUND MY BIG STUPID IDIOT FT. THE DRYWALL I TORE UP LOOKING FOR HER : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652249995802738...](https://t.me/ferretman/2479)
-- [zachlironis-blog:tguzz:I will always reblog thisAlways and forevervia Ferret Story https://falalamingo.tumblr.com/post/652246289472520192](https://t.me/ferretman/2478)
 <!-- TELEGRAM:END -->
