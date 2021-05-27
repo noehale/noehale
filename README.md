@@ -77,9 +77,9 @@ im in the mood to receive a check for six hundred thousand dollars 
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaArson having fun in the snow ❄️ : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/652295295566299136](https://t.me/ferretman/2498)
-- [MediaI don’t think I’ve had an object on the floor in three years now😂via Ferret Story https://just-a-catastrophy.tumblr.com/post/652291551657148...](https://t.me/ferretman/2497)
-- [MediaHe’s an angry little manvia Ferret Story https://prettypeterparkr.tumblr.com/post/652287762249236480](https://t.me/ferretman/2496)
-- [Mediathe feet crossed !! the head tilt !! prefect pose !! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/652287762236669952](https://t.me/ferretman/2495)
-- [MediaWhen you’re at a sleepover but didn’t bring a blanket : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652280211474448384](https://t.me/ferretman/2494)
+- [Mediathe feet crossed !! the head tilt !! prefect pose !! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/652287762236669952](https://t.me/ferretman/2504)
+- [Mediasnuggle buddy’svia Ferret Story https://babyiwannaknow.tumblr.com/post/652276525688832000](https://t.me/ferretman/2503)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/652257543762132992](https://t.me/ferretman/2502)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652246248080949248](https://t.me/ferretman/2501)
+- [MediaDo you think he’s comfy?via Ferret Story https://scrisoridemai.tumblr.com/post/652197149673717760](https://t.me/ferretman/2500)
 <!-- TELEGRAM:END -->
