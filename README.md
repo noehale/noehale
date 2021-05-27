@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [kasnas:kasnas:2015 absolutely drained me. I need abouta 2 year long nap, see you in 2017, folks....](https://come-forth-into-the-light.tumblr.com/post/652351974433570816)
 - [eviethemuse:toytowns:
 
 brbjellyfishing:
@@ -77,7 +78,6 @@ LEAF HEAD LEAF HEAD...](https://come-forth-into-the-light.tumblr.com/post/652261
 - [eastcoastslang:
 im in the mood to receive a check for six hundred thousand dollars 
 ](https://come-forth-into-the-light.tumblr.com/post/652238673137614848)
-- [Summer is almost here, so here’s some swimsuits for Bee...](https://come-forth-into-the-light.tumblr.com/post/652215999419088896)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
