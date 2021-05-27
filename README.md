@@ -77,9 +77,9 @@ im in the mood to receive a check for six hundred thousand dollars 
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [clowncare: when u used to be an overachiever but now ur barely running on enough energy to function...via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/2488)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/652257543762132992](https://t.me/ferretman/2487)
-- [daughterofsarenrae:MediaMerry Christmas!via Ferret Story https://prettypeterparkr.tumblr.com/post/652257523269828608](https://t.me/ferretman/2486)
-- [MediaSleepy ferret : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652246266653376512](https://t.me/ferretman/2485)
-- [MediaNeville made his small human very happy when for the first time he chose her for cuddle. : ferretsvia Ferret Story https://somewhere-inthe-deepde...](https://t.me/ferretman/2484)
+- [MediaWhen you’re at a sleepover but didn’t bring a blanket : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652280211474448384](https://t.me/ferretman/2494)
+- [Mediasnuggle buddy’svia Ferret Story https://babyiwannaknow.tumblr.com/post/652276525688832000](https://t.me/ferretman/2493)
+- [MediaBATHMATS BEWARE! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652276488146763776](https://t.me/ferretman/2492)
+- [reseteados:¡Viernes!via Ferret Story https://falalamingo.tumblr.com/post/652276465460707328](https://t.me/ferretman/2491)
+- [MediaMy baby boys alphonse and edward : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652276465469161472](https://t.me/ferretman/2490)
 <!-- TELEGRAM:END -->
