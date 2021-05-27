@@ -83,9 +83,9 @@ im in the mood to receive a check for six hundred thousand dollars 
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHe makes side eye look adorable : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/652325459097534464](https://t.me/ferretman/2505)
-- [Mediathe feet crossed !! the head tilt !! prefect pose !! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/652287762236669952](https://t.me/ferretman/2504)
-- [Mediasnuggle buddy’svia Ferret Story https://babyiwannaknow.tumblr.com/post/652276525688832000](https://t.me/ferretman/2503)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/652257543762132992](https://t.me/ferretman/2502)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652246248080949248](https://t.me/ferretman/2501)
+- [Mediawelele:Pop, rock, reguetón, punk, rap y flamenkito.via Ferret Story https://falalamingo.tumblr.com/post/652367109266063360](https://t.me/ferretman/2516)
+- [quillusquillus:baapi-makwa:my friends cat loves attacking xmas trees but hates plastic bagsMediathe narrative tension in this picture is outrageousvia...](https://t.me/ferretman/2515)
+- [Mediaannehathawillannehathaway:“are you wearing the-”“the chanel boots? yeah i am”via Ferret Story https://just-a-catastrophy.tumblr.com/post/6523...](https://t.me/ferretman/2514)
+- [valentiniian:wisdom dogvia Ferret Story https://prettypeterparkr.tumblr.com/post/652348136535326720](https://t.me/ferretman/2513)
+- [Mediatheferrets:theferrets:The whole gangIf I could go back… I wouldvia Ferret Story https://scrisoridemai.tumblr.com/post/652348114085281792](https://t.me/ferretman/2512)
 <!-- TELEGRAM:END -->
