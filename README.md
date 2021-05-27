@@ -77,9 +77,9 @@ im in the mood to receive a check for six hundred thousand dollars 
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWhen you’re at a sleepover but didn’t bring a blanket : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652280211474448384](https://t.me/ferretman/2494)
-- [Mediasnuggle buddy’svia Ferret Story https://babyiwannaknow.tumblr.com/post/652276525688832000](https://t.me/ferretman/2493)
-- [MediaBATHMATS BEWARE! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652276488146763776](https://t.me/ferretman/2492)
-- [reseteados:¡Viernes!via Ferret Story https://falalamingo.tumblr.com/post/652276465460707328](https://t.me/ferretman/2491)
-- [MediaMy baby boys alphonse and edward : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652276465469161472](https://t.me/ferretman/2490)
+- [MediaThis is my ferret Ellie she is 4 my question is how do you know if your ferret is deaf? She doesn’t respond to noises like squeaky toys like my ...](https://t.me/ferretman/2476)
+- [MediaMediaMediaMediaMediaMediabiwitched:whosfuckingbad:maltese-vulcan:french-verbz:Well now I can correctly moonwalk away from uncomfortable situation...](https://t.me/ferretman/2475)
+- [MediaCrazy tongue Sunday 😂 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652185884550168576](https://t.me/ferretman/2474)
+- [MediaCan we all talk couch proofing?? I saw someone staple down screen door mesh on the bottom. : ferretsvia Ferret Story https://redzgn.tumblr.com/po...](https://t.me/ferretman/2473)
+- [MediaJust wanted to share my Nashi : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652185812518273024](https://t.me/ferretman/2472)
 <!-- TELEGRAM:END -->
