@@ -83,9 +83,9 @@ im in the mood to receive a check for six hundred thousand dollars 
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaHe makes side eye look adorable : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/652325459097534464](https://t.me/ferretman/2505)
 - [Mediathe feet crossed !! the head tilt !! prefect pose !! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/652287762236669952](https://t.me/ferretman/2504)
 - [Mediasnuggle buddy’svia Ferret Story https://babyiwannaknow.tumblr.com/post/652276525688832000](https://t.me/ferretman/2503)
 - [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/652257543762132992](https://t.me/ferretman/2502)
 - [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652246248080949248](https://t.me/ferretman/2501)
-- [MediaDo you think he’s comfy?via Ferret Story https://scrisoridemai.tumblr.com/post/652197149673717760](https://t.me/ferretman/2500)
 <!-- TELEGRAM:END -->
