@@ -83,9 +83,9 @@ im in the mood to receive a check for six hundred thousand dollars 
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediatheferrets:theferrets:The whole gangIf I could go back… I wouldvia Ferret Story https://scrisoridemai.tumblr.com/post/652348114085281792](https://t.me/ferretman/2512)
-- [MediaHe loves to snuggle up! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652340567539335168](https://t.me/ferretman/2511)
-- [MediaGet ferrets they said…They are cute they said… : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652336860333539328](https://t.me/ferretman/2510)
-- [MediaThe people have requested a longer video of Chopper. Here he is playing with his bday gift : ferretsvia Ferret Story https://redzgn.tumblr.com/po...](https://t.me/ferretman/2509)
-- [MediaIt’s Missy’s world, we’re just living in itvia Ferret Story https://babyiwannaknow.tumblr.com/post/652336840565768192](https://t.me/ferretman/2508)
+- [MediaHe makes side eye look adorable : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/652325459097534464](https://t.me/ferretman/2505)
+- [Mediathe feet crossed !! the head tilt !! prefect pose !! : ferretsvia Ferret Story https://scrisoridemai.tumblr.com/post/652287762236669952](https://t.me/ferretman/2504)
+- [Mediasnuggle buddy’svia Ferret Story https://babyiwannaknow.tumblr.com/post/652276525688832000](https://t.me/ferretman/2503)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/652257543762132992](https://t.me/ferretman/2502)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652246248080949248](https://t.me/ferretman/2501)
 <!-- TELEGRAM:END -->
