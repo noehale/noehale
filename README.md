@@ -74,9 +74,9 @@ You...](https://come-forth-into-the-light.tumblr.com/post/652329284028039168)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediawelele:Pop, rock, reguetón, punk, rap y flamenkito.via Ferret Story https://falalamingo.tumblr.com/post/652367109266063360](https://t.me/ferretman/2516)
-- [quillusquillus:baapi-makwa:my friends cat loves attacking xmas trees but hates plastic bagsMediathe narrative tension in this picture is outrageousvia...](https://t.me/ferretman/2515)
-- [Mediaannehathawillannehathaway:“are you wearing the-”“the chanel boots? yeah i am”via Ferret Story https://just-a-catastrophy.tumblr.com/post/6523...](https://t.me/ferretman/2514)
-- [valentiniian:wisdom dogvia Ferret Story https://prettypeterparkr.tumblr.com/post/652348136535326720](https://t.me/ferretman/2513)
-- [Mediatheferrets:theferrets:The whole gangIf I could go back… I wouldvia Ferret Story https://scrisoridemai.tumblr.com/post/652348114085281792](https://t.me/ferretman/2512)
+- [everythingfox:“Jasper had his very first experience with snow today. I think he enjoyed it! I can’t wait for all of our hiking adventures.”(Source)...](https://t.me/ferretman/2543)
+- [Media“Why did you uncover me?!” : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652457663609946112](https://t.me/ferretman/2542)
+- [MediaMy sweet Ori having an afternoon snooze : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652457663088754688](https://t.me/ferretman/2541)
+- [MediaDid Nickelodeon say they needed a new Avatar for their new content? Look no further! : ferretsvia Ferret Story https://falalamingo.tumblr.com/pos...](https://t.me/ferretman/2540)
+- [MediaSo my baby girl cannot get up or down her ramps. She had fallen off or backwards multiple times until I wrapped the ramp in chicken wire. I tried...](https://t.me/ferretman/2539)
 <!-- TELEGRAM:END -->
