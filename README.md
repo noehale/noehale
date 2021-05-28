@@ -83,9 +83,9 @@ LEAF HEAD LEAF HEAD...](https://come-forth-into-the-light.tumblr.com/post/652261
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediawelele:Pop, rock, reguetón, punk, rap y flamenkito.via Ferret Story https://falalamingo.tumblr.com/post/652367109266063360](https://t.me/ferretman/2516)
+- [quillusquillus:baapi-makwa:my friends cat loves attacking xmas trees but hates plastic bagsMediathe narrative tension in this picture is outrageousvia...](https://t.me/ferretman/2515)
+- [Mediaannehathawillannehathaway:“are you wearing the-”“the chanel boots? yeah i am”via Ferret Story https://just-a-catastrophy.tumblr.com/post/6523...](https://t.me/ferretman/2514)
+- [valentiniian:wisdom dogvia Ferret Story https://prettypeterparkr.tumblr.com/post/652348136535326720](https://t.me/ferretman/2513)
 - [Mediatheferrets:theferrets:The whole gangIf I could go back… I wouldvia Ferret Story https://scrisoridemai.tumblr.com/post/652348114085281792](https://t.me/ferretman/2512)
-- [MediaHe loves to snuggle up! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652340567539335168](https://t.me/ferretman/2511)
-- [MediaGet ferrets they said…They are cute they said… : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652336860333539328](https://t.me/ferretman/2510)
-- [MediaThe people have requested a longer video of Chopper. Here he is playing with his bday gift : ferretsvia Ferret Story https://redzgn.tumblr.com/po...](https://t.me/ferretman/2509)
-- [MediaIt’s Missy’s world, we’re just living in itvia Ferret Story https://babyiwannaknow.tumblr.com/post/652336840565768192](https://t.me/ferretman/2508)
 <!-- TELEGRAM:END -->
