@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [hitmewithcute:Let’s be friends](https://come-forth-into-the-light.tumblr.com/post/652419869729538048)
 - [petaflop:
 White Northern Lights in Finland
 ](https://come-forth-into-the-light.tumblr.com/post/652374555629879296)
@@ -70,14 +71,6 @@ Thirsty?
 
 water hungry
 ](https://come-forth-into-the-light.tumblr.com/post/652283980244254720)
-- [pixpup:
-disco-vader:
-
-kangals:
-
-pixpup:
-
-LEAF HEAD LEAF HEAD...](https://come-forth-into-the-light.tumblr.com/post/652261340868673536)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
