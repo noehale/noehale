@@ -74,9 +74,9 @@ You...](https://come-forth-into-the-light.tumblr.com/post/652329284028039168)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thatweirdferretlady: dreamofserenity626: -Watching one of them trying to calculate a jump from the...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/2538)
-- [MediaBoy he sure loves that rice box ☺️via Ferret Story https://scrisoridemai.tumblr.com/post/652438741749809152](https://t.me/ferretman/2537)
-- [MediaThis is Rouge, don’t be fooled by the cuteness- she keeps trying to stash me under the sofa, behind the cabinet & in her bed, she still doesn’t...](https://t.me/ferretman/2536)
-- [MediaSleepy Ferret Can’t Sleep Because of the Outside Noise : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652431161002442752](https://t.me/ferretman/2535)
-- [MediaMy 6 year old baby : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652427497756147712](https://t.me/ferretman/2534)
+- [Mediawelele:Pop, rock, reguetón, punk, rap y flamenkito.via Ferret Story https://falalamingo.tumblr.com/post/652367109266063360](https://t.me/ferretman/2516)
+- [quillusquillus:baapi-makwa:my friends cat loves attacking xmas trees but hates plastic bagsMediathe narrative tension in this picture is outrageousvia...](https://t.me/ferretman/2515)
+- [Mediaannehathawillannehathaway:“are you wearing the-”“the chanel boots? yeah i am”via Ferret Story https://just-a-catastrophy.tumblr.com/post/6523...](https://t.me/ferretman/2514)
+- [valentiniian:wisdom dogvia Ferret Story https://prettypeterparkr.tumblr.com/post/652348136535326720](https://t.me/ferretman/2513)
+- [Mediatheferrets:theferrets:The whole gangIf I could go back… I wouldvia Ferret Story https://scrisoridemai.tumblr.com/post/652348114085281792](https://t.me/ferretman/2512)
 <!-- TELEGRAM:END -->
