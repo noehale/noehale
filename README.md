@@ -74,9 +74,9 @@ You...](https://come-forth-into-the-light.tumblr.com/post/652329284028039168)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [alohammora:punkbonnibel:I have one brain cell and it bounces around in my skull like a windows screen saverWhen it bounces perfectly in the corner i e...](https://t.me/ferretman/2529)
-- [MediaMomma give new digs? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652427428545822720](https://t.me/ferretman/2528)
-- [Mediatatianakawkaw:Ghost pumpkinvia Ferret Story https://babyiwannaknow.tumblr.com/post/652427426660532224](https://t.me/ferretman/2527)
-- [Mediashe’s getting all comfy in MY comfy blankey! but that’s ok… she can take a nap there ☺️ : ferretsvia Ferret Story https://punkrocknat.tumblr...](https://t.me/ferretman/2526)
-- [MediaMediaxombiedirge:Overwatch illustrations by Bengal / Tumblrvia Ferret Story https://punkrocknat.tumblr.com/post/652385894178881536](https://t.me/ferretman/2525)
+- [thatweirdferretlady: dreamofserenity626: -Watching one of them trying to calculate a jump from the...via Ferret Story https://just-a-catastrophy.tumbl...](https://t.me/ferretman/2538)
+- [MediaBoy he sure loves that rice box ☺️via Ferret Story https://scrisoridemai.tumblr.com/post/652438741749809152](https://t.me/ferretman/2537)
+- [MediaThis is Rouge, don’t be fooled by the cuteness- she keeps trying to stash me under the sofa, behind the cabinet & in her bed, she still doesn’t...](https://t.me/ferretman/2536)
+- [MediaSleepy Ferret Can’t Sleep Because of the Outside Noise : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652431161002442752](https://t.me/ferretman/2535)
+- [MediaMy 6 year old baby : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652427497756147712](https://t.me/ferretman/2534)
 <!-- TELEGRAM:END -->
