@@ -74,9 +74,9 @@ You...](https://come-forth-into-the-light.tumblr.com/post/652329284028039168)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [alohammora:punkbonnibel:I have one brain cell and it bounces around in my skull like a windows screen saverWhen it bounces perfectly in the corner i e...](https://t.me/ferretman/2529)
+- [MediaMomma give new digs? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652427428545822720](https://t.me/ferretman/2528)
+- [Mediatatianakawkaw:Ghost pumpkinvia Ferret Story https://babyiwannaknow.tumblr.com/post/652427426660532224](https://t.me/ferretman/2527)
+- [Mediashe’s getting all comfy in MY comfy blankey! but that’s ok… she can take a nap there ☺️ : ferretsvia Ferret Story https://punkrocknat.tumblr...](https://t.me/ferretman/2526)
 - [MediaMediaxombiedirge:Overwatch illustrations by Bengal / Tumblrvia Ferret Story https://punkrocknat.tumblr.com/post/652385894178881536](https://t.me/ferretman/2525)
-- [honigimohr: I’m at the “we’ll see” stage in my life. With everything and everyone. We will see.via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/2524)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2523)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2522)
-- [thelifeofmyferrets:Goodnightvia Ferret Story https://prettypeterparkr.tumblr.com/post/652378319077163008](https://t.me/ferretman/2521)
 <!-- TELEGRAM:END -->
