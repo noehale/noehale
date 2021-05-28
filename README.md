@@ -83,9 +83,9 @@ LEAF HEAD LEAF HEAD...](https://come-forth-into-the-light.tumblr.com/post/652261
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediawelele:Pop, rock, reguetón, punk, rap y flamenkito.via Ferret Story https://falalamingo.tumblr.com/post/652367109266063360](https://t.me/ferretman/2516)
-- [quillusquillus:baapi-makwa:my friends cat loves attacking xmas trees but hates plastic bagsMediathe narrative tension in this picture is outrageousvia...](https://t.me/ferretman/2515)
-- [Mediaannehathawillannehathaway:“are you wearing the-”“the chanel boots? yeah i am”via Ferret Story https://just-a-catastrophy.tumblr.com/post/6523...](https://t.me/ferretman/2514)
-- [valentiniian:wisdom dogvia Ferret Story https://prettypeterparkr.tumblr.com/post/652348136535326720](https://t.me/ferretman/2513)
-- [Mediatheferrets:theferrets:The whole gangIf I could go back… I wouldvia Ferret Story https://scrisoridemai.tumblr.com/post/652348114085281792](https://t.me/ferretman/2512)
+- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2522)
+- [thelifeofmyferrets:Goodnightvia Ferret Story https://prettypeterparkr.tumblr.com/post/652378319077163008](https://t.me/ferretman/2521)
+- [MediaJust a noodle doing noodle things🤷🏻‍♀️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652370784417873920](https://t.me/ferretman/2520)
+- [Mediaitscolossal:Archaeologists Unearth a Nearly 2,000-Year-Old Cat Geoglyph Lounging on a Peruvian Hillsidevia Ferret Story https://xxcrybby.tumblr.c...](https://t.me/ferretman/2519)
+- [MediaRice box fun : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652367109018517504](https://t.me/ferretman/2518)
 <!-- TELEGRAM:END -->
