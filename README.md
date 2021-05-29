@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [strippernamedsteve:
+torridgristle:
+
+hookedonplunderphonics:
+
+does...](https://come-forth-into-the-light.tumblr.com/post/652510447986196480)
 - [little tongue : ferrets](https://come-forth-into-the-light.tumblr.com/post/652465142526803968)
 - [penllawen:redcloud:
 
@@ -62,7 +68,6 @@ s...](https://come-forth-into-the-light.tumblr.com/post/652442520008146944)
 - [petaflop:
 White Northern Lights in Finland
 ](https://come-forth-into-the-light.tumblr.com/post/652374555629879296)
-- [kasnas:kasnas:2015 absolutely drained me. I need abouta 2 year long nap, see you in 2017, folks....](https://come-forth-into-the-light.tumblr.com/post/652351974433570816)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
