@@ -68,9 +68,9 @@ White Northern Lights in Finland
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaJust wanted to stop by and share my new beautiful rescue addition 🥺via Ferret Story https://just-a-catastrophy.tumblr.com/post/652472727781916...](https://t.me/ferretman/2547)
+- [MediaMediaMediaMediaMediaMediareeve-of-caerwyn:@kotaplez Some baby weasels, stoats, and ferrets to make you feel better.via Ferret Story https://scris...](https://t.me/ferretman/2546)
+- [victoria-is-trash:asexualizing:liking abba is not your taste in music it’s a way of life and people who don’t like abba can’t reach the ideal world...](https://t.me/ferretman/2545)
+- [MediaIf she’s not cleaning my ears she’s after my headphones lol : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652461392487661568](https://t.me/ferretman/2544)
 - [everythingfox:“Jasper had his very first experience with snow today. I think he enjoyed it! I can’t wait for all of our hiking adventures.”(Source)...](https://t.me/ferretman/2543)
-- [Media“Why did you uncover me?!” : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652457663609946112](https://t.me/ferretman/2542)
-- [MediaMy sweet Ori having an afternoon snooze : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652457663088754688](https://t.me/ferretman/2541)
-- [MediaDid Nickelodeon say they needed a new Avatar for their new content? Look no further! : ferretsvia Ferret Story https://falalamingo.tumblr.com/pos...](https://t.me/ferretman/2540)
-- [MediaSo my baby girl cannot get up or down her ramps. She had fallen off or backwards multiple times until I wrapped the ramp in chicken wire. I tried...](https://t.me/ferretman/2539)
 <!-- TELEGRAM:END -->
