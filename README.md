@@ -78,9 +78,9 @@ s...](https://come-forth-into-the-light.tumblr.com/post/652442520008146944)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediareeve-of-caerwyn:@kotaplez Some baby weasels, stoats, and ferrets to make you feel better.via Ferret Story https://scris...](https://t.me/ferretman/2559)
-- [MediaBoy he sure loves that rice box ☺️via Ferret Story https://scrisoridemai.tumblr.com/post/652438741749809152](https://t.me/ferretman/2558)
-- [Mediashe’s getting all comfy in MY comfy blankey! but that’s ok… she can take a nap there ☺️ : ferretsvia Ferret Story https://punkrocknat.tumblr...](https://t.me/ferretman/2557)
-- [MediaMediaxombiedirge:Overwatch illustrations by Bengal / Tumblrvia Ferret Story https://punkrocknat.tumblr.com/post/652385894178881536](https://t.me/ferretman/2556)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2555)
+- [Mediapseudonymjones:whatnostfuiloveyou:pseudonymjones:I came out to my parentsI s2g i thought the dad duck’s reaction was going to be something along...](https://t.me/ferretman/2566)
+- [<a href="https://64.media.tumblr.com/ecbc61ef5d89340b5263fb811a35ba66/tumblr_n705kpqAPp1qbrntno1_500.jpg">Media</a><a href="https://jenniferrpovey.tum...](https://t.me/ferretman/2565)
+- [MediaThis little demon is called Hiyori. 😈😍 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652518028186157056](https://t.me/ferretman/2564)
+- [skyrover9:mkaiser323:It’s fun to chant “Bloody Mary” into your car’s side mirror three times and watch her jog and try to keep up.Being a dick eve...](https://t.me/ferretman/2563)
+- [MediaMy new and first baby Opal :) : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652518028180963328](https://t.me/ferretman/2562)
 <!-- TELEGRAM:END -->
