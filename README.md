@@ -68,9 +68,9 @@ White Northern Lights in Finland
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [daddylexas:me, with tears in my eyes: time to make a jokevia Ferret Story https://punkrocknat.tumblr.com/post/652506657115537408](https://t.me/ferretman/2554)
 - [MediaMy sweet Ori having an afternoon snooze : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652457663088754688](https://t.me/ferretman/2553)
 - [MediaDid Nickelodeon say they needed a new Avatar for their new content? Look no further! : ferretsvia Ferret Story https://falalamingo.tumblr.com/pos...](https://t.me/ferretman/2552)
 - [MediaMy 6 year old baby : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652427497756147712](https://t.me/ferretman/2551)
 - [Mediatyleroakley:Finally, I can be me.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652427428512268288](https://t.me/ferretman/2550)
-- [Mediawelele:Pop, rock, reguetón, punk, rap y flamenkito.via Ferret Story https://falalamingo.tumblr.com/post/652367109266063360](https://t.me/ferretman/2549)
 <!-- TELEGRAM:END -->
