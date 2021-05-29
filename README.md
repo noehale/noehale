@@ -68,9 +68,9 @@ White Northern Lights in Finland
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaJust wanted to stop by and share my new beautiful rescue addition 🥺via Ferret Story https://just-a-catastrophy.tumblr.com/post/652472727781916...](https://t.me/ferretman/2547)
-- [MediaMediaMediaMediaMediaMediareeve-of-caerwyn:@kotaplez Some baby weasels, stoats, and ferrets to make you feel better.via Ferret Story https://scris...](https://t.me/ferretman/2546)
-- [victoria-is-trash:asexualizing:liking abba is not your taste in music it’s a way of life and people who don’t like abba can’t reach the ideal world...](https://t.me/ferretman/2545)
-- [MediaIf she’s not cleaning my ears she’s after my headphones lol : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652461392487661568](https://t.me/ferretman/2544)
-- [everythingfox:“Jasper had his very first experience with snow today. I think he enjoyed it! I can’t wait for all of our hiking adventures.”(Source)...](https://t.me/ferretman/2543)
+- [MediaMy sweet Ori having an afternoon snooze : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652457663088754688](https://t.me/ferretman/2553)
+- [MediaDid Nickelodeon say they needed a new Avatar for their new content? Look no further! : ferretsvia Ferret Story https://falalamingo.tumblr.com/pos...](https://t.me/ferretman/2552)
+- [MediaMy 6 year old baby : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652427497756147712](https://t.me/ferretman/2551)
+- [Mediatyleroakley:Finally, I can be me.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652427428512268288](https://t.me/ferretman/2550)
+- [Mediawelele:Pop, rock, reguetón, punk, rap y flamenkito.via Ferret Story https://falalamingo.tumblr.com/post/652367109266063360](https://t.me/ferretman/2549)
 <!-- TELEGRAM:END -->
