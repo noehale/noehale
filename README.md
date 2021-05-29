@@ -78,9 +78,9 @@ s...](https://come-forth-into-the-light.tumblr.com/post/652442520008146944)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediapseudonymjones:whatnostfuiloveyou:pseudonymjones:I came out to my parentsI s2g i thought the dad duck’s reaction was going to be something along...](https://t.me/ferretman/2566)
-- [<a href="https://64.media.tumblr.com/ecbc61ef5d89340b5263fb811a35ba66/tumblr_n705kpqAPp1qbrntno1_500.jpg">Media</a><a href="https://jenniferrpovey.tum...](https://t.me/ferretman/2565)
-- [MediaThis little demon is called Hiyori. 😈😍 : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652518028186157056](https://t.me/ferretman/2564)
-- [skyrover9:mkaiser323:It’s fun to chant “Bloody Mary” into your car’s side mirror three times and watch her jog and try to keep up.Being a dick eve...](https://t.me/ferretman/2563)
-- [MediaMy new and first baby Opal :) : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652518028180963328](https://t.me/ferretman/2562)
+- [daddylexas:me, with tears in my eyes: time to make a jokevia Ferret Story https://punkrocknat.tumblr.com/post/652506657115537408](https://t.me/ferretman/2554)
+- [MediaMy sweet Ori having an afternoon snooze : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652457663088754688](https://t.me/ferretman/2553)
+- [MediaDid Nickelodeon say they needed a new Avatar for their new content? Look no further! : ferretsvia Ferret Story https://falalamingo.tumblr.com/pos...](https://t.me/ferretman/2552)
+- [MediaMy 6 year old baby : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652427497756147712](https://t.me/ferretman/2551)
+- [Mediatyleroakley:Finally, I can be me.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652427428512268288](https://t.me/ferretman/2550)
 <!-- TELEGRAM:END -->
