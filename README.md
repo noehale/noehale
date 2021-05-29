@@ -73,9 +73,9 @@ White Northern Lights in Finland
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [daddylexas:me, with tears in my eyes: time to make a jokevia Ferret Story https://punkrocknat.tumblr.com/post/652506657115537408](https://t.me/ferretman/2554)
-- [MediaMy sweet Ori having an afternoon snooze : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652457663088754688](https://t.me/ferretman/2553)
-- [MediaDid Nickelodeon say they needed a new Avatar for their new content? Look no further! : ferretsvia Ferret Story https://falalamingo.tumblr.com/pos...](https://t.me/ferretman/2552)
-- [MediaMy 6 year old baby : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652427497756147712](https://t.me/ferretman/2551)
-- [Mediatyleroakley:Finally, I can be me.via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652427428512268288](https://t.me/ferretman/2550)
+- [MediaMediaMediaMediaMediaMediareeve-of-caerwyn:@kotaplez Some baby weasels, stoats, and ferrets to make you feel better.via Ferret Story https://scris...](https://t.me/ferretman/2559)
+- [MediaBoy he sure loves that rice box ☺️via Ferret Story https://scrisoridemai.tumblr.com/post/652438741749809152](https://t.me/ferretman/2558)
+- [Mediashe’s getting all comfy in MY comfy blankey! but that’s ok… she can take a nap there ☺️ : ferretsvia Ferret Story https://punkrocknat.tumblr...](https://t.me/ferretman/2557)
+- [MediaMediaxombiedirge:Overwatch illustrations by Bengal / Tumblrvia Ferret Story https://punkrocknat.tumblr.com/post/652385894178881536](https://t.me/ferretman/2556)
+- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2555)
 <!-- TELEGRAM:END -->
