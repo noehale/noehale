@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [wavecapwarfare:
+y’all jackin off physically but neglecting to jack off mentally and spiritually
+](https://come-forth-into-the-light.tumblr.com/post/652601093192384512)
 - [penllawen:wyndamwesley:
 
 
@@ -70,15 +73,6 @@ hookedonplunderphonics:
 
 does...](https://come-forth-into-the-light.tumblr.com/post/652510447986196480)
 - [little tongue : ferrets](https://come-forth-into-the-light.tumblr.com/post/652465142526803968)
-- [penllawen:redcloud:
-
-dig-the-cat:
-
-yodelmachine:
-
-bananacasts:
-
-s...](https://come-forth-into-the-light.tumblr.com/post/652442520008146944)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
