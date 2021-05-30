@@ -84,9 +84,9 @@ s...](https://come-forth-into-the-light.tumblr.com/post/652442520008146944)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaxombiedirge:Overwatch illustrations by Bengal / Tumblrvia Ferret Story https://punkrocknat.tumblr.com/post/652385894178881536](https://t.me/ferretman/2525)
-- [honigimohr: I’m at the “we’ll see” stage in my life. With everything and everyone. We will see.via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/2524)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2523)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2522)
-- [thelifeofmyferrets:Goodnightvia Ferret Story https://prettypeterparkr.tumblr.com/post/652378319077163008](https://t.me/ferretman/2521)
+- [MediaHi! My baby just started vomiting. He’s shedding and I heard that they can, while shedding. It’s clear white mucus, without any undigested food...](https://t.me/ferretman/2579)
+- [MediaSlow motion food blissvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652563294151983104](https://t.me/ferretman/2578)
+- [Mediabob-artist:bob-artist:bob-artist:No April Fool’s jokes this year.  Just a fool.imageNew year, same old fool.Mediafoolvia Ferret Story https://p...](https://t.me/ferretman/2577)
+- [MediaPhoebe has a joke for y’all…via Ferret Story https://scrisoridemai.tumblr.com/post/652559502163525632](https://t.me/ferretman/2576)
+- [MediaSuccessful Surgery : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652551987105316864](https://t.me/ferretman/2575)
 <!-- TELEGRAM:END -->
