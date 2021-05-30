@@ -48,6 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [penllawen:wyndamwesley:
+
+
+
+Firefly references in Castle.
+
+Didn’t...](https://come-forth-into-the-light.tumblr.com/post/652555758634926080)
 - [bead-bead:
 jumpingjacktrash:
 
@@ -72,7 +79,6 @@ yodelmachine:
 bananacasts:
 
 s...](https://come-forth-into-the-light.tumblr.com/post/652442520008146944)
-- [hitmewithcute:Let’s be friends](https://come-forth-into-the-light.tumblr.com/post/652419869729538048)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
