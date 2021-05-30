@@ -85,9 +85,9 @@ does...](https://come-forth-into-the-light.tumblr.com/post/652510447986196480)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652623775346...](https://t.me/ferretman/2592)
+- [vet-and-wild:Rav has been so spunky lately and I love itvia Ferret Story https://scrisoridemai.tumblr.com/post/652619911718387712](https://t.me/ferretman/2591)
+- [bob-artist:When you lie on the floor in the same room where you keep the treats.via Ferret Story https://prettypeterparkr.tumblr.com/post/652619911684...](https://t.me/ferretman/2590)
 - [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652623775346...](https://t.me/ferretman/2589)
 - [vet-and-wild:Rav has been so spunky lately and I love itvia Ferret Story https://scrisoridemai.tumblr.com/post/652619911718387712](https://t.me/ferretman/2588)
-- [bob-artist:When you lie on the floor in the same room where you keep the treats.via Ferret Story https://prettypeterparkr.tumblr.com/post/652619911684...](https://t.me/ferretman/2587)
-- [MediaFinally finished my family portrait!! My small business 💕 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652612377213337600](https://t.me/ferretman/2586)
-- [everythingfox:Slinky boi(via)via Ferret Story https://babyiwannaknow.tumblr.com/post/652608659337232384](https://t.me/ferretman/2585)
 <!-- TELEGRAM:END -->
