@@ -48,6 +48,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [ekoenigs:
+danchorman:
+
+When you think a meme is dying out:
+
+
+This is the worst post I’ve ever seen
+](https://come-forth-into-the-light.tumblr.com/post/652623755559993344)
 - [wavecapwarfare:
 y’all jackin off physically but neglecting to jack off mentally and spiritually
 ](https://come-forth-into-the-light.tumblr.com/post/652601093192384512)
@@ -72,7 +80,6 @@ torridgristle:
 hookedonplunderphonics:
 
 does...](https://come-forth-into-the-light.tumblr.com/post/652510447986196480)
-- [little tongue : ferrets](https://come-forth-into-the-light.tumblr.com/post/652465142526803968)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
