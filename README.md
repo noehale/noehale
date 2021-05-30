@@ -84,9 +84,9 @@ s...](https://come-forth-into-the-light.tumblr.com/post/652442520008146944)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaDreaming about stealing ankle socksvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652533113369608192](https://t.me/ferretman/2569)
-- [thatweirdferretlady:Point madevia Ferret Story https://scrisoridemai.tumblr.com/post/652529322858594304](https://t.me/ferretman/2568)
-- [MediaRocket likes to play “Couch Troll.” Any other noodles play this game?via Ferret Story https://prettypeterparkr.tumblr.com/post/6525293023232327...](https://t.me/ferretman/2567)
-- [Mediapseudonymjones:whatnostfuiloveyou:pseudonymjones:I came out to my parentsI s2g i thought the dad duck’s reaction was going to be something along...](https://t.me/ferretman/2566)
-- [<a href="https://64.media.tumblr.com/ecbc61ef5d89340b5263fb811a35ba66/tumblr_n705kpqAPp1qbrntno1_500.jpg">Media</a><a href="https://jenniferrpovey.tum...](https://t.me/ferretman/2565)
+- [MediaMediaxombiedirge:Overwatch illustrations by Bengal / Tumblrvia Ferret Story https://punkrocknat.tumblr.com/post/652385894178881536](https://t.me/ferretman/2525)
+- [honigimohr: I’m at the “we’ll see” stage in my life. With everything and everyone. We will see.via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/2524)
+- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2523)
+- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://scrisoridemai.tumblr.com/post/652378319078277120](https://t.me/ferretman/2522)
+- [thelifeofmyferrets:Goodnightvia Ferret Story https://prettypeterparkr.tumblr.com/post/652378319077163008](https://t.me/ferretman/2521)
 <!-- TELEGRAM:END -->
