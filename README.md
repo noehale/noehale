@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/652646356662566912)
 - [ekoenigs:
 danchorman:
 
@@ -74,12 +75,6 @@ estychan:
 sandblocks:
 
 Why use a...](https://come-forth-into-the-light.tumblr.com/post/652533188183343104)
-- [strippernamedsteve:
-torridgristle:
-
-hookedonplunderphonics:
-
-does...](https://come-forth-into-the-light.tumblr.com/post/652510447986196480)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
