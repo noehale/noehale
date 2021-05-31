@@ -68,9 +68,9 @@ y’all jackin off physically but neglecting to jack off mentally and spirituall
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652714319517188096](https://t.me/ferretman/2622)
+- [MediaMy newest baby. Waardy boy Linkvia Ferret Story https://scrisoridemai.tumblr.com/post/652710549146222592](https://t.me/ferretman/2621)
+- [MediaMonty and Naruto decided to lounge together today 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/652710548901871616](https://t.me/ferretman/2620)
+- [MediaAffliction went downhill last night and is at the emergency vets. Looking for advice on what might be going on. Details in comments. : ferretsvia...](https://t.me/ferretman/2619)
 - [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652699244078252032](https://t.me/ferretman/2618)
-- [Mediajust wanted to introduce my fur noodles here! I got them in February and they’ve been a bundle of joy ever since. From left to right is Daxter, ...](https://t.me/ferretman/2617)
-- [MediaSibling squishes : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652699217871208448](https://t.me/ferretman/2616)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652699202716155904](https://t.me/ferretman/2615)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Doodlelotl on Inprntvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/p...](https://t.me/ferretman/2614)
 <!-- TELEGRAM:END -->
