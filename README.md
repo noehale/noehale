@@ -80,9 +80,9 @@ Why use a...](https://come-forth-into-the-light.tumblr.com/post/6525331881833431
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652623775346...](https://t.me/ferretman/2592)
-- [vet-and-wild:Rav has been so spunky lately and I love itvia Ferret Story https://scrisoridemai.tumblr.com/post/652619911718387712](https://t.me/ferretman/2591)
-- [bob-artist:When you lie on the floor in the same room where you keep the treats.via Ferret Story https://prettypeterparkr.tumblr.com/post/652619911684...](https://t.me/ferretman/2590)
-- [ajellybeaver:in the tags put your pets name vs what you actually call your petvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652623775346...](https://t.me/ferretman/2589)
-- [vet-and-wild:Rav has been so spunky lately and I love itvia Ferret Story https://scrisoridemai.tumblr.com/post/652619911718387712](https://t.me/ferretman/2588)
+- [MediaThe most beautiful smile in the world. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652642586318766080](https://t.me/ferretman/2602)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/652638873509363712](https://t.me/ferretman/2601)
+- [MediaWhat a goon. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652638864978182145](https://t.me/ferretman/2600)
+- [MediaIs anyone else’s baby a messy drinker? : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652638864027074560](https://t.me/ferretman/2599)
+- [MediaI made this little video about the “twins” My daughter is in the back saying “Shawn is fat” its true lol the boys are chunks : ferretsvia Fer...](https://t.me/ferretman/2598)
 <!-- TELEGRAM:END -->
