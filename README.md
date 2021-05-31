@@ -66,9 +66,9 @@ This is the worst post I’ve ever seen
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652714319517188096](https://t.me/ferretman/2622)
-- [MediaMy newest baby. Waardy boy Linkvia Ferret Story https://scrisoridemai.tumblr.com/post/652710549146222592](https://t.me/ferretman/2621)
-- [MediaMonty and Naruto decided to lounge together today 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/652710548901871616](https://t.me/ferretman/2620)
-- [MediaAffliction went downhill last night and is at the emergency vets. Looking for advice on what might be going on. Details in comments. : ferretsvia...](https://t.me/ferretman/2619)
-- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652699244078252032](https://t.me/ferretman/2618)
+- [theferrets:This is how she carries her balls around.via Ferret Story https://babyiwannaknow.tumblr.com/post/652729453502496768](https://t.me/ferretman/2627)
+- [Mediagoodmorning (or night) fellow noodle lovers, quick question, Rori just started doing this with his fav ball and idk if he’s playing or something...](https://t.me/ferretman/2626)
+- [MediaElla’s little feetsies were sticking out so of course I had to tickle them…Ella was not amused. : ferretsvia Ferret Story https://somewhere-int...](https://t.me/ferretman/2625)
+- [becausebirds:The greatest video of all time.via Ferret Story https://xxcrybby.tumblr.com/post/652729428522172416](https://t.me/ferretman/2624)
+- [MediaStu sometimes sleeps with his tongue all the way out, it’s always cute when he wakes up and furiously wipes his face like I was the one who droo...](https://t.me/ferretman/2623)
 <!-- TELEGRAM:END -->
