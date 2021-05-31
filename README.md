@@ -73,9 +73,9 @@ Didn’t...](https://come-forth-into-the-light.tumblr.com/post/65255575863492608
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMore of ghost snorkeling lol : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/652657675625201664](https://t.me/ferretman/2606)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652653926564397056](https://t.me/ferretman/2605)
-- [MediaAria having too much fun.via Ferret Story https://scrisoridemai.tumblr.com/post/652650143207849984](https://t.me/ferretman/2604)
-- [MediaA bit too hyper before bedvia Ferret Story https://prettypeterparkr.tumblr.com/post/652650117940281344](https://t.me/ferretman/2603)
-- [MediaThe most beautiful smile in the world. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652642586318766080](https://t.me/ferretman/2602)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652699244078252032](https://t.me/ferretman/2612)
+- [Mediajust wanted to introduce my fur noodles here! I got them in February and they’ve been a bundle of joy ever since. From left to right is Daxter, ...](https://t.me/ferretman/2611)
+- [MediaSibling squishes : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652699217871208448](https://t.me/ferretman/2610)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652699202716155904](https://t.me/ferretman/2609)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediasosuperawesome:Doodlelotl on Inprntvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/p...](https://t.me/ferretman/2608)
 <!-- TELEGRAM:END -->
