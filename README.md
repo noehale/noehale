@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/652691680029442048)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652646356662566912)
 - [ekoenigs:
 danchorman:
@@ -67,14 +68,6 @@ y’all jackin off physically but neglecting to jack off mentally and spirituall
 Firefly references in Castle.
 
 Didn’t...](https://come-forth-into-the-light.tumblr.com/post/652555758634926080)
-- [bead-bead:
-jumpingjacktrash:
-
-estychan:
-
-sandblocks:
-
-Why use a...](https://come-forth-into-the-light.tumblr.com/post/652533188183343104)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
