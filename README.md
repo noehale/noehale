@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [doubleantlerwilfred:
+also i may or may not have dismembered him...](https://come-forth-into-the-light.tumblr.com/post/652714302127685632)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652691680029442048)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652646356662566912)
 - [ekoenigs:
@@ -61,13 +63,6 @@ This is the worst post I’ve ever seen
 - [wavecapwarfare:
 y’all jackin off physically but neglecting to jack off mentally and spiritually
 ](https://come-forth-into-the-light.tumblr.com/post/652601093192384512)
-- [penllawen:wyndamwesley:
-
-
-
-Firefly references in Castle.
-
-Didn’t...](https://come-forth-into-the-light.tumblr.com/post/652555758634926080)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
