@@ -66,9 +66,9 @@ This is the worst post I’ve ever seen
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [theferrets:theferrets:Music makes everything that much better! These guy is being reblogged again. Rest in peace my dear babe. Wish I could see you d...](https://t.me/ferretman/2631)
-- [View this post on InstagramA post shared by まっきー (@makin)via Ferret Story https://scrisoridemai.tumblr.com/post/652740726497624064](https://t.me/ferretman/2630)
-- [Mediacleoselene:lord-blongus:scp2008:amuzed1:saito-91:thenamesdiondra:cynosurecosplay:batter-sempai:sueanoi:pardonmewhileipanic:bankuei:meqabitch:ther...](https://t.me/ferretman/2629)
-- [MediaCloak has replaced me with the bf as his fav snuggle buddy. Here he is begging to be picked up : ferretsvia Ferret Story https://anasfalhhhs.tumb...](https://t.me/ferretman/2628)
-- [theferrets:This is how she carries her balls around.via Ferret Story https://babyiwannaknow.tumblr.com/post/652729453502496768](https://t.me/ferretman/2627)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652714319517188096](https://t.me/ferretman/2622)
+- [MediaMy newest baby. Waardy boy Linkvia Ferret Story https://scrisoridemai.tumblr.com/post/652710549146222592](https://t.me/ferretman/2621)
+- [MediaMonty and Naruto decided to lounge together today 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/652710548901871616](https://t.me/ferretman/2620)
+- [MediaAffliction went downhill last night and is at the emergency vets. Looking for advice on what might be going on. Details in comments. : ferretsvia...](https://t.me/ferretman/2619)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652699244078252032](https://t.me/ferretman/2618)
 <!-- TELEGRAM:END -->
