@@ -48,19 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [When you wake up and don’t know what year it is : ferrets](https://come-forth-into-the-light.tumblr.com/post/652782242997960704)
 - [Was looking for one of of ferrets…. : ferrets](https://come-forth-into-the-light.tumblr.com/post/652736981083750400)
 - [doubleantlerwilfred:
 also i may or may not have dismembered him...](https://come-forth-into-the-light.tumblr.com/post/652714302127685632)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652691680029442048)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652646356662566912)
-- [ekoenigs:
-danchorman:
-
-When you think a meme is dying out:
-
-
-This is the worst post I’ve ever seen
-](https://come-forth-into-the-light.tumblr.com/post/652623755559993344)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
