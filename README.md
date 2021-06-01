@@ -48,12 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [seitz9231:Tiny furry philosopher](https://come-forth-into-the-light.tumblr.com/post/652804917829025794)
 - [When you wake up and don’t know what year it is : ferrets](https://come-forth-into-the-light.tumblr.com/post/652782242997960704)
 - [Was looking for one of of ferrets…. : ferrets](https://come-forth-into-the-light.tumblr.com/post/652736981083750400)
 - [doubleantlerwilfred:
 also i may or may not have dismembered him...](https://come-forth-into-the-light.tumblr.com/post/652714302127685632)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/652691680029442048)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/652646356662566912)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
