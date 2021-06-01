@@ -59,9 +59,9 @@ also i may or may not have dismembered him...](https://come-forth-into-the-light
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [everythingfox:Slinky boi(via)via Ferret Story https://punkrocknat.tumblr.com/post/652778468957962240](https://t.me/ferretman/2634)
-- [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2633)
-- [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2632)
-- [theferrets:theferrets:Music makes everything that much better! These guy is being reblogged again. Rest in peace my dear babe. Wish I could see you d...](https://t.me/ferretman/2631)
-- [View this post on InstagramA post shared by まっきー (@makin)via Ferret Story https://scrisoridemai.tumblr.com/post/652740726497624064](https://t.me/ferretman/2630)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652789866245111808](https://t.me/ferretman/2640)
+- [Mediajayxenos:Devil’s Bridge, Worm’s Head island, Rhossili, Wales by Deborah Smithvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/po...](https://t.me/ferretman/2639)
+- [MediaWent to let them out for the evening and found Havoc in the middle of some existential crisis! : ferretsvia Ferret Story https://redzgn.tumblr.co...](https://t.me/ferretman/2638)
+- [MediaAlways in circles : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652793568864370688](https://t.me/ferretman/2637)
+- [Mediasirfrogsworth:AOC said on Instagram she is getting about 5 hours of sleep and working until 9-10pm at night during this crisis. To help her decom...](https://t.me/ferretman/2636)
 <!-- TELEGRAM:END -->
