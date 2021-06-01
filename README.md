@@ -66,9 +66,9 @@ This is the worst post I’ve ever seen
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [theferrets:theferrets:Music makes everything that much better! These guy is being reblogged again. Rest in peace my dear babe. Wish I could see you d...](https://t.me/ferretman/2631)
+- [View this post on InstagramA post shared by まっきー (@makin)via Ferret Story https://scrisoridemai.tumblr.com/post/652740726497624064](https://t.me/ferretman/2630)
+- [Mediacleoselene:lord-blongus:scp2008:amuzed1:saito-91:thenamesdiondra:cynosurecosplay:batter-sempai:sueanoi:pardonmewhileipanic:bankuei:meqabitch:ther...](https://t.me/ferretman/2629)
+- [MediaCloak has replaced me with the bf as his fav snuggle buddy. Here he is begging to be picked up : ferretsvia Ferret Story https://anasfalhhhs.tumb...](https://t.me/ferretman/2628)
 - [theferrets:This is how she carries her balls around.via Ferret Story https://babyiwannaknow.tumblr.com/post/652729453502496768](https://t.me/ferretman/2627)
-- [Mediagoodmorning (or night) fellow noodle lovers, quick question, Rori just started doing this with his fav ball and idk if he’s playing or something...](https://t.me/ferretman/2626)
-- [MediaElla’s little feetsies were sticking out so of course I had to tickle them…Ella was not amused. : ferretsvia Ferret Story https://somewhere-int...](https://t.me/ferretman/2625)
-- [becausebirds:The greatest video of all time.via Ferret Story https://xxcrybby.tumblr.com/post/652729428522172416](https://t.me/ferretman/2624)
-- [MediaStu sometimes sleeps with his tongue all the way out, it’s always cute when he wakes up and furiously wipes his face like I was the one who droo...](https://t.me/ferretman/2623)
 <!-- TELEGRAM:END -->
