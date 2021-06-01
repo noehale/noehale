@@ -59,9 +59,9 @@ also i may or may not have dismembered him...](https://come-forth-into-the-light
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [everythingfox:Slinky boi(via)via Ferret Story https://punkrocknat.tumblr.com/post/652778468957962240](https://t.me/ferretman/2634)
 - [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2633)
 - [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2632)
 - [theferrets:theferrets:Music makes everything that much better! These guy is being reblogged again. Rest in peace my dear babe. Wish I could see you d...](https://t.me/ferretman/2631)
 - [View this post on InstagramA post shared by まっきー (@makin)via Ferret Story https://scrisoridemai.tumblr.com/post/652740726497624064](https://t.me/ferretman/2630)
-- [Mediacleoselene:lord-blongus:scp2008:amuzed1:saito-91:thenamesdiondra:cynosurecosplay:batter-sempai:sueanoi:pardonmewhileipanic:bankuei:meqabitch:ther...](https://t.me/ferretman/2629)
 <!-- TELEGRAM:END -->
