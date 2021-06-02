@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:sargitarium:
+
+B&W
+
+
+Line art solar system](https://come-forth-into-the-light.tumblr.com/post/652895548092907520)
 - [petaflop:Basketball field, La Paz, Bolivia. Photo by Klaus...](https://come-forth-into-the-light.tumblr.com/post/652872834001059840)
 - [bromar:
 *goes to england*
@@ -56,7 +62,6 @@ brit: time wots that m8?
 *big ben...](https://come-forth-into-the-light.tumblr.com/post/652827530886365184)
 - [seitz9231:Tiny furry philosopher](https://come-forth-into-the-light.tumblr.com/post/652804917829025794)
 - [When you wake up and don’t know what year it is : ferrets](https://come-forth-into-the-light.tumblr.com/post/652782242997960704)
-- [Was looking for one of of ferrets…. : ferrets](https://come-forth-into-the-light.tumblr.com/post/652736981083750400)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
