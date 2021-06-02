@@ -67,9 +67,9 @@ brit: time wots that m8?
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHaving fun in snowvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652895569867620352](https://t.me/ferretman/2663)
-- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/652891695525068800](https://t.me/ferretman/2662)
-- [MediaYou sleep in the bed, not on top of it!via Ferret Story https://scrisoridemai.tumblr.com/post/652891692489457664](https://t.me/ferretman/2661)
-- [MediaI just want to thank you all for your help I got my new cage and she’s loving it she still doesn’t like to eat her food in the bowl she always ...](https://t.me/ferretman/2660)
-- [MediaBrothers Being Brothers, Vincent and Jules : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652880434664964096](https://t.me/ferretman/2659)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652714319517188096](https://t.me/ferretman/2622)
+- [MediaMy newest baby. Waardy boy Linkvia Ferret Story https://scrisoridemai.tumblr.com/post/652710549146222592](https://t.me/ferretman/2621)
+- [MediaMonty and Naruto decided to lounge together today 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/652710548901871616](https://t.me/ferretman/2620)
+- [MediaAffliction went downhill last night and is at the emergency vets. Looking for advice on what might be going on. Details in comments. : ferretsvia...](https://t.me/ferretman/2619)
+- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652699244078252032](https://t.me/ferretman/2618)
 <!-- TELEGRAM:END -->
