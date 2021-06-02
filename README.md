@@ -63,9 +63,9 @@ also i may or may not have dismembered him...](https://come-forth-into-the-light
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMy 1st ferret!via Ferret Story https://just-a-catastrophy.tumblr.com/post/652804920429461505](https://t.me/ferretman/2643)
-- [MediaThe great fallvia Ferret Story https://scrisoridemai.tumblr.com/post/652801117453008896](https://t.me/ferretman/2642)
-- [“Some people hide their sadness very well.”- Khaled Hosseini, And The Mountains Echoed (via bl-ossomed)via Ferret Story https://prettypeterparkr.tum...](https://t.me/ferretman/2641)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/652789866245111808](https://t.me/ferretman/2640)
-- [Mediajayxenos:Devil’s Bridge, Worm’s Head island, Rhossili, Wales by Deborah Smithvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/po...](https://t.me/ferretman/2639)
+- [lepidopterium:What if i fucked around and brewed myself some coffee right nowvia Ferret Story https://anasfalhhhs.tumblr.com/post/652823775758401536](https://t.me/ferretman/2649)
+- [Mediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652820052107821056](https://t.me/ferretman/2648)
+- [Mediaher favorite cave : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652820047318990848](https://t.me/ferretman/2647)
+- [MediaOzzy is happy, the snow is gone! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652820008818343936](https://t.me/ferretman/2646)
+- [MediaMother of ferrets! : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652820008852930560](https://t.me/ferretman/2645)
 <!-- TELEGRAM:END -->
