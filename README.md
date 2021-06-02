@@ -67,9 +67,9 @@ brit: time wots that m8?
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2633)
-- [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2632)
-- [theferrets:theferrets:Music makes everything that much better! These guy is being reblogged again. Rest in peace my dear babe. Wish I could see you d...](https://t.me/ferretman/2631)
-- [View this post on InstagramA post shared by まっきー (@makin)via Ferret Story https://scrisoridemai.tumblr.com/post/652740726497624064](https://t.me/ferretman/2630)
-- [Mediacleoselene:lord-blongus:scp2008:amuzed1:saito-91:thenamesdiondra:cynosurecosplay:batter-sempai:sueanoi:pardonmewhileipanic:bankuei:meqabitch:ther...](https://t.me/ferretman/2629)
+- [MediaHaving fun in snowvia Ferret Story https://just-a-catastrophy.tumblr.com/post/652895569867620352](https://t.me/ferretman/2663)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/652891695525068800](https://t.me/ferretman/2662)
+- [MediaYou sleep in the bed, not on top of it!via Ferret Story https://scrisoridemai.tumblr.com/post/652891692489457664](https://t.me/ferretman/2661)
+- [MediaI just want to thank you all for your help I got my new cage and she’s loving it she still doesn’t like to eat her food in the bowl she always ...](https://t.me/ferretman/2660)
+- [MediaBrothers Being Brothers, Vincent and Jules : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652880434664964096](https://t.me/ferretman/2659)
 <!-- TELEGRAM:END -->
