@@ -67,9 +67,9 @@ brit: time wots that m8?
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/2653)
-- [Mediaroachpatrol:cynological:That’s a weird dragon.shut up i love hervia Ferret Story https://just-a-catastrophy.tumblr.com/post/652835086757216256](https://t.me/ferretman/2652)
-- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/2651)
-- [bob-artist:Even Kit’s FEET get so super fluffy in winter, and I can’t handle it.Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/65283...](https://t.me/ferretman/2650)
-- [lepidopterium:What if i fucked around and brewed myself some coffee right nowvia Ferret Story https://anasfalhhhs.tumblr.com/post/652823775758401536](https://t.me/ferretman/2649)
+- [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2633)
+- [MediaToday I say goodbye to my dook dook queen. The manigister of mischief. My lady, my Nori. : ferretsvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2632)
+- [theferrets:theferrets:Music makes everything that much better! These guy is being reblogged again. Rest in peace my dear babe. Wish I could see you d...](https://t.me/ferretman/2631)
+- [View this post on InstagramA post shared by まっきー (@makin)via Ferret Story https://scrisoridemai.tumblr.com/post/652740726497624064](https://t.me/ferretman/2630)
+- [Mediacleoselene:lord-blongus:scp2008:amuzed1:saito-91:thenamesdiondra:cynosurecosplay:batter-sempai:sueanoi:pardonmewhileipanic:bankuei:meqabitch:ther...](https://t.me/ferretman/2629)
 <!-- TELEGRAM:END -->
