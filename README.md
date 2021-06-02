@@ -63,9 +63,9 @@ also i may or may not have dismembered him...](https://come-forth-into-the-light
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/2653)
+- [Mediaroachpatrol:cynological:That’s a weird dragon.shut up i love hervia Ferret Story https://just-a-catastrophy.tumblr.com/post/652835086757216256](https://t.me/ferretman/2652)
+- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/2651)
+- [bob-artist:Even Kit’s FEET get so super fluffy in winter, and I can’t handle it.Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/65283...](https://t.me/ferretman/2650)
 - [lepidopterium:What if i fucked around and brewed myself some coffee right nowvia Ferret Story https://anasfalhhhs.tumblr.com/post/652823775758401536](https://t.me/ferretman/2649)
-- [Mediavia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652820052107821056](https://t.me/ferretman/2648)
-- [Mediaher favorite cave : ferretsvia Ferret Story https://redzgn.tumblr.com/post/652820047318990848](https://t.me/ferretman/2647)
-- [MediaOzzy is happy, the snow is gone! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/652820008818343936](https://t.me/ferretman/2646)
-- [MediaMother of ferrets! : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652820008852930560](https://t.me/ferretman/2645)
 <!-- TELEGRAM:END -->
