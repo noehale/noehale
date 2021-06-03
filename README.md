@@ -66,9 +66,9 @@ Line art solar system](https://come-forth-into-the-light.tumblr.com/post/6528955
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaitsalburton:dogpawsswapgod:rnarianhawkes:so we got more beanie babies in at work the other day and i was lookin through them seeing if ...](https://t.me/ferretman/2683)
-- [MediaTalbit, being absolutely majesticvia Ferret Story https://scrisoridemai.tumblr.com/post/652982289263902720](https://t.me/ferretman/2682)
-- [theferrets:You spin me right round baby right round 🎶via Ferret Story https://prettypeterparkr.tumblr.com/post/652982286132936704](https://t.me/ferretman/2681)
-- [MediaPhoebe has frankly had enough of my sh*t. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652974783959597056](https://t.me/ferretman/2680)
-- [Mediascottlava:“We’re Werewolves, not Swear-Wolves.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652971063548002304](https://t.me/ferretman/2679)
+- [problackgirl:“real men dont rape” actually, real men do rape. they do. men rape. it isn’t done by ~fake mythical special brand of evil~ men, it’s ...](https://t.me/ferretman/2689)
+- [MediaMediadwight-schrutes:happy indigenous people day!via Ferret Story https://babyiwannaknow.tumblr.com/post/653001263428026368](https://t.me/ferretman/2688)
+- [MediaTell me you have a cute nose without telling me you have a cute nose. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/po...](https://t.me/ferretman/2687)
+- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/653001254962872320](https://t.me/ferretman/2686)
+- [MediaShe sleeps : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653001226648272896](https://t.me/ferretman/2685)
 <!-- TELEGRAM:END -->
