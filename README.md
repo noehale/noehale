@@ -66,9 +66,9 @@ Line art solar system](https://come-forth-into-the-light.tumblr.com/post/6528955
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaitsalburton:dogpawsswapgod:rnarianhawkes:so we got more beanie babies in at work the other day and i was lookin through them seeing if ...](https://t.me/ferretman/2683)
+- [MediaTalbit, being absolutely majesticvia Ferret Story https://scrisoridemai.tumblr.com/post/652982289263902720](https://t.me/ferretman/2682)
+- [theferrets:You spin me right round baby right round 🎶via Ferret Story https://prettypeterparkr.tumblr.com/post/652982286132936704](https://t.me/ferretman/2681)
 - [MediaPhoebe has frankly had enough of my sh*t. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652974783959597056](https://t.me/ferretman/2680)
 - [Mediascottlava:“We’re Werewolves, not Swear-Wolves.“via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/652971063548002304](https://t.me/ferretman/2679)
-- [MediaHe’s a little chatterbox when playing keep away 🔊 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/652971063502864385](https://t.me/ferretman/2678)
-- [welele:adulthoodisokay:iarethelumen:some day ill be able to post this on thursdayit’s out of touch thursday¿Algún ornitológo me explica ese movimi...](https://t.me/ferretman/2677)
-- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/2676)
 <!-- TELEGRAM:END -->
