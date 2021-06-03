@@ -67,9 +67,9 @@ brit: time wots that m8?
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/652714319517188096](https://t.me/ferretman/2622)
-- [MediaMy newest baby. Waardy boy Linkvia Ferret Story https://scrisoridemai.tumblr.com/post/652710549146222592](https://t.me/ferretman/2621)
-- [MediaMonty and Naruto decided to lounge together today 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/652710548901871616](https://t.me/ferretman/2620)
-- [MediaAffliction went downhill last night and is at the emergency vets. Looking for advice on what might be going on. Details in comments. : ferretsvia...](https://t.me/ferretman/2619)
-- [Mediavia Ferret Story https://falalamingo.tumblr.com/post/652699244078252032](https://t.me/ferretman/2618)
+- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/2653)
+- [Mediaroachpatrol:cynological:That’s a weird dragon.shut up i love hervia Ferret Story https://just-a-catastrophy.tumblr.com/post/652835086757216256](https://t.me/ferretman/2652)
+- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/2651)
+- [bob-artist:Even Kit’s FEET get so super fluffy in winter, and I can’t handle it.Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/65283...](https://t.me/ferretman/2650)
+- [lepidopterium:What if i fucked around and brewed myself some coffee right nowvia Ferret Story https://anasfalhhhs.tumblr.com/post/652823775758401536](https://t.me/ferretman/2649)
 <!-- TELEGRAM:END -->
