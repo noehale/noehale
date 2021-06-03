@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Pekoe squished by Goss so I make an ugly face. 
+#ferret 
+#フェレット](https://come-forth-into-the-light.tumblr.com/post/652918201343246336)
 - [petaflop:sargitarium:
 
 B&W
@@ -61,7 +64,6 @@ me: excuse me, what time is it?
 brit: time wots that m8?
 *big ben...](https://come-forth-into-the-light.tumblr.com/post/652827530886365184)
 - [seitz9231:Tiny furry philosopher](https://come-forth-into-the-light.tumblr.com/post/652804917829025794)
-- [When you wake up and don’t know what year it is : ferrets](https://come-forth-into-the-light.tumblr.com/post/652782242997960704)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
