@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [WYSONG supply shortage : ferrets](https://come-forth-into-the-light.tumblr.com/post/653008746778411008)
 - [petaflop:100proofvodka:bless you
 sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 - [nosebacon:emaciatinq:duel-styx:Pet beds were on sale AND I had a...](https://come-forth-into-the-light.tumblr.com/post/652963453356720128)
@@ -60,7 +61,6 @@ B&W
 
 
 Line art solar system](https://come-forth-into-the-light.tumblr.com/post/652895548092907520)
-- [petaflop:Basketball field, La Paz, Bolivia. Photo by Klaus...](https://come-forth-into-the-light.tumblr.com/post/652872834001059840)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
