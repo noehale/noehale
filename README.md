@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [nosebacon:emaciatinq:duel-styx:Pet beds were on sale AND I had a...](https://come-forth-into-the-light.tumblr.com/post/652963453356720128)
 - [Pekoe squished by Goss so I make an ugly face. 
 #ferret 
 #フェレット](https://come-forth-into-the-light.tumblr.com/post/652918201343246336)
@@ -63,7 +64,6 @@ Line art solar system](https://come-forth-into-the-light.tumblr.com/post/6528955
 me: excuse me, what time is it?
 brit: time wots that m8?
 *big ben...](https://come-forth-into-the-light.tumblr.com/post/652827530886365184)
-- [seitz9231:Tiny furry philosopher](https://come-forth-into-the-light.tumblr.com/post/652804917829025794)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
