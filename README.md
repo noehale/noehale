@@ -69,9 +69,9 @@ brit: time wots that m8?
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediabensears:Putting a bunch of older giclee prints on super-clearance to make room for new stuff. Prices range from $5...](https://t.me/ferretman/2653)
-- [Mediaroachpatrol:cynological:That’s a weird dragon.shut up i love hervia Ferret Story https://just-a-catastrophy.tumblr.com/post/652835086757216256](https://t.me/ferretman/2652)
-- [theferrets:fourteen-steps:why-animals-do-the-thing:peoplehavetoomanyurls:h0m0d4chi:how can him go inside but me not@why-animals-do-the-thing I don’t ...](https://t.me/ferretman/2651)
-- [bob-artist:Even Kit’s FEET get so super fluffy in winter, and I can’t handle it.Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/65283...](https://t.me/ferretman/2650)
-- [lepidopterium:What if i fucked around and brewed myself some coffee right nowvia Ferret Story https://anasfalhhhs.tumblr.com/post/652823775758401536](https://t.me/ferretman/2649)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/652929493867069440](https://t.me/ferretman/2673)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediapeep-toe-shoes:margoteve:tobiasxva:Roast the fuck out of them. Being family doesn’t mean you ever h...](https://t.me/ferretman/2672)
+- [beaniebabyoftheday:clover:beaniebabyoftheday:i’m thinking about her……..who?her………Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/652...](https://t.me/ferretman/2671)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/652921913537150976](https://t.me/ferretman/2670)
+- [MediaComfortable cuddles I guess? 🤣🤣 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/652914383272460288](https://t.me/ferretman/2669)
 <!-- TELEGRAM:END -->
