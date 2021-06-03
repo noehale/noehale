@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:100proofvodka:bless you
+sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 - [nosebacon:emaciatinq:duel-styx:Pet beds were on sale AND I had a...](https://come-forth-into-the-light.tumblr.com/post/652963453356720128)
 - [Pekoe squished by Goss so I make an ugly face. 
 #ferret 
@@ -59,11 +61,6 @@ B&W
 
 Line art solar system](https://come-forth-into-the-light.tumblr.com/post/652895548092907520)
 - [petaflop:Basketball field, La Paz, Bolivia. Photo by Klaus...](https://come-forth-into-the-light.tumblr.com/post/652872834001059840)
-- [bromar:
-*goes to england*
-me: excuse me, what time is it?
-brit: time wots that m8?
-*big ben...](https://come-forth-into-the-light.tumblr.com/post/652827530886365184)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
