@@ -62,9 +62,9 @@ sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediajust-for-grins:I will now apologize to all the people I’ve just killed with this mind blowingly cute gif set. Also you...](https://t.me/ferretman/2711)
 - [MediaNo tp hording herevia Ferret Story https://prettypeterparkr.tumblr.com/post/653072920189566976](https://t.me/ferretman/2710)
 - [MediaOur little baby loves her new hut 🥰via Ferret Story https://scrisoridemai.tumblr.com/post/653072908939362304](https://t.me/ferretman/2709)
 - [Mediahe knows what he must fight for 😈❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653065365308473344](https://t.me/ferretman/2708)
 - [MediaMediaMediaMediaMediaMediaMediaabstractlyrapacious:in the spirit of Halloween, here’s an appreciation post for wolves with pumpkinsvia Ferret Sto...](https://t.me/ferretman/2707)
-- [yourplayersaidwhat:3 of our party members, all talking in Slyvan to each other: 🗣🗣🗣Our leonin fighter who doesn’t know the language at all:i...](https://t.me/ferretman/2706)
 <!-- TELEGRAM:END -->
