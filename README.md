@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [itsstuckyinmyhead:
+School and Tumblr
+](https://come-forth-into-the-light.tumblr.com/post/653099334925205505)
 - [penllawen:Space-Time Lawyers: Team TARDIS
 (via frakkincylon and...](https://come-forth-into-the-light.tumblr.com/post/653076677569675264)
 - [thatsthat24:puddletumbles:puddletumbles:what a good morning!! im gonna draw a dog!!
@@ -56,7 +59,6 @@ apRIL FOOLS I...](https://come-forth-into-the-light.tumblr.com/post/653054020442
 - [WYSONG supply shortage : ferrets](https://come-forth-into-the-light.tumblr.com/post/653008746778411008)
 - [petaflop:100proofvodka:bless you
 sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
-- [nosebacon:emaciatinq:duel-styx:Pet beds were on sale AND I had a...](https://come-forth-into-the-light.tumblr.com/post/652963453356720128)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
