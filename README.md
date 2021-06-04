@@ -62,9 +62,9 @@ sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediadeppsydoodle:the best of Sandy Cheeksvia Ferret Story https://punkrocknat.tumblr.com/post/653050238075092992](https://t.me/ferretman/2702)
-- [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://scrisoridemai.tumbl...](https://t.me/ferretman/2701)
-- [theredpelican:we’re literally floating on a tiny planet in fucking space why are we surrounded by hatred and misery. why can’t everyone just calm th...](https://t.me/ferretman/2700)
-- [MediaFinally got my package 🤞🏼via Ferret Story https://just-a-catastrophy.tumblr.com/post/653016298221158400](https://t.me/ferretman/2699)
-- [bob-artist:bob-artist:By the way, Kit REALLY likes dig boxes.Media@shakespearerants​ Indeed it is!Oh, and alsoMediaToday I buried a toy.via Ferret St...](https://t.me/ferretman/2698)
+- [MediaNo tp hording herevia Ferret Story https://prettypeterparkr.tumblr.com/post/653072920189566976](https://t.me/ferretman/2710)
+- [MediaOur little baby loves her new hut 🥰via Ferret Story https://scrisoridemai.tumblr.com/post/653072908939362304](https://t.me/ferretman/2709)
+- [Mediahe knows what he must fight for 😈❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653065365308473344](https://t.me/ferretman/2708)
+- [MediaMediaMediaMediaMediaMediaMediaabstractlyrapacious:in the spirit of Halloween, here’s an appreciation post for wolves with pumpkinsvia Ferret Sto...](https://t.me/ferretman/2707)
+- [yourplayersaidwhat:3 of our party members, all talking in Slyvan to each other: 🗣🗣🗣Our leonin fighter who doesn’t know the language at all:i...](https://t.me/ferretman/2706)
 <!-- TELEGRAM:END -->
