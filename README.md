@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [penllawen:Space-Time Lawyers: Team TARDIS
+(via frakkincylon and...](https://come-forth-into-the-light.tumblr.com/post/653076677569675264)
 - [thatsthat24:puddletumbles:puddletumbles:what a good morning!! im gonna draw a dog!!
 
 apRIL FOOLS I...](https://come-forth-into-the-light.tumblr.com/post/653054020442800128)
@@ -55,9 +57,6 @@ apRIL FOOLS I...](https://come-forth-into-the-light.tumblr.com/post/653054020442
 - [petaflop:100proofvodka:bless you
 sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 - [nosebacon:emaciatinq:duel-styx:Pet beds were on sale AND I had a...](https://come-forth-into-the-light.tumblr.com/post/652963453356720128)
-- [Pekoe squished by Goss so I make an ugly face. 
-#ferret 
-#フェレット](https://come-forth-into-the-light.tumblr.com/post/652918201343246336)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
