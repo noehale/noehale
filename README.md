@@ -63,9 +63,9 @@ sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediadeppsydoodle:the best of Sandy Cheeksvia Ferret Story https://punkrocknat.tumblr.com/post/653050238075092992](https://t.me/ferretman/2702)
 - [View this post on InstagramA post shared by Naruto⭐️Boruto⭐Pokke (@h.n.b2809)thenatsdorf:Traferret jam.via Ferret Story https://scrisoridemai.tumbl...](https://t.me/ferretman/2701)
 - [theredpelican:we’re literally floating on a tiny planet in fucking space why are we surrounded by hatred and misery. why can’t everyone just calm th...](https://t.me/ferretman/2700)
 - [MediaFinally got my package 🤞🏼via Ferret Story https://just-a-catastrophy.tumblr.com/post/653016298221158400](https://t.me/ferretman/2699)
 - [bob-artist:bob-artist:By the way, Kit REALLY likes dig boxes.Media@shakespearerants​ Indeed it is!Oh, and alsoMediaToday I buried a toy.via Ferret St...](https://t.me/ferretman/2698)
-- [problackgirl:“real men dont rape” actually, real men do rape. they do. men rape. it isn’t done by ~fake mythical special brand of evil~ men, it’s ...](https://t.me/ferretman/2697)
 <!-- TELEGRAM:END -->
