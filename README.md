@@ -66,9 +66,9 @@ Line art solar system](https://come-forth-into-the-light.tumblr.com/post/6528955
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [problackgirl:“real men dont rape” actually, real men do rape. they do. men rape. it isn’t done by ~fake mythical special brand of evil~ men, it’s ...](https://t.me/ferretman/2689)
-- [MediaMediadwight-schrutes:happy indigenous people day!via Ferret Story https://babyiwannaknow.tumblr.com/post/653001263428026368](https://t.me/ferretman/2688)
-- [MediaTell me you have a cute nose without telling me you have a cute nose. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/po...](https://t.me/ferretman/2687)
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/653001254962872320](https://t.me/ferretman/2686)
-- [MediaShe sleeps : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653001226648272896](https://t.me/ferretman/2685)
+- [theredpelican:we’re literally floating on a tiny planet in fucking space why are we surrounded by hatred and misery. why can’t everyone just calm th...](https://t.me/ferretman/2700)
+- [MediaFinally got my package 🤞🏼via Ferret Story https://just-a-catastrophy.tumblr.com/post/653016298221158400](https://t.me/ferretman/2699)
+- [bob-artist:bob-artist:By the way, Kit REALLY likes dig boxes.Media@shakespearerants​ Indeed it is!Oh, and alsoMediaToday I buried a toy.via Ferret St...](https://t.me/ferretman/2698)
+- [problackgirl:“real men dont rape” actually, real men do rape. they do. men rape. it isn’t done by ~fake mythical special brand of evil~ men, it’s ...](https://t.me/ferretman/2697)
+- [MediaMediadwight-schrutes:happy indigenous people day!via Ferret Story https://babyiwannaknow.tumblr.com/post/653001263428026368](https://t.me/ferretman/2696)
 <!-- TELEGRAM:END -->
