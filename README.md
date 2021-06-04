@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thatsthat24:puddletumbles:puddletumbles:what a good morning!! im gonna draw a dog!!
+
+apRIL FOOLS I...](https://come-forth-into-the-light.tumblr.com/post/653054020442800128)
 - [WYSONG supply shortage : ferrets](https://come-forth-into-the-light.tumblr.com/post/653008746778411008)
 - [petaflop:100proofvodka:bless you
 sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
@@ -55,12 +58,6 @@ sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 - [Pekoe squished by Goss so I make an ugly face. 
 #ferret 
 #フェレット](https://come-forth-into-the-light.tumblr.com/post/652918201343246336)
-- [petaflop:sargitarium:
-
-B&W
-
-
-Line art solar system](https://come-forth-into-the-light.tumblr.com/post/652895548092907520)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
