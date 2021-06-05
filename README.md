@@ -62,9 +62,9 @@ School and Tumblr
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaThe coolest of cats hanging out in her hammock♡via Ferret Story https://just-a-catastrophy.tumblr.com/post/653167374120435712](https://t.me/ferretman/2731)
-- [Mediathe-book-ferret:Twitchy little ferret, aren’t you Malfoy?via Ferret Story https://scrisoridemai.tumblr.com/post/653163502102560768](https://t.me/ferretman/2730)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://prettypeterparkr.tumblr.com/post/653163502103642112](https://t.me/ferretman/2729)
-- [MediaPo has one brain cell and he’ll only use it to raid your underwear drawer 😅😂❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/...](https://t.me/ferretman/2728)
-- [Mediahawfstuff:playing-hero:lunette3002:fashionf-u-c-ks:NoneOKAY so I saw this a few days ago and was like “whatever” but then I smashed my phone i...](https://t.me/ferretman/2727)
+- [MediaJust a Marshmallow and his favorite Narwhal : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653186163027345408](https://t.me/ferretman/2737)
+- [MediaNoooo MY TREASURES! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653182399017025536](https://t.me/ferretman/2736)
+- [MediaBe still my heart : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653182399021285377](https://t.me/ferretman/2735)
+- [MediaYoung ferrets wrestling (7min)via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653182393609568256](https://t.me/ferretman/2734)
+- [<a href="https://64.media.tumblr.com/ebf6ea6b9019e7e98f17970dfbbe2235/tumblr_obbeoyJjND1sijjnno1_500.png">Media</a><a href="https://antigravity-zebra....](https://t.me/ferretman/2733)
 <!-- TELEGRAM:END -->
