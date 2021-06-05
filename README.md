@@ -64,9 +64,9 @@ sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediasky-of-melting-flames:thebootydiaries:MediaSomeone’s got a primal kinkvia Ferret Story https://punkrocknat.tumblr.com/post/653110693888917504](https://t.me/ferretman/2721)
+- [sugarcat-sae:Please don’t buy a pet for a Christmas gift to a child. Animals should be family...via Ferret Story https://just-a-catastrophy.tumblr.co...](https://t.me/ferretman/2720)
 - [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://scr...](https://t.me/ferretman/2719)
 - [MediaWe’re on some thief shit todayvia Ferret Story https://prettypeterparkr.tumblr.com/post/653103103318638592](https://t.me/ferretman/2718)
 - [MediaTwo biiiig yawns : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653095550741348353](https://t.me/ferretman/2717)
-- [MediaEverything is a toy : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653091890535792640](https://t.me/ferretman/2716)
-- [Medialong boi : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653091890592448512](https://t.me/ferretman/2715)
 <!-- TELEGRAM:END -->
