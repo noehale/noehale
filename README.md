@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [*poke…back scratchys, ACTIVATED!!!! : ferrets](https://come-forth-into-the-light.tumblr.com/post/653144622847131648)
 - [itsstuckyinmyhead:
 School and Tumblr
 ](https://come-forth-into-the-light.tumblr.com/post/653099334925205505)
@@ -57,8 +58,6 @@ School and Tumblr
 
 apRIL FOOLS I...](https://come-forth-into-the-light.tumblr.com/post/653054020442800128)
 - [WYSONG supply shortage : ferrets](https://come-forth-into-the-light.tumblr.com/post/653008746778411008)
-- [petaflop:100proofvodka:bless you
-sound on](https://come-forth-into-the-light.tumblr.com/post/652986097459200000)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
