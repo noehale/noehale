@@ -63,9 +63,9 @@ apRIL FOOLS I...](https://come-forth-into-the-light.tumblr.com/post/653054020442
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediahawfstuff:playing-hero:lunette3002:fashionf-u-c-ks:NoneOKAY so I saw this a few days ago and was like “whatever” but then I smashed my phone i...](https://t.me/ferretman/2727)
-- [kidouyuuto:kidouyuuto:i know this is dumb but i think that australia exists like?? the ocean is largely unexplored there could very well be a fallen e...](https://t.me/ferretman/2726)
-- [kursedkitties:April fools it’s a ferret(Not a jump scare for realz)via Ferret Story https://babyiwannaknow.tumblr.com/post/653152188847259649](https://t.me/ferretman/2725)
-- [thenatsdorf:Bread thief. (via lexiyounng)via Ferret Story https://falalamingo.tumblr.com/post/653152189494247424](https://t.me/ferretman/2724)
-- [MediaLook at you, Now look at me. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653152189459628032](https://t.me/ferretman/2723)
+- [MediaMediaMediaMediatheferrets:theferrets:TheFerrets all sporting their least favorite hat! Who wore it better?My babies via Ferret Story https://scr...](https://t.me/ferretman/2719)
+- [MediaWe’re on some thief shit todayvia Ferret Story https://prettypeterparkr.tumblr.com/post/653103103318638592](https://t.me/ferretman/2718)
+- [MediaTwo biiiig yawns : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653095550741348353](https://t.me/ferretman/2717)
+- [MediaEverything is a toy : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653091890535792640](https://t.me/ferretman/2716)
+- [Medialong boi : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653091890592448512](https://t.me/ferretman/2715)
 <!-- TELEGRAM:END -->
