@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [human:walking barefoot in the locker room of a public pool like
+](https://come-forth-into-the-light.tumblr.com/post/653189955445735424)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653167308482707456)
 - [*poke…back scratchys, ACTIVATED!!!! : ferrets](https://come-forth-into-the-light.tumblr.com/post/653144622847131648)
 - [itsstuckyinmyhead:
@@ -55,9 +57,6 @@ School and Tumblr
 ](https://come-forth-into-the-light.tumblr.com/post/653099334925205505)
 - [penllawen:Space-Time Lawyers: Team TARDIS
 (via frakkincylon and...](https://come-forth-into-the-light.tumblr.com/post/653076677569675264)
-- [thatsthat24:puddletumbles:puddletumbles:what a good morning!! im gonna draw a dog!!
-
-apRIL FOOLS I...](https://come-forth-into-the-light.tumblr.com/post/653054020442800128)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
