@@ -62,9 +62,9 @@ School and Tumblr
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [pornstarwars:do u ever wonder what ur most noticeable feature is like what do people see first when they look at uvia Ferret Story https://punkrocknat...](https://t.me/ferretman/2741)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653197489091100672](https://t.me/ferretman/2740)
+- [thvgxng:See what your followers think of you.BLACK = I would date you.GREEN = I think you’re cute.BLUE = You are my tumblr crush.GREY = I wish you wo...](https://t.me/ferretman/2739)
+- [MediaHandfuls of cutenessvia Ferret Story https://scrisoridemai.tumblr.com/post/653193680877928449](https://t.me/ferretman/2738)
 - [MediaJust a Marshmallow and his favorite Narwhal : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653186163027345408](https://t.me/ferretman/2737)
-- [MediaNoooo MY TREASURES! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653182399017025536](https://t.me/ferretman/2736)
-- [MediaBe still my heart : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653182399021285377](https://t.me/ferretman/2735)
-- [MediaYoung ferrets wrestling (7min)via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653182393609568256](https://t.me/ferretman/2734)
-- [<a href="https://64.media.tumblr.com/ebf6ea6b9019e7e98f17970dfbbe2235/tumblr_obbeoyJjND1sijjnno1_500.png">Media</a><a href="https://antigravity-zebra....](https://t.me/ferretman/2733)
 <!-- TELEGRAM:END -->
