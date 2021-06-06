@@ -65,9 +65,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [phalaenopfish: Please don’t take your pets for granted. Even if you’re frustrated that your dog...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/2757)
+- [MediaNew friendvia Ferret Story https://scrisoridemai.tumblr.com/post/653254095976710144](https://t.me/ferretman/2756)
+- [MediaMy baby bear Pugsley enjoying his dig box. Rescuing is so rewarding.via Ferret Story https://prettypeterparkr.tumblr.com/post/653254095936913408](https://t.me/ferretman/2755)
 - [MediaIs it okay if she eats dog food : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653246556302098432](https://t.me/ferretman/2754)
 - [MediaNoodles but he a deep fried memevia Ferret Story https://babyiwannaknow.tumblr.com/post/653242807382884352](https://t.me/ferretman/2753)
-- [setheverman:disgustinganimals:Don’t hire this cleaning servicei will hire this cleaning service immediately, don’t tell me what to dovia Ferret Stor...](https://t.me/ferretman/2752)
-- [MediaKozuki dead asleep 🥰🥺 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653242795261329408](https://t.me/ferretman/2751)
-- [MediaI always wonder what he’s dreaming about.. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653242781509337088](https://t.me/ferretman/2750)
 <!-- TELEGRAM:END -->
