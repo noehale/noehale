@@ -65,9 +65,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [pornstarwars:do u ever wonder what ur most noticeable feature is like what do people see first when they look at uvia Ferret Story https://punkrocknat...](https://t.me/ferretman/2741)
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653197489091100672](https://t.me/ferretman/2740)
-- [thvgxng:See what your followers think of you.BLACK = I would date you.GREEN = I think you’re cute.BLUE = You are my tumblr crush.GREY = I wish you wo...](https://t.me/ferretman/2739)
-- [MediaHandfuls of cutenessvia Ferret Story https://scrisoridemai.tumblr.com/post/653193680877928449](https://t.me/ferretman/2738)
-- [MediaJust a Marshmallow and his favorite Narwhal : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653186163027345408](https://t.me/ferretman/2737)
+- [MediaIs it okay if she eats dog food : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653246556302098432](https://t.me/ferretman/2754)
+- [MediaNoodles but he a deep fried memevia Ferret Story https://babyiwannaknow.tumblr.com/post/653242807382884352](https://t.me/ferretman/2753)
+- [setheverman:disgustinganimals:Don’t hire this cleaning servicei will hire this cleaning service immediately, don’t tell me what to dovia Ferret Stor...](https://t.me/ferretman/2752)
+- [MediaKozuki dead asleep 🥰🥺 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653242795261329408](https://t.me/ferretman/2751)
+- [MediaI always wonder what he’s dreaming about.. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653242781509337088](https://t.me/ferretman/2750)
 <!-- TELEGRAM:END -->
