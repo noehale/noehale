@@ -65,9 +65,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaIm gonna rest here, k? K. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653231439027060736](https://t.me/ferretman/2742)
 - [pornstarwars:do u ever wonder what ur most noticeable feature is like what do people see first when they look at uvia Ferret Story https://punkrocknat...](https://t.me/ferretman/2741)
 - [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653197489091100672](https://t.me/ferretman/2740)
 - [thvgxng:See what your followers think of you.BLACK = I would date you.GREEN = I think you’re cute.BLUE = You are my tumblr crush.GREY = I wish you wo...](https://t.me/ferretman/2739)
 - [MediaHandfuls of cutenessvia Ferret Story https://scrisoridemai.tumblr.com/post/653193680877928449](https://t.me/ferretman/2738)
+- [MediaJust a Marshmallow and his favorite Narwhal : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653186163027345408](https://t.me/ferretman/2737)
 <!-- TELEGRAM:END -->
