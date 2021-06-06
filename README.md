@@ -67,9 +67,9 @@ School and Tumblr
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaThe coolest of cats hanging out in her hammock♡via Ferret Story https://just-a-catastrophy.tumblr.com/post/653167374120435712](https://t.me/ferretman/2731)
-- [Mediathe-book-ferret:Twitchy little ferret, aren’t you Malfoy?via Ferret Story https://scrisoridemai.tumblr.com/post/653163502102560768](https://t.me/ferretman/2730)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://prettypeterparkr.tumblr.com/post/653163502103642112](https://t.me/ferretman/2729)
-- [MediaPo has one brain cell and he’ll only use it to raid your underwear drawer 😅😂❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/...](https://t.me/ferretman/2728)
-- [Mediahawfstuff:playing-hero:lunette3002:fashionf-u-c-ks:NoneOKAY so I saw this a few days ago and was like “whatever” but then I smashed my phone i...](https://t.me/ferretman/2727)
+- [MediaIm gonna rest here, k? K. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653231439027060736](https://t.me/ferretman/2742)
+- [pornstarwars:do u ever wonder what ur most noticeable feature is like what do people see first when they look at uvia Ferret Story https://punkrocknat...](https://t.me/ferretman/2741)
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653197489091100672](https://t.me/ferretman/2740)
+- [thvgxng:See what your followers think of you.BLACK = I would date you.GREEN = I think you’re cute.BLUE = You are my tumblr crush.GREY = I wish you wo...](https://t.me/ferretman/2739)
+- [MediaHandfuls of cutenessvia Ferret Story https://scrisoridemai.tumblr.com/post/653193680877928449](https://t.me/ferretman/2738)
 <!-- TELEGRAM:END -->
