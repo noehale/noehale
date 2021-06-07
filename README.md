@@ -69,9 +69,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediaferret-flops:citymod:mynewplaidpants:Jake Gyllenhaal and a ferretMediaomgvia Ferret Story https://just-a-catastrophy.tumblr.com/post/653348521937...](https://t.me/ferretman/2777)
+- [ferretorious:Omg.. i… love… this… 🐾😍via Ferret Story https://scrisoridemai.tumblr.com/post/653344712897560576](https://t.me/ferretman/2776)
+- [MediaHe wants the soda btw i washed the bottle befor i let her play with it so no worrysvia Ferret Story https://prettypeterparkr.tumblr.com/post/6533...](https://t.me/ferretman/2775)
+- [MediaWeirdo. Mider, how is that comfy? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653337169264574464](https://t.me/ferretman/2774)
 - [deathonabitch:my house is haunted because i live herevia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653333443667787776](https://t.me/ferretman/2773)
-- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/653333406023876608](https://t.me/ferretman/2772)
-- [MediaI don’t even know why i continue buying them things. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653333394240962560](https://t.me/ferretman/2771)
-- [MediaIf both ferrets come from a home where they have been an only ferret, is the quarantine still necessary? They have a vet appt together on April 1...](https://t.me/ferretman/2770)
-- [MediaMy boyfriend and his ferret cuddling <3via Ferret Story https://redzgn.tumblr.com/post/653333394248318976](https://t.me/ferretman/2769)
 <!-- TELEGRAM:END -->
