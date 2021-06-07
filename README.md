@@ -65,9 +65,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/653291883209031680](https://t.me/ferretman/2767)
+- [tehrisa: meatbicyclevevo: oate: audidas: 7 million people in the earth. 0 messages in my Inbox 7...via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/2766)
 - [MediaCute ferret vs. Work bootvia Ferret Story https://prettypeterparkr.tumblr.com/post/653284327062388736](https://t.me/ferretman/2765)
 - [vet-and-wild:MediaSo sleepyvia Ferret Story https://scrisoridemai.tumblr.com/post/653284315958050816](https://t.me/ferretman/2764)
 - [MediaThis was supposed to be a ball pit… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653276765354098688](https://t.me/ferretman/2763)
-- [MediaThis is my baby girl AJ. She passed a while ago but I still think she should be shared : ferretsvia Ferret Story https://babyiwannaknow.tumblr.co...](https://t.me/ferretman/2762)
-- [leauxgan:thesylverlining:mishasminions:wumbowing:jessicreep:kumoi-no-hikari:makomori:#submit this for best short at the oscarsthis is that one post th...](https://t.me/ferretman/2761)
 <!-- TELEGRAM:END -->
