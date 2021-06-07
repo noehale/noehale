@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [beesandbombs:sphere tangle](https://come-forth-into-the-light.tumblr.com/post/653348546977890304)
 - [wnslw:
 hydrolize:
 
@@ -63,8 +64,6 @@ discoursestorm:
 
 connyhascontrol:
 I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
-- [human:walking barefoot in the locker room of a public pool like
-](https://come-forth-into-the-light.tumblr.com/post/653189955445735424)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
