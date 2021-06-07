@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [penllawen:And you’ve just lost The Game.](https://come-forth-into-the-light.tumblr.com/post/653280602244759552)
 - [All three of them crammed themselves on the monkey hammock after...](https://come-forth-into-the-light.tumblr.com/post/653257949653925888)
 - [anafenza:
 humming-bird-moth:
@@ -59,7 +60,6 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 - [human:walking barefoot in the locker room of a public pool like
 ](https://come-forth-into-the-light.tumblr.com/post/653189955445735424)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653167308482707456)
-- [*poke…back scratchys, ACTIVATED!!!! : ferrets](https://come-forth-into-the-light.tumblr.com/post/653144622847131648)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
