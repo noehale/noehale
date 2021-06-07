@@ -69,9 +69,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/653291883209031680](https://t.me/ferretman/2767)
-- [tehrisa: meatbicyclevevo: oate: audidas: 7 million people in the earth. 0 messages in my Inbox 7...via Ferret Story https://just-a-catastrophy.tumblr....](https://t.me/ferretman/2766)
-- [MediaCute ferret vs. Work bootvia Ferret Story https://prettypeterparkr.tumblr.com/post/653284327062388736](https://t.me/ferretman/2765)
-- [vet-and-wild:MediaSo sleepyvia Ferret Story https://scrisoridemai.tumblr.com/post/653284315958050816](https://t.me/ferretman/2764)
-- [MediaThis was supposed to be a ball pit… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653276765354098688](https://t.me/ferretman/2763)
+- [deathonabitch:my house is haunted because i live herevia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653333443667787776](https://t.me/ferretman/2773)
+- [Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/653333406023876608](https://t.me/ferretman/2772)
+- [MediaI don’t even know why i continue buying them things. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653333394240962560](https://t.me/ferretman/2771)
+- [MediaIf both ferrets come from a home where they have been an only ferret, is the quarantine still necessary? They have a vet appt together on April 1...](https://t.me/ferretman/2770)
+- [MediaMy boyfriend and his ferret cuddling <3via Ferret Story https://redzgn.tumblr.com/post/653333394248318976](https://t.me/ferretman/2769)
 <!-- TELEGRAM:END -->
