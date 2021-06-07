@@ -65,9 +65,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [phalaenopfish: Please don’t take your pets for granted. Even if you’re frustrated that your dog...via Ferret Story https://just-a-catastrophy.tumblr...](https://t.me/ferretman/2757)
-- [MediaNew friendvia Ferret Story https://scrisoridemai.tumblr.com/post/653254095976710144](https://t.me/ferretman/2756)
-- [MediaMy baby bear Pugsley enjoying his dig box. Rescuing is so rewarding.via Ferret Story https://prettypeterparkr.tumblr.com/post/653254095936913408](https://t.me/ferretman/2755)
-- [MediaIs it okay if she eats dog food : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653246556302098432](https://t.me/ferretman/2754)
-- [MediaNoodles but he a deep fried memevia Ferret Story https://babyiwannaknow.tumblr.com/post/653242807382884352](https://t.me/ferretman/2753)
+- [MediaCute ferret vs. Work bootvia Ferret Story https://prettypeterparkr.tumblr.com/post/653284327062388736](https://t.me/ferretman/2765)
+- [vet-and-wild:MediaSo sleepyvia Ferret Story https://scrisoridemai.tumblr.com/post/653284315958050816](https://t.me/ferretman/2764)
+- [MediaThis was supposed to be a ball pit… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653276765354098688](https://t.me/ferretman/2763)
+- [MediaThis is my baby girl AJ. She passed a while ago but I still think she should be shared : ferretsvia Ferret Story https://babyiwannaknow.tumblr.co...](https://t.me/ferretman/2762)
+- [leauxgan:thesylverlining:mishasminions:wumbowing:jessicreep:kumoi-no-hikari:makomori:#submit this for best short at the oscarsthis is that one post th...](https://t.me/ferretman/2761)
 <!-- TELEGRAM:END -->
