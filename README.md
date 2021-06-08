@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [hitmewithcute:The First Dog](https://come-forth-into-the-light.tumblr.com/post/653439092895449088)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653416419054223360)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653371201283047424)
 - [beesandbombs:sphere tangle](https://come-forth-into-the-light.tumblr.com/post/653348546977890304)
@@ -57,7 +58,6 @@ hydrolize:
 Someone left their dogs outside the cafe
 
 pug...](https://come-forth-into-the-light.tumblr.com/post/653325826078769152)
-- [penllawen:And you’ve just lost The Game.](https://come-forth-into-the-light.tumblr.com/post/653280602244759552)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
