@@ -69,9 +69,9 @@ I...](https://come-forth-into-the-light.tumblr.com/post/653235263562285056)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaThe coolest of cats hanging out in her hammock♡via Ferret Story https://just-a-catastrophy.tumblr.com/post/653167374120435712](https://t.me/ferretman/2731)
-- [Mediathe-book-ferret:Twitchy little ferret, aren’t you Malfoy?via Ferret Story https://scrisoridemai.tumblr.com/post/653163502102560768](https://t.me/ferretman/2730)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://prettypeterparkr.tumblr.com/post/653163502103642112](https://t.me/ferretman/2729)
-- [MediaPo has one brain cell and he’ll only use it to raid your underwear drawer 😅😂❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/...](https://t.me/ferretman/2728)
-- [Mediahawfstuff:playing-hero:lunette3002:fashionf-u-c-ks:NoneOKAY so I saw this a few days ago and was like “whatever” but then I smashed my phone i...](https://t.me/ferretman/2727)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediagoawfma:MediaMediaMediaMediaMediathese are the best namesvia Ferret Story https://falalamingo.tumblr...](https://t.me/ferretman/2782)
+- [MediaHis sweet little face makes my heart melt : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653363636790755328](https://t.me/ferretman/2781)
+- [nerviovago:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/653363634674778112](https://t.me/ferretman/2780)
+- [MediaShe does look majestic while standing still! : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653363592542945280](https://t.me/ferretman/2779)
+- [MediaPOOP. Could this grainy poop possibly be ECE? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653363592518844416](https://t.me/ferretman/2778)
 <!-- TELEGRAM:END -->
