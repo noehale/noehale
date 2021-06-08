@@ -63,9 +63,9 @@ pug...](https://come-forth-into-the-light.tumblr.com/post/653325826078769152)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [cannonball-the-ferret:shartgod420:you guys know what’s super important?MediaMediaMediaMediaMediaMediaMediabee buttsMediaCouldn’t help but add Bumble...](https://t.me/ferretman/2788)
-- [MediaI present Stu “the boneless” Stu, that doesn’t look comfortable, my sweet derpy flop-weasel. : ferretsvia Ferret Story https://punkrocknat.tum...](https://t.me/ferretman/2787)
 - [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653378691109453824](https://t.me/ferretman/2786)
 - [breadmaakesyoufat:me: i cant move, a cute animal is asleep on meperson: push it offme: [enraged and offended] via Ferret Story https://scrisoridemai....](https://t.me/ferretman/2785)
 - [Mediabob-artist:bob-artist:No April Fool’s jokes this year.  Just a fool.imageNew year, same old fool.via Ferret Story https://prettypeterparkr.tumb...](https://t.me/ferretman/2784)
+- [MediaMy ferret, Lasagna, sleeps like the pope : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653367360543195136](https://t.me/ferretman/2783)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediagoawfma:MediaMediaMediaMediaMediathese are the best namesvia Ferret Story https://falalamingo.tumblr...](https://t.me/ferretman/2782)
 <!-- TELEGRAM:END -->
