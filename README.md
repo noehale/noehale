@@ -63,9 +63,9 @@ pug...](https://come-forth-into-the-light.tumblr.com/post/653325826078769152)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653378691109453824](https://t.me/ferretman/2786)
+- [breadmaakesyoufat:me: i cant move, a cute animal is asleep on meperson: push it offme: [enraged and offended] via Ferret Story https://scrisoridemai....](https://t.me/ferretman/2785)
+- [Mediabob-artist:bob-artist:No April Fool’s jokes this year.  Just a fool.imageNew year, same old fool.via Ferret Story https://prettypeterparkr.tumb...](https://t.me/ferretman/2784)
+- [MediaMy ferret, Lasagna, sleeps like the pope : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653367360543195136](https://t.me/ferretman/2783)
 - [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediagoawfma:MediaMediaMediaMediaMediathese are the best namesvia Ferret Story https://falalamingo.tumblr...](https://t.me/ferretman/2782)
-- [MediaHis sweet little face makes my heart melt : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653363636790755328](https://t.me/ferretman/2781)
-- [nerviovago:Mediavia Ferret Story https://babyiwannaknow.tumblr.com/post/653363634674778112](https://t.me/ferretman/2780)
-- [MediaShe does look majestic while standing still! : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653363592542945280](https://t.me/ferretman/2779)
-- [MediaPOOP. Could this grainy poop possibly be ECE? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653363592518844416](https://t.me/ferretman/2778)
 <!-- TELEGRAM:END -->
