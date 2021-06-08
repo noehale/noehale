@@ -63,9 +63,9 @@ pug...](https://come-forth-into-the-light.tumblr.com/post/653325826078769152)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653378691109453824](https://t.me/ferretman/2786)
-- [breadmaakesyoufat:me: i cant move, a cute animal is asleep on meperson: push it offme: [enraged and offended] via Ferret Story https://scrisoridemai....](https://t.me/ferretman/2785)
-- [Mediabob-artist:bob-artist:No April Fool’s jokes this year.  Just a fool.imageNew year, same old fool.via Ferret Story https://prettypeterparkr.tumb...](https://t.me/ferretman/2784)
-- [MediaMy ferret, Lasagna, sleeps like the pope : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653367360543195136](https://t.me/ferretman/2783)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediagoawfma:MediaMediaMediaMediaMediathese are the best namesvia Ferret Story https://falalamingo.tumblr...](https://t.me/ferretman/2782)
+- [MediaMlems : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653427755176935424](https://t.me/ferretman/2794)
+- [idonthavevans:victorgparra:hiddlesbabee:lpbear:gt-lonestar:stargeek727:hentaihoneybun:awakandangoddess:ThisMediagotta be the equivalent to thisMediaSa...](https://t.me/ferretman/2793)
+- [Media“What’s up mom” : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653423994377207808](https://t.me/ferretman/2792)
+- [MediaMy chonker is losing his winter fluff 😱 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653423994381500416](https://t.me/ferretman/2791)
+- [via Ferret Story https://babyiwannaknow.tumblr.com/post/653423991986520064](https://t.me/ferretman/2790)
 <!-- TELEGRAM:END -->
