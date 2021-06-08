@@ -63,9 +63,9 @@ pug...](https://come-forth-into-the-light.tumblr.com/post/653325826078769152)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediacan you tell which one is the annoying little brother?via Ferret Story https://just-a-catastrophy.tumblr.com/post/653439073144406016](https://t.me/ferretman/2797)
+- [MediaYum yumsvia Ferret Story https://scrisoridemai.tumblr.com/post/653435302752468992](https://t.me/ferretman/2796)
+- [bob-artist:bob-artist:I reach into my garbage can and locate my trash child.For the record, Kit doesn’t *only* sleep in that garbage can.He also slee...](https://t.me/ferretman/2795)
 - [MediaMlems : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653427755176935424](https://t.me/ferretman/2794)
 - [idonthavevans:victorgparra:hiddlesbabee:lpbear:gt-lonestar:stargeek727:hentaihoneybun:awakandangoddess:ThisMediagotta be the equivalent to thisMediaSa...](https://t.me/ferretman/2793)
-- [Media“What’s up mom” : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653423994377207808](https://t.me/ferretman/2792)
-- [MediaMy chonker is losing his winter fluff 😱 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653423994381500416](https://t.me/ferretman/2791)
-- [via Ferret Story https://babyiwannaknow.tumblr.com/post/653423991986520064](https://t.me/ferretman/2790)
 <!-- TELEGRAM:END -->
