@@ -64,9 +64,9 @@ In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [stupidstagram: U ever been so tired ur eyelids burn when u blinkvia Ferret Story https://just-a-catastrophy.tumblr.com/post/653529684319092736](https://t.me/ferretman/2817)
+- [misioandkinga:MediaMediaMediaMediaMediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/653525900716130304](https://t.me/ferretman/2816)
+- [MediaLily doin a wake up 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/653525889223671809](https://t.me/ferretman/2815)
 - [<a href="https://avatrashh.tumblr.com/post/177132412764/nightwinggirl42-seyaryminamoto-madamebomb">avatrashh</a>:<a href="https://nightwinggirl42.tumb...](https://t.me/ferretman/2814)
 - [Mediareimenaashelyee:Paco the Ferret @misioandkinga . Summer Pet Portrait commission.via Ferret Story https://babyiwannaknow.tumblr.com/post/653514639...](https://t.me/ferretman/2813)
-- [MediaOld video of my fuzzies playing…and also beating each other up 🤪via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/65351463...](https://t.me/ferretman/2812)
-- [croptop2014:j5h:imagine having sex with a ghost and then someone walks into your room and they see your asshole widening and narrowing for no reasonim...](https://t.me/ferretman/2811)
-- [MediaMediaMediaMediakateordie:thenearsightedmonkey:By Lynda Barry  May 2016Every time I see this I love it morevia Ferret Story https://xxcrybby.tumb...](https://t.me/ferretman/2810)
 <!-- TELEGRAM:END -->
