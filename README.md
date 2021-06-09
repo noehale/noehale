@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/653529722631946240)
 - [penllawen:redcloud:
 
 groverviolet:
@@ -58,7 +59,6 @@ In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653461757792256000)
 - [hitmewithcute:The First Dog](https://come-forth-into-the-light.tumblr.com/post/653439092895449088)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653416419054223360)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/653371201283047424)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
