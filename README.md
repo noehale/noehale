@@ -64,9 +64,9 @@ In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [stupidstagram: U ever been so tired ur eyelids burn when u blinkvia Ferret Story https://just-a-catastrophy.tumblr.com/post/653529684319092736](https://t.me/ferretman/2817)
-- [misioandkinga:MediaMediaMediaMediaMediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/653525900716130304](https://t.me/ferretman/2816)
-- [MediaLily doin a wake up 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/653525889223671809](https://t.me/ferretman/2815)
-- [<a href="https://avatrashh.tumblr.com/post/177132412764/nightwinggirl42-seyaryminamoto-madamebomb">avatrashh</a>:<a href="https://nightwinggirl42.tumb...](https://t.me/ferretman/2814)
-- [Mediareimenaashelyee:Paco the Ferret @misioandkinga . Summer Pet Portrait commission.via Ferret Story https://babyiwannaknow.tumblr.com/post/653514639...](https://t.me/ferretman/2813)
+- [Medialittle-klng:official-book-wizard:iconicMediaMediaHEY GUYS YOU’LL NEVER GUESS WHAT I FOUNDvia Ferret Story https://punkrocknat.tumblr.com/post/65...](https://t.me/ferretman/2807)
+- [Mediatheferrets:theferrets:The whole gangIf I could go back… I wouldvia Ferret Story https://just-a-catastrophy.tumblr.com/post/653469272000086016](https://t.me/ferretman/2806)
+- [MediaGirl fight! Feat. Phoebe middleweight vs. Ella ultra light weight (sound on for cute chatterbox Dook Dook)via Ferret Story https://scrisoridemai....](https://t.me/ferretman/2805)
+- [MediaTheir little feets are the cutest!!!via Ferret Story https://prettypeterparkr.tumblr.com/post/653465486463467520](https://t.me/ferretman/2804)
+- [MediaI got these two babies from a hoarding situation last night. Now to get the plump and healthy! : ferretsvia Ferret Story https://anasfalhhhs.tumb...](https://t.me/ferretman/2803)
 <!-- TELEGRAM:END -->
