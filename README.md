@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediacan you tell which one is the annoying little brother?via Ferret Story https://just-a-catastrophy.tumblr.com/post/653439073144406016](https://t.me/ferretman/2797)
-- [MediaYum yumsvia Ferret Story https://scrisoridemai.tumblr.com/post/653435302752468992](https://t.me/ferretman/2796)
-- [bob-artist:bob-artist:I reach into my garbage can and locate my trash child.For the record, Kit doesn’t *only* sleep in that garbage can.He also slee...](https://t.me/ferretman/2795)
-- [MediaMlems : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653427755176935424](https://t.me/ferretman/2794)
-- [idonthavevans:victorgparra:hiddlesbabee:lpbear:gt-lonestar:stargeek727:hentaihoneybun:awakandangoddess:ThisMediagotta be the equivalent to thisMediaSa...](https://t.me/ferretman/2793)
+- [MediaGirl fight! Feat. Phoebe middleweight vs. Ella ultra light weight (sound on for cute chatterbox Dook Dook)via Ferret Story https://scrisoridemai....](https://t.me/ferretman/2805)
+- [MediaTheir little feets are the cutest!!!via Ferret Story https://prettypeterparkr.tumblr.com/post/653465486463467520](https://t.me/ferretman/2804)
+- [MediaI got these two babies from a hoarding situation last night. Now to get the plump and healthy! : ferretsvia Ferret Story https://anasfalhhhs.tumb...](https://t.me/ferretman/2803)
+- [MediaA chonky boi 😌 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653454241462091776](https://t.me/ferretman/2802)
+- [MediaLily loves to bother Kingsley when he’s trying to sleep : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653454241519763456](https://t.me/ferretman/2801)
 <!-- TELEGRAM:END -->
