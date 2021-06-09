@@ -48,11 +48,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [penllawen:redcloud:
+
+groverviolet:
+
+criticalpax:
+
+In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433466880)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653461757792256000)
 - [hitmewithcute:The First Dog](https://come-forth-into-the-light.tumblr.com/post/653439092895449088)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653416419054223360)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653371201283047424)
-- [beesandbombs:sphere tangle](https://come-forth-into-the-light.tumblr.com/post/653348546977890304)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
