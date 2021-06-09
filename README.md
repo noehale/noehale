@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCute ferret vs. Work bootvia Ferret Story https://prettypeterparkr.tumblr.com/post/653284327062388736](https://t.me/ferretman/2765)
-- [vet-and-wild:MediaSo sleepyvia Ferret Story https://scrisoridemai.tumblr.com/post/653284315958050816](https://t.me/ferretman/2764)
-- [MediaThis was supposed to be a ball pit… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653276765354098688](https://t.me/ferretman/2763)
-- [MediaThis is my baby girl AJ. She passed a while ago but I still think she should be shared : ferretsvia Ferret Story https://babyiwannaknow.tumblr.co...](https://t.me/ferretman/2762)
-- [leauxgan:thesylverlining:mishasminions:wumbowing:jessicreep:kumoi-no-hikari:makomori:#submit this for best short at the oscarsthis is that one post th...](https://t.me/ferretman/2761)
+- [Mediacan you tell which one is the annoying little brother?via Ferret Story https://just-a-catastrophy.tumblr.com/post/653439073144406016](https://t.me/ferretman/2797)
+- [MediaYum yumsvia Ferret Story https://scrisoridemai.tumblr.com/post/653435302752468992](https://t.me/ferretman/2796)
+- [bob-artist:bob-artist:I reach into my garbage can and locate my trash child.For the record, Kit doesn’t *only* sleep in that garbage can.He also slee...](https://t.me/ferretman/2795)
+- [MediaMlems : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653427755176935424](https://t.me/ferretman/2794)
+- [idonthavevans:victorgparra:hiddlesbabee:lpbear:gt-lonestar:stargeek727:hentaihoneybun:awakandangoddess:ThisMediagotta be the equivalent to thisMediaSa...](https://t.me/ferretman/2793)
 <!-- TELEGRAM:END -->
