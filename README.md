@@ -48,16 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/653461757792256000)
 - [hitmewithcute:The First Dog](https://come-forth-into-the-light.tumblr.com/post/653439092895449088)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653416419054223360)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653371201283047424)
 - [beesandbombs:sphere tangle](https://come-forth-into-the-light.tumblr.com/post/653348546977890304)
-- [wnslw:
-hydrolize:
-
-Someone left their dogs outside the cafe
-
-pug...](https://come-forth-into-the-light.tumblr.com/post/653325826078769152)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
