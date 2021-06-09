@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaGirl fight! Feat. Phoebe middleweight vs. Ella ultra light weight (sound on for cute chatterbox Dook Dook)via Ferret Story https://scrisoridemai....](https://t.me/ferretman/2805)
-- [MediaTheir little feets are the cutest!!!via Ferret Story https://prettypeterparkr.tumblr.com/post/653465486463467520](https://t.me/ferretman/2804)
-- [MediaI got these two babies from a hoarding situation last night. Now to get the plump and healthy! : ferretsvia Ferret Story https://anasfalhhhs.tumb...](https://t.me/ferretman/2803)
-- [MediaA chonky boi 😌 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653454241462091776](https://t.me/ferretman/2802)
-- [MediaLily loves to bother Kingsley when he’s trying to sleep : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653454241519763456](https://t.me/ferretman/2801)
+- [MediaCute ferret vs. Work bootvia Ferret Story https://prettypeterparkr.tumblr.com/post/653284327062388736](https://t.me/ferretman/2765)
+- [vet-and-wild:MediaSo sleepyvia Ferret Story https://scrisoridemai.tumblr.com/post/653284315958050816](https://t.me/ferretman/2764)
+- [MediaThis was supposed to be a ball pit… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653276765354098688](https://t.me/ferretman/2763)
+- [MediaThis is my baby girl AJ. She passed a while ago but I still think she should be shared : ferretsvia Ferret Story https://babyiwannaknow.tumblr.co...](https://t.me/ferretman/2762)
+- [leauxgan:thesylverlining:mishasminions:wumbowing:jessicreep:kumoi-no-hikari:makomori:#submit this for best short at the oscarsthis is that one post th...](https://t.me/ferretman/2761)
 <!-- TELEGRAM:END -->
