@@ -48,6 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [maramahan:
+catsbeaversandducks:
+
+
+“Bran our Ravens idea of...](https://come-forth-into-the-light.tumblr.com/post/653597626695057408)
 - [lochnessmonsterofficial:
 zionthepansexual:
 
@@ -62,7 +67,6 @@ criticalpax:
 
 In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433466880)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653461757792256000)
-- [hitmewithcute:The First Dog](https://come-forth-into-the-light.tumblr.com/post/653439092895449088)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
