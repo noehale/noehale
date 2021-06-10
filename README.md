@@ -77,9 +77,9 @@ In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaThis is my ferret Zita! Her first birthday is coming up soon, does anyone have any suggestions for a birthday ‘cake’ she could eat or possible ...](https://t.me/ferretman/2836)
-- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/653563639157161984](https://t.me/ferretman/2835)
-- [MediaHope he doesn’t fart ¯_(ツ)_/¯ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653548525633880064](https://t.me/ferretman/2834)
-- [MediaYeah just sleep here like this : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653544874648453120](https://t.me/ferretman/2833)
-- [<a href="https://avatrashh.tumblr.com/post/177132412764/nightwinggirl42-seyaryminamoto-madamebomb">avatrashh</a>:<a href="https://nightwinggirl42.tumb...](https://t.me/ferretman/2832)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653635426597453824](https://t.me/ferretman/2850)
+- [MediaThis is how they choose to use the bed : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653635412607270912](https://t.me/ferretman/2849)
+- [kimchievic:egbertitties:atomicpowered:gr0sse:higashizawa:remember that sasuke figurine that could hold up like literally fricking anythignimageimageim...](https://t.me/ferretman/2848)
+- [MediaCleaning 🧹 day 🧼 🪣 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653635377042735104](https://t.me/ferretman/2847)
+- [Mediawanna tea? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653635377002889216](https://t.me/ferretman/2846)
 <!-- TELEGRAM:END -->
