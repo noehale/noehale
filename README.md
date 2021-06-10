@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/653642911082332160)
 - [sleepykirby:
 rudebiboy:
 
@@ -65,13 +66,6 @@ zionthepansexual:
 dangerbooze:
 OH MY...](https://come-forth-into-the-light.tumblr.com/post/653552350507778048)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653529722631946240)
-- [penllawen:redcloud:
-
-groverviolet:
-
-criticalpax:
-
-In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433466880)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
