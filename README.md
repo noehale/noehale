@@ -68,9 +68,9 @@ In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHope he doesn’t fart ¯_(ツ)_/¯ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653548525633880064](https://t.me/ferretman/2823)
-- [MediaQuarantine has been rough. Meet my kids new “classmates” Sugar and Spice. They are perfect! : ferretsvia Ferret Story https://somewhere-inthe-d...](https://t.me/ferretman/2822)
-- [MediaYeah just sleep here like this : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653544874648453120](https://t.me/ferretman/2821)
-- [MediaIt’s a lot more yellow but in real life it’s a lot whiter…what could this be? They had an egg today and she’s acting completely normal : ferr...](https://t.me/ferretman/2820)
-- [MediaRocko dreaming with some bleeps! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653544801427456000](https://t.me/ferretman/2819)
+- [stupidstagram: U ever been so tired ur eyelids burn when u blinkvia Ferret Story https://just-a-catastrophy.tumblr.com/post/653529684319092736](https://t.me/ferretman/2817)
+- [misioandkinga:MediaMediaMediaMediaMediaMediavia Ferret Story https://scrisoridemai.tumblr.com/post/653525900716130304](https://t.me/ferretman/2816)
+- [MediaLily doin a wake up 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/653525889223671809](https://t.me/ferretman/2815)
+- [<a href="https://avatrashh.tumblr.com/post/177132412764/nightwinggirl42-seyaryminamoto-madamebomb">avatrashh</a>:<a href="https://nightwinggirl42.tumb...](https://t.me/ferretman/2814)
+- [Mediareimenaashelyee:Paco the Ferret @misioandkinga . Summer Pet Portrait commission.via Ferret Story https://babyiwannaknow.tumblr.com/post/653514639...](https://t.me/ferretman/2813)
 <!-- TELEGRAM:END -->
