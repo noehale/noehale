@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [sleepykirby:
+rudebiboy:
+
+
+cinnapeaches:
+-_- and :/ are irreplaceable emoticons that emojis will...](https://come-forth-into-the-light.tumblr.com/post/653620356661346304)
 - [maramahan:
 catsbeaversandducks:
 
@@ -66,7 +72,6 @@ groverviolet:
 criticalpax:
 
 In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433466880)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/653461757792256000)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
