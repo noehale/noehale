@@ -68,9 +68,9 @@ In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/653563639157161984](https://t.me/ferretman/2826)
 - [MediaTungvia Ferret Story https://prettypeterparkr.tumblr.com/post/653556137767174144](https://t.me/ferretman/2825)
 - [MediaMediaMediacannonball-the-ferret:Happy Saturday!!!! It’s really cold out here in the northeast, so remember to keep warm by staying in bed.This h...](https://t.me/ferretman/2824)
 - [MediaHope he doesn’t fart ¯_(ツ)_/¯ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653548525633880064](https://t.me/ferretman/2823)
 - [MediaQuarantine has been rough. Meet my kids new “classmates” Sugar and Spice. They are perfect! : ferretsvia Ferret Story https://somewhere-inthe-d...](https://t.me/ferretman/2822)
-- [MediaYeah just sleep here like this : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653544874648453120](https://t.me/ferretman/2821)
 <!-- TELEGRAM:END -->
