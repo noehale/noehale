@@ -77,9 +77,9 @@ In which Loki...](https://come-forth-into-the-light.tumblr.com/post/653507061433
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaThis thing keeps hurting my plantsvia Ferret Story https://prettypeterparkr.tumblr.com/post/653616515271262208](https://t.me/ferretman/2844)
-- [MediaMediathelifeofmyferrets:I keep seeing this ferret stuck in a paper towel roll. People think this is a cute/funny picture but this ferret is actua...](https://t.me/ferretman/2843)
-- [MediaStealy Dan looking regal af : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653608913971838977](https://t.me/ferretman/2842)
-- [MediaThese two. : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653605269511815168](https://t.me/ferretman/2841)
-- [shitpostsorcerer:midnightatwalmart:wodneswynn:kainoliero:wodneswynn:Concept: You walk outside one night and notice that there are two full moons. A fe...](https://t.me/ferretman/2840)
+- [MediaThis is my ferret Zita! Her first birthday is coming up soon, does anyone have any suggestions for a birthday ‘cake’ she could eat or possible ...](https://t.me/ferretman/2836)
+- [Mediavia Ferret Story https://punkrocknat.tumblr.com/post/653563639157161984](https://t.me/ferretman/2835)
+- [MediaHope he doesn’t fart ¯_(ツ)_/¯ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653548525633880064](https://t.me/ferretman/2834)
+- [MediaYeah just sleep here like this : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653544874648453120](https://t.me/ferretman/2833)
+- [<a href="https://avatrashh.tumblr.com/post/177132412764/nightwinggirl42-seyaryminamoto-madamebomb">avatrashh</a>:<a href="https://nightwinggirl42.tumb...](https://t.me/ferretman/2832)
 <!-- TELEGRAM:END -->
