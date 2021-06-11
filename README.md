@@ -71,9 +71,9 @@ OH MY...](https://come-forth-into-the-light.tumblr.com/post/653552350507778048)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaEpic noodle battle, Wasabi (brown F) vs Pepino (albino chunky boi)via Ferret Story https://just-a-catastrophy.tumblr.com/post/653650536742207488](https://t.me/ferretman/2854)
-- [MediaOri & Gumo explore the backyard grassvia Ferret Story https://scrisoridemai.tumblr.com/post/653646691839475712](https://t.me/ferretman/2853)
-- [smellectric:cyber-yeezuss:I wanna be 14 again and ruin my life differently… I have new ideasMediavia Ferret Story https://prettypeterparkr.tumblr.com...](https://t.me/ferretman/2852)
-- [MediaHe doesn’t get it but he’s got the spirit : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653639155311607808](https://t.me/ferretman/2851)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653635426597453824](https://t.me/ferretman/2850)
+- [<a href="https://avatrashh.tumblr.com/post/177132412764/nightwinggirl42-seyaryminamoto-madamebomb">avatrashh</a>:<a href="https://nightwinggirl42.tumb...](https://t.me/ferretman/2814)
+- [Mediareimenaashelyee:Paco the Ferret @misioandkinga . Summer Pet Portrait commission.via Ferret Story https://babyiwannaknow.tumblr.com/post/653514639...](https://t.me/ferretman/2813)
+- [MediaOld video of my fuzzies playing…and also beating each other up 🤪via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/65351463...](https://t.me/ferretman/2812)
+- [croptop2014:j5h:imagine having sex with a ghost and then someone walks into your room and they see your asshole widening and narrowing for no reasonim...](https://t.me/ferretman/2811)
+- [MediaMediaMediaMediakateordie:thenearsightedmonkey:By Lynda Barry  May 2016Every time I see this I love it morevia Ferret Story https://xxcrybby.tumb...](https://t.me/ferretman/2810)
 <!-- TELEGRAM:END -->
