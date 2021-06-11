@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/653710886893223936)
 - [sluttynuggets:
 superhighschoolleveldork:
 
@@ -67,11 +68,6 @@ catsbeaversandducks:
 
 
 “Bran our Ravens idea of...](https://come-forth-into-the-light.tumblr.com/post/653597626695057408)
-- [lochnessmonsterofficial:
-zionthepansexual:
-
-dangerbooze:
-OH MY...](https://come-forth-into-the-light.tumblr.com/post/653552350507778048)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
