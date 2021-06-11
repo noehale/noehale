@@ -48,6 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [sluttynuggets:
+superhighschoolleveldork:
+
+“digital art isn’t real art!!!!1!!!!”.
+
+
+is this a...](https://come-forth-into-the-light.tumblr.com/post/653688211317653504)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653642911082332160)
 - [sleepykirby:
 rudebiboy:
@@ -65,7 +72,6 @@ zionthepansexual:
 
 dangerbooze:
 OH MY...](https://come-forth-into-the-light.tumblr.com/post/653552350507778048)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/653529722631946240)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
