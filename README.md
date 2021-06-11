@@ -71,9 +71,9 @@ OH MY...](https://come-forth-into-the-light.tumblr.com/post/653552350507778048)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaEpic noodle battle, Wasabi (brown F) vs Pepino (albino chunky boi)via Ferret Story https://just-a-catastrophy.tumblr.com/post/653650536742207488](https://t.me/ferretman/2854)
+- [MediaOri & Gumo explore the backyard grassvia Ferret Story https://scrisoridemai.tumblr.com/post/653646691839475712](https://t.me/ferretman/2853)
+- [smellectric:cyber-yeezuss:I wanna be 14 again and ruin my life differently… I have new ideasMediavia Ferret Story https://prettypeterparkr.tumblr.com...](https://t.me/ferretman/2852)
+- [MediaHe doesn’t get it but he’s got the spirit : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653639155311607808](https://t.me/ferretman/2851)
 - [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653635426597453824](https://t.me/ferretman/2850)
-- [MediaThis is how they choose to use the bed : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653635412607270912](https://t.me/ferretman/2849)
-- [kimchievic:egbertitties:atomicpowered:gr0sse:higashizawa:remember that sasuke figurine that could hold up like literally fricking anythignimageimageim...](https://t.me/ferretman/2848)
-- [MediaCleaning 🧹 day 🧼 🪣 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653635377042735104](https://t.me/ferretman/2847)
-- [Mediawanna tea? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653635377002889216](https://t.me/ferretman/2846)
 <!-- TELEGRAM:END -->
