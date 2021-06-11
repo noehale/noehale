@@ -77,9 +77,9 @@ OH MY...](https://come-forth-into-the-light.tumblr.com/post/653552350507778048)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediababyanimalgifs:He’s innocent!via Ferret Story https://punkrocknat.tumblr.com/post/653684430416822272](https://t.me/ferretman/2856)
 - [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://punkrocknat.tumblr.com/post/653654270140448768](https://t.me/ferretman/2855)
 - [MediaEpic noodle battle, Wasabi (brown F) vs Pepino (albino chunky boi)via Ferret Story https://just-a-catastrophy.tumblr.com/post/653650536742207488](https://t.me/ferretman/2854)
 - [MediaOri & Gumo explore the backyard grassvia Ferret Story https://scrisoridemai.tumblr.com/post/653646691839475712](https://t.me/ferretman/2853)
 - [smellectric:cyber-yeezuss:I wanna be 14 again and ruin my life differently… I have new ideasMediavia Ferret Story https://prettypeterparkr.tumblr.com...](https://t.me/ferretman/2852)
-- [MediaHe doesn’t get it but he’s got the spirit : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653639155311607808](https://t.me/ferretman/2851)
 <!-- TELEGRAM:END -->
