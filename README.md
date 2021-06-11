@@ -73,9 +73,9 @@ catsbeaversandducks:
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediababyanimalgifs:He’s innocent!via Ferret Story https://punkrocknat.tumblr.com/post/653684430416822272](https://t.me/ferretman/2856)
-- [“shit wrong blog”- every tumblr user with a side blog (via pinkmanjesse)via Ferret Story https://punkrocknat.tumblr.com/post/653654270140448768](https://t.me/ferretman/2855)
-- [MediaEpic noodle battle, Wasabi (brown F) vs Pepino (albino chunky boi)via Ferret Story https://just-a-catastrophy.tumblr.com/post/653650536742207488](https://t.me/ferretman/2854)
-- [MediaOri & Gumo explore the backyard grassvia Ferret Story https://scrisoridemai.tumblr.com/post/653646691839475712](https://t.me/ferretman/2853)
-- [smellectric:cyber-yeezuss:I wanna be 14 again and ruin my life differently… I have new ideasMediavia Ferret Story https://prettypeterparkr.tumblr.com...](https://t.me/ferretman/2852)
+- [MediaOliver thinks he’s a people. He dragged a doll blanket into his basket, snuggled up with it, and went to sleep.via Ferret Story https://scrisori...](https://t.me/ferretman/2864)
+- [bob-artist:In honor of National Ferret Day, please join the rest of the nation in watching Kit act like a total dork.via Ferret Story https://prettype...](https://t.me/ferretman/2863)
+- [Mediaif you could would you boop the snoot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653699556654071809](https://t.me/ferretman/2862)
+- [MediaI’m new to this sub and these are my three ferrets thor, loki, and Digger : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/65369583463...](https://t.me/ferretman/2861)
+- [Mediapotatochipped:coexistencex:yellowpainteater:wats he doinHis bestvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653695834063...](https://t.me/ferretman/2860)
 <!-- TELEGRAM:END -->
