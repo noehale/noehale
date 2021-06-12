@@ -48,6 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [normajeansbakery:
+theoriginalpurpledogpalace:
+
+normajeansbakery:
+...](https://come-forth-into-the-light.tumblr.com/post/653733526743777280)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653710886893223936)
 - [sluttynuggets:
 superhighschoolleveldork:
@@ -63,11 +68,6 @@ rudebiboy:
 
 cinnapeaches:
 -_- and :/ are irreplaceable emoticons that emojis will...](https://come-forth-into-the-light.tumblr.com/post/653620356661346304)
-- [maramahan:
-catsbeaversandducks:
-
-
-“Bran our Ravens idea of...](https://come-forth-into-the-light.tumblr.com/post/653597626695057408)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
