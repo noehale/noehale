@@ -68,9 +68,9 @@ is this a...](https://come-forth-into-the-light.tumblr.com/post/6536882113176535
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaOliver thinks he’s a people. He dragged a doll blanket into his basket, snuggled up with it, and went to sleep.via Ferret Story https://scrisori...](https://t.me/ferretman/2864)
-- [bob-artist:In honor of National Ferret Day, please join the rest of the nation in watching Kit act like a total dork.via Ferret Story https://prettype...](https://t.me/ferretman/2863)
-- [Mediaif you could would you boop the snoot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653699556654071809](https://t.me/ferretman/2862)
-- [MediaI’m new to this sub and these are my three ferrets thor, loki, and Digger : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/65369583463...](https://t.me/ferretman/2861)
-- [Mediapotatochipped:coexistencex:yellowpainteater:wats he doinHis bestvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653695834063...](https://t.me/ferretman/2860)
+- [MediaHoney’s deep in thoughtvia Ferret Story https://scrisoridemai.tumblr.com/post/653797662755274752](https://t.me/ferretman/2884)
+- [MediaShe thinks she’s viciousvia Ferret Story https://prettypeterparkr.tumblr.com/post/653797662798331905](https://t.me/ferretman/2883)
+- [MediaLola fell asleep in a cloud…. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653790165056290816](https://t.me/ferretman/2882)
+- [bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.via Ferret Story https://babyiwannaknow.tumblr.com/post/653786447...](https://t.me/ferretman/2881)
+- [MediaSo, I got a Proper camera now! No Blurry Cyrano pics! I’m so happy! LOOK AT THIS CUTE LIL’ DEMON! 😻 : ferretsvia Ferret Story https://falala...](https://t.me/ferretman/2880)
 <!-- TELEGRAM:END -->
