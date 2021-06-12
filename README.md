@@ -68,9 +68,9 @@ is this a...](https://come-forth-into-the-light.tumblr.com/post/6536882113176535
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/653775024024633344](https://t.me/ferretman/2876)
 - [MediaMy ferret printer ran out of ink 🖨 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653744882035408896](https://t.me/ferretman/2875)
 - [analmals: pitsu-pitsu: analmals: do u ever get like water hungry… Thirsty? water hungryvia Ferret Story https://just-a-catastrophy.tumblr.com/post/65...](https://t.me/ferretman/2874)
 - [MediaOtis and Milo love their walks out 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/653737318161727488](https://t.me/ferretman/2873)
 - [wild-weasels:suspicious-scritches:Enjoy my dumb sons messing with my dice hoard.Pickles going wild in my dice hoardvia Ferret Story https://scrisoride...](https://t.me/ferretman/2872)
-- [MediaHe didn’t quite make it to bed. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653729753134678017](https://t.me/ferretman/2871)
 <!-- TELEGRAM:END -->
