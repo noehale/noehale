@@ -73,9 +73,9 @@ cinnapeaches:
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaOliver thinks he’s a people. He dragged a doll blanket into his basket, snuggled up with it, and went to sleep.via Ferret Story https://scrisori...](https://t.me/ferretman/2864)
-- [bob-artist:In honor of National Ferret Day, please join the rest of the nation in watching Kit act like a total dork.via Ferret Story https://prettype...](https://t.me/ferretman/2863)
-- [Mediaif you could would you boop the snoot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653699556654071809](https://t.me/ferretman/2862)
-- [MediaI’m new to this sub and these are my three ferrets thor, loki, and Digger : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/65369583463...](https://t.me/ferretman/2861)
-- [Mediapotatochipped:coexistencex:yellowpainteater:wats he doinHis bestvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653695834063...](https://t.me/ferretman/2860)
+- [MediaMy ferret printer ran out of ink 🖨 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653744882035408896](https://t.me/ferretman/2875)
+- [analmals: pitsu-pitsu: analmals: do u ever get like water hungry… Thirsty? water hungryvia Ferret Story https://just-a-catastrophy.tumblr.com/post/65...](https://t.me/ferretman/2874)
+- [MediaOtis and Milo love their walks out 🥰via Ferret Story https://prettypeterparkr.tumblr.com/post/653737318161727488](https://t.me/ferretman/2873)
+- [wild-weasels:suspicious-scritches:Enjoy my dumb sons messing with my dice hoard.Pickles going wild in my dice hoardvia Ferret Story https://scrisoride...](https://t.me/ferretman/2872)
+- [MediaHe didn’t quite make it to bed. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653729753134678017](https://t.me/ferretman/2871)
 <!-- TELEGRAM:END -->
