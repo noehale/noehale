@@ -73,9 +73,9 @@ cinnapeaches:
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://xxcrybby.tumblr.com/post/653726053591842816](https://t.me/ferretman/2870)
-- [daddyhyperion:daddyhyperion: Don’t Stop Believing Bohemian Rhapsody Living On A Prayer Come On Eileen Sweet Caroline Shot Through the Heart Po...](https://t.me/ferretman/2869)
-- [MediaNyla fell asleep praying for a good snooze : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653726043830681600](https://t.me/ferretman/2868)
-- [everythingfox:Ferret sees snow for the first time(via)via Ferret Story https://babyiwannaknow.tumblr.com/post/653725971789332480](https://t.me/ferretman/2867)
-- [MediaSleepy Silas : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653725972232798209](https://t.me/ferretman/2866)
+- [MediaOliver thinks he’s a people. He dragged a doll blanket into his basket, snuggled up with it, and went to sleep.via Ferret Story https://scrisori...](https://t.me/ferretman/2864)
+- [bob-artist:In honor of National Ferret Day, please join the rest of the nation in watching Kit act like a total dork.via Ferret Story https://prettype...](https://t.me/ferretman/2863)
+- [Mediaif you could would you boop the snoot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653699556654071809](https://t.me/ferretman/2862)
+- [MediaI’m new to this sub and these are my three ferrets thor, loki, and Digger : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/65369583463...](https://t.me/ferretman/2861)
+- [Mediapotatochipped:coexistencex:yellowpainteater:wats he doinHis bestvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653695834063...](https://t.me/ferretman/2860)
 <!-- TELEGRAM:END -->
