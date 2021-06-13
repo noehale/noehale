@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHe means well 😅 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653865610788339712](https://t.me/ferretman/2896)
-- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/2895)
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/653831729982898176](https://t.me/ferretman/2894)
-- [victoria-is-trash:asexualizing:liking abba is not your taste in music it’s a way of life and people who don’t like abba can’t reach the ideal world...](https://t.me/ferretman/2893)
-- [Mediagiant stretch! giant yawn!via Ferret Story https://scrisoridemai.tumblr.com/post/653827889682333696](https://t.me/ferretman/2892)
+- [theferrets:jesuser:imagine all your online friends living near youSo many ferret playdatesvia Ferret Story https://scrisoridemai.tumblr.com/post/65388...](https://t.me/ferretman/2904)
+- [Mediavia Ferret Story https://prettypeterparkr.tumblr.com/post/653888254050975744](https://t.me/ferretman/2903)
+- [MediaFerrets reaction to new harness (he forgot all about it once outside— much excite!) : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/pos...](https://t.me/ferretman/2902)
+- [Mediajust moggs cuddling up in bed ♡via Ferret Story https://babyiwannaknow.tumblr.com/post/653877054450843648](https://t.me/ferretman/2901)
+- [MediaMediaMediaMediaMediademumbridge:getinmelanin011:Lmao all of the moodswhy is this so fucking funnyvia Ferret Story https://xxcrybby.tumblr.com/pos...](https://t.me/ferretman/2900)
 <!-- TELEGRAM:END -->
