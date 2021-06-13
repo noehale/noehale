@@ -62,9 +62,9 @@ normajeansbakery:
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHoney’s deep in thoughtvia Ferret Story https://scrisoridemai.tumblr.com/post/653797662755274752](https://t.me/ferretman/2884)
-- [MediaShe thinks she’s viciousvia Ferret Story https://prettypeterparkr.tumblr.com/post/653797662798331905](https://t.me/ferretman/2883)
-- [MediaLola fell asleep in a cloud…. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653790165056290816](https://t.me/ferretman/2882)
-- [bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.via Ferret Story https://babyiwannaknow.tumblr.com/post/653786447...](https://t.me/ferretman/2881)
-- [MediaSo, I got a Proper camera now! No Blurry Cyrano pics! I’m so happy! LOOK AT THIS CUTE LIL’ DEMON! 😻 : ferretsvia Ferret Story https://falala...](https://t.me/ferretman/2880)
+- [MediaScientists have cloned the first U.S. endangered species, the black footed ferret. Pictured is Elizabeth Ann, the first cloned black-footed ferre...](https://t.me/ferretman/2890)
+- [MediaMediaMediaitscolossal:An Intricate Lace Mural Envelops the Facade of a French Fashion Museumvia Ferret Story https://somewhere-inthe-deepdetails....](https://t.me/ferretman/2889)
+- [MediaMisha wants to be a rock star. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653816591061073920](https://t.me/ferretman/2888)
+- [MediaAnyone elses ferret just wont let you own anything? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653816591054766080](https://t.me/ferretman/2887)
+- [Mediajustotters:🎈デッキブラシと✨もみじちゃん💕#もみじ #コツメカワウソ #カワウソ #サンシャイン水族館 #otter https://t.co/IWSY8ytT8Pvia Ferret Sto...](https://t.me/ferretman/2886)
 <!-- TELEGRAM:END -->
