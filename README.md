@@ -62,9 +62,9 @@ normajeansbakery:
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaScientists have cloned the first U.S. endangered species, the black footed ferret. Pictured is Elizabeth Ann, the first cloned black-footed ferre...](https://t.me/ferretman/2890)
-- [MediaMediaMediaitscolossal:An Intricate Lace Mural Envelops the Facade of a French Fashion Museumvia Ferret Story https://somewhere-inthe-deepdetails....](https://t.me/ferretman/2889)
-- [MediaMisha wants to be a rock star. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/653816591061073920](https://t.me/ferretman/2888)
-- [MediaAnyone elses ferret just wont let you own anything? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653816591054766080](https://t.me/ferretman/2887)
-- [Mediajustotters:🎈デッキブラシと✨もみじちゃん💕#もみじ #コツメカワウソ #カワウソ #サンシャイン水族館 #otter https://t.co/IWSY8ytT8Pvia Ferret Sto...](https://t.me/ferretman/2886)
+- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/2895)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/653831729982898176](https://t.me/ferretman/2894)
+- [victoria-is-trash:asexualizing:liking abba is not your taste in music it’s a way of life and people who don’t like abba can’t reach the ideal world...](https://t.me/ferretman/2893)
+- [Mediagiant stretch! giant yawn!via Ferret Story https://scrisoridemai.tumblr.com/post/653827889682333696](https://t.me/ferretman/2892)
+- [MediaAn extremely accurate depiction of life with ferrets. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653820329706274816](https://t.me/ferretman/2891)
 <!-- TELEGRAM:END -->
