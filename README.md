@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [cwote:Please, spend your time doing the things that make you...](https://come-forth-into-the-light.tumblr.com/post/653824130314108928)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653801458902450176)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653778820522016768)
 - [normajeansbakery:
@@ -56,13 +57,6 @@ theoriginalpurpledogpalace:
 normajeansbakery:
 ...](https://come-forth-into-the-light.tumblr.com/post/653733526743777280)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653710886893223936)
-- [sluttynuggets:
-superhighschoolleveldork:
-
-“digital art isn’t real art!!!!1!!!!”.
-
-
-is this a...](https://come-forth-into-the-light.tumblr.com/post/653688211317653504)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
