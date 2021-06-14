@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653922265774374913](https://t.me/ferretman/2914)
-- [everythingfox:he comin’(via)via Ferret Story https://scrisoridemai.tumblr.com/post/653918510280523776](https://t.me/ferretman/2913)
-- [MediaSleepy moose.. he got to play in a pit full of snow and he’s all out of energy nowvia Ferret Story https://prettypeterparkr.tumblr.com/post/6539...](https://t.me/ferretman/2912)
-- [MediaMy babies looking cute : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653910949958467584](https://t.me/ferretman/2911)
-- [MediaHow I get Stu to relax and go nini…now he always sleeps on me, when he was younger there was a lot more resistance haha : ferretsvia Ferret Stor...](https://t.me/ferretman/2910)
+- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/2895)
+- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/653831729982898176](https://t.me/ferretman/2894)
+- [victoria-is-trash:asexualizing:liking abba is not your taste in music it’s a way of life and people who don’t like abba can’t reach the ideal world...](https://t.me/ferretman/2893)
+- [Mediagiant stretch! giant yawn!via Ferret Story https://scrisoridemai.tumblr.com/post/653827889682333696](https://t.me/ferretman/2892)
+- [MediaAn extremely accurate depiction of life with ferrets. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653820329706274816](https://t.me/ferretman/2891)
 <!-- TELEGRAM:END -->
