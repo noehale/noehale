@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [thatweirdferretlady:esamistletoe:esamistletoe:unstable-violent-well-armed:Serious Business@wearestillflying@thatweirdferretlady I’VE WANTED TO SHOW Y...](https://t.me/ferretman/2895)
-- [via Ferret Story https://just-a-catastrophy.tumblr.com/post/653831729982898176](https://t.me/ferretman/2894)
-- [victoria-is-trash:asexualizing:liking abba is not your taste in music it’s a way of life and people who don’t like abba can’t reach the ideal world...](https://t.me/ferretman/2893)
-- [Mediagiant stretch! giant yawn!via Ferret Story https://scrisoridemai.tumblr.com/post/653827889682333696](https://t.me/ferretman/2892)
-- [MediaAn extremely accurate depiction of life with ferrets. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653820329706274816](https://t.me/ferretman/2891)
+- [MediaValentine’s Day Ferret : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653956208374546432](https://t.me/ferretman/2917)
+- [MediaValentine’s Day Ferret : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653956208374546432](https://t.me/ferretman/2916)
+- [rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2915)
+- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653922265774374913](https://t.me/ferretman/2914)
+- [everythingfox:he comin’(via)via Ferret Story https://scrisoridemai.tumblr.com/post/653918510280523776](https://t.me/ferretman/2913)
 <!-- TELEGRAM:END -->
