@@ -48,11 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Bimi got the zoomies on the bed : ferrets](https://come-forth-into-the-light.tumblr.com/post/653982738040389632)
 - [hitmewithcute:My greyhound was snoozing under blankets in her...](https://come-forth-into-the-light.tumblr.com/post/653960023757733888)
 - [ingrid-thulin:EARTHA](https://come-forth-into-the-light.tumblr.com/post/653914712451465216)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/653892135573241856)
 - [Nebula & Jupiter. My girls 💜 : ferrets](https://come-forth-into-the-light.tumblr.com/post/653869395159973888)
-- [cwote:Please, spend your time doing the things that make you...](https://come-forth-into-the-light.tumblr.com/post/653824130314108928)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
