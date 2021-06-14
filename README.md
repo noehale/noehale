@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [View this post on InstagramA post shared by Chantelle Trainor-Matties (@frettchan)theferrets:I have no words 💕#ferret #kēki #instapet #petstagram ...](https://t.me/ferretman/2932)
+- [MediaSleepy babyvia Ferret Story https://scrisoridemai.tumblr.com/post/653978874093371392](https://t.me/ferretman/2931)
+- [MediaOne minute, he’s cute. The next, he’s pooping in a random corner. 🤷🏼‍♀️via Ferret Story https://prettypeterparkr.tumblr.com/post/65397...](https://t.me/ferretman/2930)
 - [MediaI don’t think Gwin is enjoying the cleaning, Loki : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653971352672501760](https://t.me/ferretman/2929)
 - [MediaTime Out Training ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653967635795542016](https://t.me/ferretman/2928)
-- [MediaShe imagines that she is stuck. She isn’t. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653967634872909824](https://t.me/ferretman/2927)
-- [MediaMeeko 🌈 drawn in graphite and fineliners : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653967634638979072](https://t.me/ferretman/2926)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653967619185082368](https://t.me/ferretman/2925)
 <!-- TELEGRAM:END -->
