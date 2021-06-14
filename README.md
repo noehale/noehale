@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI don’t think Gwin is enjoying the cleaning, Loki : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653971352672501760](https://t.me/ferretman/2923)
-- [MediaTime Out Training ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653967635795542016](https://t.me/ferretman/2922)
-- [MediaShe imagines that she is stuck. She isn’t. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653967634872909824](https://t.me/ferretman/2921)
-- [MediaMeeko 🌈 drawn in graphite and fineliners : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653967634638979072](https://t.me/ferretman/2920)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653967619185082368](https://t.me/ferretman/2919)
+- [MediaI don’t think Gwin is enjoying the cleaning, Loki : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653971352672501760](https://t.me/ferretman/2929)
+- [MediaTime Out Training ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653967635795542016](https://t.me/ferretman/2928)
+- [MediaShe imagines that she is stuck. She isn’t. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653967634872909824](https://t.me/ferretman/2927)
+- [MediaMeeko 🌈 drawn in graphite and fineliners : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653967634638979072](https://t.me/ferretman/2926)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653967619185082368](https://t.me/ferretman/2925)
 <!-- TELEGRAM:END -->
