@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653922265774374913](https://t.me/ferretman/2914)
+- [everythingfox:he comin’(via)via Ferret Story https://scrisoridemai.tumblr.com/post/653918510280523776](https://t.me/ferretman/2913)
+- [MediaSleepy moose.. he got to play in a pit full of snow and he’s all out of energy nowvia Ferret Story https://prettypeterparkr.tumblr.com/post/6539...](https://t.me/ferretman/2912)
+- [MediaMy babies looking cute : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653910949958467584](https://t.me/ferretman/2911)
 - [MediaHow I get Stu to relax and go nini…now he always sleeps on me, when he was younger there was a lot more resistance haha : ferretsvia Ferret Stor...](https://t.me/ferretman/2910)
-- [morkitten:snuv:copywriteddad:hustlerose:notlikingbestgirl:Out of TouchOut of Touch ThursdayOUT OF TOUCH THURSDAYbut im out of my head when you’re not...](https://t.me/ferretman/2909)
-- [Mediaferret sizes, male ferrets and implants : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653907168316243968](https://t.me/ferretman/2908)
-- [Media-) i’m feeling very grateful for them, and for our luck today. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653907168327778304](https://t.me/ferretman/2907)
-- [MediaMedialosersanddummies:At the GCFA on New Year’s with DJ Jazzy Jeff, Roscoe, Rufus, and Fresh Prince!  I cannot handle these guys! ;_;via Ferret...](https://t.me/ferretman/2906)
 <!-- TELEGRAM:END -->
