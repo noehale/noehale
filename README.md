@@ -59,9 +59,9 @@ Enjoy your #tshirt with #martens...](https://come-forth-into-the-light.tumblr.co
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI don’t think Gwin is enjoying the cleaning, Loki : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653971352672501760](https://t.me/ferretman/2929)
-- [MediaTime Out Training ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653967635795542016](https://t.me/ferretman/2928)
-- [MediaShe imagines that she is stuck. She isn’t. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653967634872909824](https://t.me/ferretman/2927)
-- [MediaMeeko 🌈 drawn in graphite and fineliners : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653967634638979072](https://t.me/ferretman/2926)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653967619185082368](https://t.me/ferretman/2925)
+- [MediaMeet Zora : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/654016640170803201](https://t.me/ferretman/2942)
+- [misioandkinga:tad playing in the bead pit, pt.2via Ferret Story https://just-a-catastrophy.tumblr.com/post/654012854350036993](https://t.me/ferretman/2941)
+- [prollyright:napping together is my kind of datevia Ferret Story https://prettypeterparkr.tumblr.com/post/654009096433025024](https://t.me/ferretman/2940)
+- [MediaMediaMediaMediatheferrets:stuffedpandastudios:VIDEO: https://www.youtube.com/watch?v=z2RqNj9r8f8&feature=youtu.beVIDEO of mask: https://www.faceb...](https://t.me/ferretman/2939)
+- [MediaOk but can we look at my lil man acting like a lil pup : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654001514528030720](https://t.me/ferretman/2938)
 <!-- TELEGRAM:END -->
