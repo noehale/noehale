@@ -59,9 +59,9 @@ Enjoy your #tshirt with #martens...](https://come-forth-into-the-light.tumblr.co
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaI don’t think Gwin is enjoying the cleaning, Loki : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653971352672501760](https://t.me/ferretman/2929)
-- [MediaTime Out Training ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653967635795542016](https://t.me/ferretman/2928)
-- [MediaShe imagines that she is stuck. She isn’t. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653967634872909824](https://t.me/ferretman/2927)
-- [MediaMeeko 🌈 drawn in graphite and fineliners : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653967634638979072](https://t.me/ferretman/2926)
-- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653967619185082368](https://t.me/ferretman/2925)
+- [MediaHow do I make it onto the bed? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654061919092817920](https://t.me/ferretman/2949)
+- [Mediae-stocado:Playa Hermosa, Costa Ricavia Ferret Story https://babyiwannaknow.tumblr.com/post/654058202552483840](https://t.me/ferretman/2948)
+- [<a href="https://bunjywunjy.tumblr.com/post/638405406038851585/i-was-walking-through-the-toy-aisle-at-target-when">bunjywunjy</a>:<a href="https://bun...](https://t.me/ferretman/2947)
+- [MediaStretching it out! : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/654058153944776704](https://t.me/ferretman/2946)
+- [MediaMy Childhood Buddy Molly Enjoying A Treat : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/654058153944727552](https://t.me/ferretman/2945)
 <!-- TELEGRAM:END -->
