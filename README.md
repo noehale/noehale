@@ -59,9 +59,9 @@ Enjoy your #tshirt with #martens...](https://come-forth-into-the-light.tumblr.co
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaValentine’s Day Ferret : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653956208374546432](https://t.me/ferretman/2917)
-- [MediaValentine’s Day Ferret : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653956208374546432](https://t.me/ferretman/2916)
-- [rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2915)
-- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653922265774374913](https://t.me/ferretman/2914)
-- [everythingfox:he comin’(via)via Ferret Story https://scrisoridemai.tumblr.com/post/653918510280523776](https://t.me/ferretman/2913)
+- [MediaMeet Zora : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/654016640170803201](https://t.me/ferretman/2942)
+- [misioandkinga:tad playing in the bead pit, pt.2via Ferret Story https://just-a-catastrophy.tumblr.com/post/654012854350036993](https://t.me/ferretman/2941)
+- [prollyright:napping together is my kind of datevia Ferret Story https://prettypeterparkr.tumblr.com/post/654009096433025024](https://t.me/ferretman/2940)
+- [MediaMediaMediaMediatheferrets:stuffedpandastudios:VIDEO: https://www.youtube.com/watch?v=z2RqNj9r8f8&feature=youtu.beVIDEO of mask: https://www.faceb...](https://t.me/ferretman/2939)
+- [MediaOk but can we look at my lil man acting like a lil pup : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654001514528030720](https://t.me/ferretman/2938)
 <!-- TELEGRAM:END -->
