@@ -59,9 +59,9 @@ Enjoy your #tshirt with #martens...](https://come-forth-into-the-light.tumblr.co
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaValentine’s Day Ferret : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653956208374546432](https://t.me/ferretman/2917)
-- [MediaValentine’s Day Ferret : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/653956208374546432](https://t.me/ferretman/2916)
-- [rotg-fan-page:xaramizomai:hope your pets stay healthy in 2017I almost didn’t blog this and felt guiltyvia Ferret Story https://punkrocknat.tumblr.com...](https://t.me/ferretman/2915)
-- [MediaMediaMediaMediaMediaMediaMediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/653922265774374913](https://t.me/ferretman/2914)
-- [everythingfox:he comin’(via)via Ferret Story https://scrisoridemai.tumblr.com/post/653918510280523776](https://t.me/ferretman/2913)
+- [MediaI don’t think Gwin is enjoying the cleaning, Loki : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/653971352672501760](https://t.me/ferretman/2929)
+- [MediaTime Out Training ❤️ : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/653967635795542016](https://t.me/ferretman/2928)
+- [MediaShe imagines that she is stuck. She isn’t. : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/653967634872909824](https://t.me/ferretman/2927)
+- [MediaMeeko 🌈 drawn in graphite and fineliners : ferretsvia Ferret Story https://redzgn.tumblr.com/post/653967634638979072](https://t.me/ferretman/2926)
+- [ferretsoftiktok:via Ferret Story https://babyiwannaknow.tumblr.com/post/653967619185082368](https://t.me/ferretman/2925)
 <!-- TELEGRAM:END -->
