@@ -61,9 +61,9 @@ Enjoy your #tshirt with #martens...](https://come-forth-into-the-light.tumblr.co
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediavia Ferret Story https://just-a-catastrophy.tumblr.com/post/654073353706110976](https://t.me/ferretman/2952)
-- [Mediasakura’s first snow !via Ferret Story https://scrisoridemai.tumblr.com/post/654069473224081408](https://t.me/ferretman/2951)
-- [Mediaferretfarts:ferretfarts:PSAHealthy remindervia Ferret Story https://prettypeterparkr.tumblr.com/post/654069473223065600](https://t.me/ferretman/2950)
-- [MediaHow do I make it onto the bed? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654061919092817920](https://t.me/ferretman/2949)
-- [Mediae-stocado:Playa Hermosa, Costa Ricavia Ferret Story https://babyiwannaknow.tumblr.com/post/654058202552483840](https://t.me/ferretman/2948)
+- [MediaOtter is a ✨model ✨ in his spare time : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654092149813608448](https://t.me/ferretman/2958)
+- [nunyabizni:Small forest spirit locatedvia Ferret Story https://babyiwannaknow.tumblr.com/post/654088426816208896](https://t.me/ferretman/2957)
+- [MediaThey are finally cuddling! (Don’t mind the mess she pushes it out with her nose ) my new girl (the silver) has stopped biting and latching! Only...](https://t.me/ferretman/2956)
+- [via Ferret Story https://falalamingo.tumblr.com/post/654088361343107073](https://t.me/ferretman/2955)
+- [Mediahickeywiththegoodhair:aphony-cree:mcmxcviiikid:Powerful statements like these, that juxtapose the condemnation of such a simple and pure thing as...](https://t.me/ferretman/2954)
 <!-- TELEGRAM:END -->
