@@ -63,9 +63,9 @@ i just need a hug(e amount of money)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaOtter is a ✨model ✨ in his spare time : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654092149813608448](https://t.me/ferretman/2958)
-- [nunyabizni:Small forest spirit locatedvia Ferret Story https://babyiwannaknow.tumblr.com/post/654088426816208896](https://t.me/ferretman/2957)
-- [MediaThey are finally cuddling! (Don’t mind the mess she pushes it out with her nose ) my new girl (the silver) has stopped biting and latching! Only...](https://t.me/ferretman/2956)
-- [via Ferret Story https://falalamingo.tumblr.com/post/654088361343107073](https://t.me/ferretman/2955)
-- [Mediahickeywiththegoodhair:aphony-cree:mcmxcviiikid:Powerful statements like these, that juxtapose the condemnation of such a simple and pure thing as...](https://t.me/ferretman/2954)
+- [MediaHe’s too chubby to get in the hammock irlvia Ferret Story https://just-a-catastrophy.tumblr.com/post/654163938830942208](https://t.me/ferretman/2971)
+- [Mediabeaniebabyoftheday:Smoothie the giraffevia Ferret Story https://scrisoridemai.tumblr.com/post/654160085318320128](https://t.me/ferretman/2970)
+- [Mediaferretfarts:PSAvia Ferret Story https://prettypeterparkr.tumblr.com/post/654160085321465856](https://t.me/ferretman/2969)
+- [MediaFerretone is one of the best thing ever made for ferrets : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654152518413254656](https://t.me/ferretman/2968)
+- [MediaMediaMediaMediaMediaMediaMediaMediaa-captions-blog:andreii-tarkovsky:Gaycation - “USA”[ID: Photoset of Star Amerasu, a Black trans woman, in a ...](https://t.me/ferretman/2967)
 <!-- TELEGRAM:END -->
