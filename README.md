@@ -71,9 +71,9 @@ You will be okay. You...](https://come-forth-into-the-light.tumblr.com/post/6542
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHe’s too chubby to get in the hammock irlvia Ferret Story https://just-a-catastrophy.tumblr.com/post/654163938830942208](https://t.me/ferretman/2971)
-- [Mediabeaniebabyoftheday:Smoothie the giraffevia Ferret Story https://scrisoridemai.tumblr.com/post/654160085318320128](https://t.me/ferretman/2970)
-- [Mediaferretfarts:PSAvia Ferret Story https://prettypeterparkr.tumblr.com/post/654160085321465856](https://t.me/ferretman/2969)
-- [MediaFerretone is one of the best thing ever made for ferrets : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654152518413254656](https://t.me/ferretman/2968)
-- [MediaMediaMediaMediaMediaMediaMediaMediaa-captions-blog:andreii-tarkovsky:Gaycation - “USA”[ID: Photoset of Star Amerasu, a Black trans woman, in a ...](https://t.me/ferretman/2967)
+- [MediaYou guys enjoyed the video of our ferrets as babies so here’s a photo of them sleeping together.via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/2991)
+- [MediaBlep 👅via Ferret Story https://scrisoridemai.tumblr.com/post/654250665658449920](https://t.me/ferretman/2990)
+- [thelifeofmyferrets:Who needs snow removers when you’ve got Ducky?via Ferret Story https://prettypeterparkr.tumblr.com/post/654250665654304768](https://t.me/ferretman/2989)
+- [MediaWhy do ferrets smell so good when they’re sleeping?? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654243142966657024](https://t.me/ferretman/2988)
+- [MediaThe fluff was all cuddles this morning! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/654239429411717120](https://t.me/ferretman/2987)
 <!-- TELEGRAM:END -->
