@@ -48,6 +48,17 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [abirdkeeper:
+solluxismsnowaifu:
+
+spillybun:
+
+
+spillybun:
+
+Ominous positivity 
+
+You will be okay. You...](https://come-forth-into-the-light.tumblr.com/post/654231793607819264)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654186551060955136)
 - [professorspork:
 
@@ -57,7 +68,6 @@
 - [bepeu:
 i just need a hug(e amount of money)
 ](https://come-forth-into-the-light.tumblr.com/post/654095885668597760)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/654073283712630784)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
