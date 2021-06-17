@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/654186551060955136)
 - [professorspork:
 
 
@@ -57,7 +58,6 @@
 i just need a hug(e amount of money)
 ](https://come-forth-into-the-light.tumblr.com/post/654095885668597760)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654073283712630784)
-- [Kyoshi has officially moved in with my other girls. Don’t think...](https://come-forth-into-the-light.tumblr.com/post/654050593109884928)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
