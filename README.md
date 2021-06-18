@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [approach:That bitch. Lmao](https://come-forth-into-the-light.tumblr.com/post/654277108940619776)
 - [Our Water baby, Noctis. Lol : ferrets](https://come-forth-into-the-light.tumblr.com/post/654254445478215680)
 - [abirdkeeper:
 solluxismsnowaifu:
@@ -65,7 +66,6 @@ You will be okay. You...](https://come-forth-into-the-light.tumblr.com/post/6542
 
 
 #this single photo here validates the...](https://come-forth-into-the-light.tumblr.com/post/654163951343501313)
-- [O Hai There : ferrets](https://come-forth-into-the-light.tumblr.com/post/654141194821042176)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
