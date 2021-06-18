@@ -48,6 +48,15 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [梅雨の晴れ間☀️
+
+いい天気は気持ちよくて大好き💕
+
+ベットも衣替えしました🎶
+
+今日もお仕事頑張ってください♪
+
+#フェレット　...](https://come-forth-into-the-light.tumblr.com/post/654345087592071168)
 - [anabundanceofstilinskis:
 klefable:
 
@@ -65,7 +74,6 @@ spillybun:
 Ominous positivity 
 
 You will be okay. You...](https://come-forth-into-the-light.tumblr.com/post/654231793607819264)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/654186551060955136)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
