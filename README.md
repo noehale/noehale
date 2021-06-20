@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [呼んだら来てくれた〜🙌
+でもおやつもらえないからちょっと落ち込んでる💦
+ｼｭﾝ…
+#まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/654526255813869568)
 - [Another character >:D I’m on a roll!
 #art #OC #ferret](https://come-forth-into-the-light.tumblr.com/post/654503582747525120)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654458307475537920)
@@ -55,10 +59,6 @@
 - [soselfimportant:
 4:35 Blaze it sorry traffic was crazy
 ](https://come-forth-into-the-light.tumblr.com/post/654412972189483008)
-- [今日でルナくんが1歳になりました🎂
-ママのケーキも美味しく食べてくれました☺️
-
-＃フェレット #ferret #誕生日](https://come-forth-into-the-light.tumblr.com/post/654367731327614976)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
