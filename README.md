@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/654458307475537920)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654435661063061504)
 - [soselfimportant:
 4:35 Blaze it sorry traffic was crazy
@@ -65,10 +66,6 @@
 今日もお仕事頑張ってください♪
 
 #フェレット　...](https://come-forth-into-the-light.tumblr.com/post/654345087592071168)
-- [anabundanceofstilinskis:
-klefable:
-
-what happens to all your teen angst when you’re 20… like where...](https://come-forth-into-the-light.tumblr.com/post/654322389086355456)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
