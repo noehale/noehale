@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Another character >:D I’m on a roll!
+#art #OC #ferret](https://come-forth-into-the-light.tumblr.com/post/654503582747525120)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654458307475537920)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654435661063061504)
 - [soselfimportant:
@@ -57,15 +59,6 @@
 ママのケーキも美味しく食べてくれました☺️
 
 ＃フェレット #ferret #誕生日](https://come-forth-into-the-light.tumblr.com/post/654367731327614976)
-- [梅雨の晴れ間☀️
-
-いい天気は気持ちよくて大好き💕
-
-ベットも衣替えしました🎶
-
-今日もお仕事頑張ってください♪
-
-#フェレット　...](https://come-forth-into-the-light.tumblr.com/post/654345087592071168)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
