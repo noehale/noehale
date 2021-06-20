@@ -71,9 +71,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaYou guys enjoyed the video of our ferrets as babies so here’s a photo of them sleeping together.via Ferret Story https://just-a-catastrophy.tumb...](https://t.me/ferretman/2991)
-- [MediaBlep 👅via Ferret Story https://scrisoridemai.tumblr.com/post/654250665658449920](https://t.me/ferretman/2990)
-- [thelifeofmyferrets:Who needs snow removers when you’ve got Ducky?via Ferret Story https://prettypeterparkr.tumblr.com/post/654250665654304768](https://t.me/ferretman/2989)
-- [MediaWhy do ferrets smell so good when they’re sleeping?? : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654243142966657024](https://t.me/ferretman/2988)
-- [MediaThe fluff was all cuddles this morning! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/654239429411717120](https://t.me/ferretman/2987)
+- [Mediaferret-flops:WHY CAN’T MY CAT AND FERRETS BE LIKE THIS INSTEAD THEY WANT TO KILL EACH OTHER.via Ferret Story https://just-a-catastrophy.tumblr.c...](https://t.me/ferretman/3057)
+- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/654462085077565440](https://t.me/ferretman/3056)
+- [Mediabob-artist:They like to sleep on the bathroom rug.via Ferret Story https://prettypeterparkr.tumblr.com/post/654462085053530112](https://t.me/ferretman/3055)
+- [MediaLoki, not destroying something for once : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654454499266707456](https://t.me/ferretman/3054)
+- [MediaGood morning! ☀️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/654450837691760641](https://t.me/ferretman/3053)
 <!-- TELEGRAM:END -->
