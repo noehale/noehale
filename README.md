@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/654594185056370688)
 - [yelled:
 me attempting to reach the goals I’ve set in life
 
@@ -59,7 +60,6 @@ me attempting to reach the goals I’ve set in life
 - [Another character >:D I’m on a roll!
 #art #OC #ferret](https://come-forth-into-the-light.tumblr.com/post/654503582747525120)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654458307475537920)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/654435661063061504)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
