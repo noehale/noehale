@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [yelled:
+me attempting to reach the goals I’ve set in life
+
+](https://come-forth-into-the-light.tumblr.com/post/654548902594412544)
 - [呼んだら来てくれた〜🙌
 でもおやつもらえないからちょっと落ち込んでる💦
 ｼｭﾝ…
@@ -56,9 +60,6 @@
 #art #OC #ferret](https://come-forth-into-the-light.tumblr.com/post/654503582747525120)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654458307475537920)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654435661063061504)
-- [soselfimportant:
-4:35 Blaze it sorry traffic was crazy
-](https://come-forth-into-the-light.tumblr.com/post/654412972189483008)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
