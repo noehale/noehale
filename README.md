@@ -73,9 +73,9 @@ me attempting to reach the goals I’ve set in life
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaferret-flops:WHY CAN’T MY CAT AND FERRETS BE LIKE THIS INSTEAD THEY WANT TO KILL EACH OTHER.via Ferret Story https://just-a-catastrophy.tumblr.c...](https://t.me/ferretman/3057)
-- [Mediavia Ferret Story https://scrisoridemai.tumblr.com/post/654462085077565440](https://t.me/ferretman/3056)
-- [Mediabob-artist:They like to sleep on the bathroom rug.via Ferret Story https://prettypeterparkr.tumblr.com/post/654462085053530112](https://t.me/ferretman/3055)
-- [MediaLoki, not destroying something for once : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654454499266707456](https://t.me/ferretman/3054)
-- [MediaGood morning! ☀️ : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/654450837691760641](https://t.me/ferretman/3053)
+- [MediaBest buddy 🥰 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/654650823593345024](https://t.me/ferretman/3097)
+- [theferrets:My little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/3096)
+- [thatweirdferretlady:babyanimalgifs:the best thing you’ll see all dayI mcfreakin love armadillosvia Ferret Story https://scrisoridemai.tumblr.com/post...](https://t.me/ferretman/3095)
+- [MediaMediaMediaMediaMediaMediatheferrets:poopcop:mymodernmet:Colorful Cat Backpacks Feature Bubble Window for Traveling like an AstronautSend your cat...](https://t.me/ferretman/3094)
+- [MediaFound an old video of my Podo doing a steal : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654635751750959104](https://t.me/ferretman/3093)
 <!-- TELEGRAM:END -->
