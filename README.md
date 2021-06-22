@@ -48,6 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [penllawen:urhajos:
+
+Subway Animals
+
+BRB charging GPS logger and...](https://come-forth-into-the-light.tumblr.com/post/654684814391312384)
 - [eeveez:
 supermario17karate:
 
@@ -63,10 +68,6 @@ https://you...](https://come-forth-into-the-light.tumblr.com/post/65461683002721
 me attempting to reach the goals I’ve set in life
 
 ](https://come-forth-into-the-light.tumblr.com/post/654548902594412544)
-- [呼んだら来てくれた〜🙌
-でもおやつもらえないからちょっと落ち込んでる💦
-ｼｭﾝ…
-#まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/654526255813869568)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
