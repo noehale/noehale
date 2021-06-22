@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/654707438073806848)
 - [penllawen:urhajos:
 
 Subway Animals
@@ -64,10 +65,6 @@ you have no proof that i am not at least one of the members of...](https://come-
 フェレット動画YouTubeでアップしてるよ！
 https://you...](https://come-forth-into-the-light.tumblr.com/post/654616830027218944)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654594185056370688)
-- [呼んだら来てくれた〜🙌
-でもおやつもらえないからちょっと落ち込んでる💦
-ｼｭﾝ…
-#まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/654526255813869568)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
