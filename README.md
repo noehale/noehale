@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [bookavid:
+nina–bruja:
+
+
+iwannabeadored:
+I fucking knew this was...](https://come-forth-into-the-light.tumblr.com/post/654775370590126080)
 - [子供が入れたのかと思ったら
 自分で出入りしてたw
 大きなぬいぐるみだな。
@@ -65,10 +71,6 @@ supermario17karate:
 eeveez:
 
 you have no proof that i am not at least one of the members of...](https://come-forth-into-the-light.tumblr.com/post/654639480186241024)
-- [YouTube【パルチューブ】
-パルムさん、体ねじれすぎ！
-フェレット動画YouTubeでアップしてるよ！
-https://you...](https://come-forth-into-the-light.tumblr.com/post/654616830027218944)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
