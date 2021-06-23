@@ -48,6 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [子供が入れたのかと思ったら
+自分で出入りしてたw
+大きなぬいぐるみだな。
+
+＃フェレット　＃ferret](https://come-forth-into-the-light.tumblr.com/post/654730125331578880)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654707438073806848)
 - [penllawen:urhajos:
 
@@ -64,7 +69,6 @@ you have no proof that i am not at least one of the members of...](https://come-
 パルムさん、体ねじれすぎ！
 フェレット動画YouTubeでアップしてるよ！
 https://you...](https://come-forth-into-the-light.tumblr.com/post/654616830027218944)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/654594185056370688)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
