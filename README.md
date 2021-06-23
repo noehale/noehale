@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/654798068204617728)
 - [bookavid:
 nina–bruja:
 
@@ -65,12 +66,6 @@ I fucking knew this was...](https://come-forth-into-the-light.tumblr.com/post/65
 Subway Animals
 
 BRB charging GPS logger and...](https://come-forth-into-the-light.tumblr.com/post/654684814391312384)
-- [eeveez:
-supermario17karate:
-
-eeveez:
-
-you have no proof that i am not at least one of the members of...](https://come-forth-into-the-light.tumblr.com/post/654639480186241024)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
