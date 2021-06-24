@@ -64,9 +64,9 @@ I fucking knew this was...](https://come-forth-into-the-light.tumblr.com/post/65
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaBest buddy 🥰 : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/654650823593345024](https://t.me/ferretman/3097)
-- [theferrets:My little noodlebutt turned 6 years old today. Happy Birthday Kēki we love you ♡via Ferret Story https://just-a-catastrophy.tumblr.com/po...](https://t.me/ferretman/3096)
-- [thatweirdferretlady:babyanimalgifs:the best thing you’ll see all dayI mcfreakin love armadillosvia Ferret Story https://scrisoridemai.tumblr.com/post...](https://t.me/ferretman/3095)
-- [MediaMediaMediaMediaMediaMediatheferrets:poopcop:mymodernmet:Colorful Cat Backpacks Feature Bubble Window for Traveling like an AstronautSend your cat...](https://t.me/ferretman/3094)
-- [MediaFound an old video of my Podo doing a steal : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654635751750959104](https://t.me/ferretman/3093)
+- [MediaShnug as a bug : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654877310379507712](https://t.me/ferretman/3149)
+- [MediaMy ferret chomp : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/654873555491766272](https://t.me/ferretman/3148)
+- [thatweirdferretlady:I have 4 ferrets. I guess you could say I’m a......small business owner.via Ferret Story https://babyiwannaknow.tumblr.com/post/6...](https://t.me/ferretman/3147)
+- [beyoncebeytwice:today i feel very…… mmmm whats the word… badvia Ferret Story https://falalamingo.tumblr.com/post/654873516833947648](https://t.me/ferretman/3146)
+- [MediaOrange sleepy ferret : ferretsvia Ferret Story https://redzgn.tumblr.com/post/654873516433457152](https://t.me/ferretman/3145)
 <!-- TELEGRAM:END -->
