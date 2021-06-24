@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Everyone meet Katie : ferrets](https://come-forth-into-the-light.tumblr.com/post/654888716596396032)
 - [Seriously, Artemis? I wondered why I kept finding change all...](https://come-forth-into-the-light.tumblr.com/post/654865974333423617)
 - [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at u
 ](https://come-forth-into-the-light.tumblr.com/post/654820700480274433)
@@ -58,11 +59,6 @@ nina–bruja:
 
 iwannabeadored:
 I fucking knew this was...](https://come-forth-into-the-light.tumblr.com/post/654775370590126080)
-- [子供が入れたのかと思ったら
-自分で出入りしてたw
-大きなぬいぐるみだな。
-
-＃フェレット　＃ferret](https://come-forth-into-the-light.tumblr.com/post/654730125331578880)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
