@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at u
+](https://come-forth-into-the-light.tumblr.com/post/654820700480274433)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654798068204617728)
 - [bookavid:
 nina–bruja:
@@ -61,11 +63,6 @@ I fucking knew this was...](https://come-forth-into-the-light.tumblr.com/post/65
 
 ＃フェレット　＃ferret](https://come-forth-into-the-light.tumblr.com/post/654730125331578880)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654707438073806848)
-- [penllawen:urhajos:
-
-Subway Animals
-
-BRB charging GPS logger and...](https://come-forth-into-the-light.tumblr.com/post/654684814391312384)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
