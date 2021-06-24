@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Seriously, Artemis? I wondered why I kept finding change all...](https://come-forth-into-the-light.tumblr.com/post/654865974333423617)
 - [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at u
 ](https://come-forth-into-the-light.tumblr.com/post/654820700480274433)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654798068204617728)
@@ -62,7 +63,6 @@ I fucking knew this was...](https://come-forth-into-the-light.tumblr.com/post/65
 大きなぬいぐるみだな。
 
 ＃フェレット　＃ferret](https://come-forth-into-the-light.tumblr.com/post/654730125331578880)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/654707438073806848)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
