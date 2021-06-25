@@ -48,12 +48,15 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [yelled:
+me attempting to reach the goals I’ve set in life
+
+](https://come-forth-into-the-light.tumblr.com/post/654956571454013440)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654911272610070528)
 - [Everyone meet Katie : ferrets](https://come-forth-into-the-light.tumblr.com/post/654888716596396032)
 - [Seriously, Artemis? I wondered why I kept finding change all...](https://come-forth-into-the-light.tumblr.com/post/654865974333423617)
 - [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at u
 ](https://come-forth-into-the-light.tumblr.com/post/654820700480274433)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/654798068204617728)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
