@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [awwww-cute:No sign of remorse detected](https://come-forth-into-the-light.tumblr.com/post/654979273186263040)
 - [yelled:
 me attempting to reach the goals I’ve set in life
 
@@ -55,8 +56,6 @@ me attempting to reach the goals I’ve set in life
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/654911272610070528)
 - [Everyone meet Katie : ferrets](https://come-forth-into-the-light.tumblr.com/post/654888716596396032)
 - [Seriously, Artemis? I wondered why I kept finding change all...](https://come-forth-into-the-light.tumblr.com/post/654865974333423617)
-- [metalcrushers-blog:when u try to tell ur parents about a problem but they end up yelling at u
-](https://come-forth-into-the-light.tumblr.com/post/654820700480274433)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
