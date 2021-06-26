@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Video](https://come-forth-into-the-light.tumblr.com/post/655069841851547648)
 - [onehumangallery:shareyourpie:
 
 naked-yogi:
@@ -64,7 +65,6 @@ who just sent me money “for being...](https://come-forth-into-the-light.tumblr
 me attempting to reach the goals I’ve set in life
 
 ](https://come-forth-into-the-light.tumblr.com/post/654956571454013440)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/654911272610070528)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
