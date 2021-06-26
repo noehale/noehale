@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [onehumangallery:beatybe:I don’t think I have ever seen a dog...](https://come-forth-into-the-light.tumblr.com/post/655092485500125184)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/655069841851547648)
 - [onehumangallery:shareyourpie:
 
@@ -61,10 +62,6 @@ dumdolly:
 who just sent me money “for being...](https://come-forth-into-the-light.tumblr.com/post/655047157102018560)
 - [hitmewithcute:The boulder feels conflicted about fighting a...](https://come-forth-into-the-light.tumblr.com/post/655001886739628032)
 - [awwww-cute:No sign of remorse detected](https://come-forth-into-the-light.tumblr.com/post/654979273186263040)
-- [yelled:
-me attempting to reach the goals I’ve set in life
-
-](https://come-forth-into-the-light.tumblr.com/post/654956571454013440)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
