@@ -67,9 +67,9 @@ who just sent me money “for being...](https://come-forth-into-the-light.tumblr
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaShnug as a bug : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/654877310379507712](https://t.me/ferretman/3149)
-- [MediaMy ferret chomp : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/654873555491766272](https://t.me/ferretman/3148)
-- [thatweirdferretlady:I have 4 ferrets. I guess you could say I’m a......small business owner.via Ferret Story https://babyiwannaknow.tumblr.com/post/6...](https://t.me/ferretman/3147)
-- [beyoncebeytwice:today i feel very…… mmmm whats the word… badvia Ferret Story https://falalamingo.tumblr.com/post/654873516833947648](https://t.me/ferretman/3146)
-- [MediaOrange sleepy ferret : ferretsvia Ferret Story https://redzgn.tumblr.com/post/654873516433457152](https://t.me/ferretman/3145)
+- [Mediasorry if you’ve seen this a million times – still applicable and funnyvia Ferret Story https://anasfalhhhs.tumblr.com/post/655088675962667008](https://t.me/ferretman/3218)
+- [MediaSimple amusements : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/655084997215158272](https://t.me/ferretman/3217)
+- [MediaEither she likes the cold tile, or do all ferrets enjoy just chilling in the bathroom for like 45 mins at a time? Mine just goes there to zone ou...](https://t.me/ferretman/3216)
+- [MediaLittle dude, I kind of need my personal spacevia Ferret Story https://babyiwannaknow.tumblr.com/post/655084977731534848](https://t.me/ferretman/3215)
+- [MediaTomas is such a goofy boy : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/655084922293338112](https://t.me/ferretman/3214)
 <!-- TELEGRAM:END -->
