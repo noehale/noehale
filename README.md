@@ -67,9 +67,9 @@ who just sent me money “for being...](https://come-forth-into-the-light.tumblr
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaBest buds. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/655103786931683328](https://t.me/ferretman/3222)
+- [MediaSleeping in the weirdest waysvia Ferret Story https://just-a-catastrophy.tumblr.com/post/655100056023826432](https://t.me/ferretman/3221)
+- [MediaYOU KNOW WHAT, I’M FREE TONIGHT.😘via Ferret Story https://scrisoridemai.tumblr.com/post/655096252302868480](https://t.me/ferretman/3220)
+- [MediaLittle boy says howdy there ma’ladyvia Ferret Story https://prettypeterparkr.tumblr.com/post/655096252301787136](https://t.me/ferretman/3219)
 - [Mediasorry if you’ve seen this a million times – still applicable and funnyvia Ferret Story https://anasfalhhhs.tumblr.com/post/655088675962667008](https://t.me/ferretman/3218)
-- [MediaSimple amusements : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/655084997215158272](https://t.me/ferretman/3217)
-- [MediaEither she likes the cold tile, or do all ferrets enjoy just chilling in the bathroom for like 45 mins at a time? Mine just goes there to zone ou...](https://t.me/ferretman/3216)
-- [MediaLittle dude, I kind of need my personal spacevia Ferret Story https://babyiwannaknow.tumblr.com/post/655084977731534848](https://t.me/ferretman/3215)
-- [MediaTomas is such a goofy boy : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/655084922293338112](https://t.me/ferretman/3214)
 <!-- TELEGRAM:END -->
