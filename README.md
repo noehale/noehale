@@ -48,20 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/655183072326811649)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/655160475425898496)
 - [I swear, these two 😂 : ferrets](https://come-forth-into-the-light.tumblr.com/post/655137770238623744)
 - [onehumangallery:beatybe:I don’t think I have ever seen a dog...](https://come-forth-into-the-light.tumblr.com/post/655092485500125184)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/655069841851547648)
-- [onehumangallery:shareyourpie:
-
-naked-yogi:
-
-
-dumdolly:
-
-
-dumdolly:
-who just sent me money “for being...](https://come-forth-into-the-light.tumblr.com/post/655047157102018560)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
