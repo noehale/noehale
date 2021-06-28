@@ -48,11 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Zeus, little ball of Lightning : ferrets](https://come-forth-into-the-light.tumblr.com/post/655251002258341888)
 - [It finally happened. I’ve become part of the stash. : ferrets](https://come-forth-into-the-light.tumblr.com/post/655228372002226176)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655183072326811649)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/655160475425898496)
 - [I swear, these two 😂 : ferrets](https://come-forth-into-the-light.tumblr.com/post/655137770238623744)
-- [onehumangallery:beatybe:I don’t think I have ever seen a dog...](https://come-forth-into-the-light.tumblr.com/post/655092485500125184)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
