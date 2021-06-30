@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [今日は朝からモンスターズインク流して、この子たちの色付けしてく(ơ ωơ)✧
+#フェレット #ferret #gucco...](https://come-forth-into-the-light.tumblr.com/post/655454926136279040)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655432210798772224)
 - [kellan-ebooks:
 
@@ -59,13 +61,6 @@ cynological:
 That’s a weird dragon.
 
 shut up i...](https://come-forth-into-the-light.tumblr.com/post/655341672282161152)
-- [cosmic-cyclosa:
-ylwkirby:
-
-What’s it like being 21 and older
-
-
-](https://come-forth-into-the-light.tumblr.com/post/655318976373637120)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
