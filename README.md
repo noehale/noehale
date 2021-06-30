@@ -71,9 +71,9 @@ What’s it like being 21 and older
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaBest buds. : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/655103786931683328](https://t.me/ferretman/3222)
-- [MediaSleeping in the weirdest waysvia Ferret Story https://just-a-catastrophy.tumblr.com/post/655100056023826432](https://t.me/ferretman/3221)
-- [MediaYOU KNOW WHAT, I’M FREE TONIGHT.😘via Ferret Story https://scrisoridemai.tumblr.com/post/655096252302868480](https://t.me/ferretman/3220)
-- [MediaLittle boy says howdy there ma’ladyvia Ferret Story https://prettypeterparkr.tumblr.com/post/655096252301787136](https://t.me/ferretman/3219)
-- [Mediasorry if you’ve seen this a million times – still applicable and funnyvia Ferret Story https://anasfalhhhs.tumblr.com/post/655088675962667008](https://t.me/ferretman/3218)
+- [MediaYou found my hiding spot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/655420875621974016](https://t.me/ferretman/3293)
+- [MediaDIP Miss Tazzy and Mister Macaroni. Oxbow’s Critical Care Carnivore is responsible for giving us so much more time- if you have a sick babee. �...](https://t.me/ferretman/3292)
+- [MediaThey’re very supportive : ferretsvia Ferret Story https://redzgn.tumblr.com/post/655417156044029952](https://t.me/ferretman/3291)
+- [Mediaterriblerealestateagentphotos:If separated from the mother too early, young fire extinguishers can struggle to adapt.via Ferret Story https://som...](https://t.me/ferretman/3290)
+- [MediaToe beans for days! 🐾 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/655417120542408704](https://t.me/ferretman/3289)
 <!-- TELEGRAM:END -->
