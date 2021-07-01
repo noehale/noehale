@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [今日は帰りに忘れずローソンさんで当選したどらもっち交換してこなければ・・・(...](https://come-forth-into-the-light.tumblr.com/post/655522885188894720)
 - [foxy-mulder:
 thankyu:
 a clownboy (half clown, half cowboy) says yeehonk
@@ -58,7 +59,6 @@ this is it. the worst post...](https://come-forth-into-the-light.tumblr.com/post
 - [kellan-ebooks:
 
 ](https://come-forth-into-the-light.tumblr.com/post/655409553467424768)
-- [#フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/655364255048171520)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
