@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [foxy-mulder:
+thankyu:
+a clownboy (half clown, half cowboy) says yeehonk
+this is it. the worst post...](https://come-forth-into-the-light.tumblr.com/post/655500156005990400)
 - [今日は朝からモンスターズインク流して、この子たちの色付けしてく(ơ ωơ)✧
 #フェレット #ferret #gucco...](https://come-forth-into-the-light.tumblr.com/post/655454926136279040)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655432210798772224)
@@ -55,12 +59,6 @@
 
 ](https://come-forth-into-the-light.tumblr.com/post/655409553467424768)
 - [#フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/655364255048171520)
-- [roachpatrol:
-cynological:
-
-That’s a weird dragon.
-
-shut up i...](https://come-forth-into-the-light.tumblr.com/post/655341672282161152)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
