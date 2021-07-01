@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [wnslw:
+hydrolize:
+
+Someone left their dogs outside the cafe
+
+pug...](https://come-forth-into-the-light.tumblr.com/post/655545673610051584)
 - [今日は帰りに忘れずローソンさんで当選したどらもっち交換してこなければ・・・(...](https://come-forth-into-the-light.tumblr.com/post/655522885188894720)
 - [foxy-mulder:
 thankyu:
@@ -56,9 +62,6 @@ this is it. the worst post...](https://come-forth-into-the-light.tumblr.com/post
 - [今日は朝からモンスターズインク流して、この子たちの色付けしてく(ơ ωơ)✧
 #フェレット #ferret #gucco...](https://come-forth-into-the-light.tumblr.com/post/655454926136279040)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655432210798772224)
-- [kellan-ebooks:
-
-](https://come-forth-into-the-light.tumblr.com/post/655409553467424768)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
