@@ -48,6 +48,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [disgustinganimals:
+jennamoreci:
+
+beanstalkofsins:
+
+m86:
+
+hazycapi...](https://come-forth-into-the-light.tumblr.com/post/655613440233259008)
 - [ʢ⋆•·̬•ʡ](https://come-forth-into-the-light.tumblr.com/post/655590764342132736)
 - [wnslw:
 hydrolize:
@@ -60,8 +68,6 @@ pug...](https://come-forth-into-the-light.tumblr.com/post/655545673610051584)
 thankyu:
 a clownboy (half clown, half cowboy) says yeehonk
 this is it. the worst post...](https://come-forth-into-the-light.tumblr.com/post/655500156005990400)
-- [今日は朝からモンスターズインク流して、この子たちの色付けしてく(ơ ωơ)✧
-#フェレット #ferret #gucco...](https://come-forth-into-the-light.tumblr.com/post/655454926136279040)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
