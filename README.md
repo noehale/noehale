@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [飼い主の着ている服の襟から侵入、袖からこんにちは、もんたろうさん……このあと服に潜り飼い主の脇腹をぺろぺろ、こしょばいってー！...](https://come-forth-into-the-light.tumblr.com/post/655703985243701248)
 - [Bandit laughing because Im tickling her bum : ferrets](https://come-forth-into-the-light.tumblr.com/post/655681355256070144)
 - [glitchicorn:
 
@@ -61,12 +62,6 @@ m86:
 
 hazycapi...](https://come-forth-into-the-light.tumblr.com/post/655613440233259008)
 - [ʢ⋆•·̬•ʡ](https://come-forth-into-the-light.tumblr.com/post/655590764342132736)
-- [wnslw:
-hydrolize:
-
-Someone left their dogs outside the cafe
-
-pug...](https://come-forth-into-the-light.tumblr.com/post/655545673610051584)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
