@@ -72,9 +72,9 @@ pug...](https://come-forth-into-the-light.tumblr.com/post/655545673610051584)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaYou found my hiding spot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/655420875621974016](https://t.me/ferretman/3293)
-- [MediaDIP Miss Tazzy and Mister Macaroni. Oxbow’s Critical Care Carnivore is responsible for giving us so much more time- if you have a sick babee. �...](https://t.me/ferretman/3292)
-- [MediaThey’re very supportive : ferretsvia Ferret Story https://redzgn.tumblr.com/post/655417156044029952](https://t.me/ferretman/3291)
-- [Mediaterriblerealestateagentphotos:If separated from the mother too early, young fire extinguishers can struggle to adapt.via Ferret Story https://som...](https://t.me/ferretman/3290)
-- [MediaToe beans for days! 🐾 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/655417120542408704](https://t.me/ferretman/3289)
+- [Mediaseerofsarcasm:satamoru:plintoon:satamoru:zoann:colormecalm:nonimaginaryfriend:americanairliines:Old hag by *veprikovBeing a witch is not the high...](https://t.me/ferretman/3340)
+- [setheverman:disgustinganimals:Don’t hire this cleaning servicei will hire this cleaning service immediately, don’t tell me what to dovia Ferret Stor...](https://t.me/ferretman/3339)
+- [Mediathenatsdorf:Cat meets hedgehog.via Ferret Story https://prettypeterparkr.tumblr.com/post/655639819534385152](https://t.me/ferretman/3338)
+- [MediaBeyoncé’s usually too fast to get a picture of so I had to wait for her to sleep : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/...](https://t.me/ferretman/3337)
+- [MediaMy new baby – still trying to think of the perfect name for her : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/655628604599943168](https://t.me/ferretman/3336)
 <!-- TELEGRAM:END -->
