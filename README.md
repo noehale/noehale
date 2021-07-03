@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [glitchicorn:
+
+](https://come-forth-into-the-light.tumblr.com/post/655636056036769794)
 - [disgustinganimals:
 jennamoreci:
 
@@ -64,10 +67,6 @@ Someone left their dogs outside the cafe
 
 pug...](https://come-forth-into-the-light.tumblr.com/post/655545673610051584)
 - [今日は帰りに忘れずローソンさんで当選したどらもっち交換してこなければ・・・(...](https://come-forth-into-the-light.tumblr.com/post/655522885188894720)
-- [foxy-mulder:
-thankyu:
-a clownboy (half clown, half cowboy) says yeehonk
-this is it. the worst post...](https://come-forth-into-the-light.tumblr.com/post/655500156005990400)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
