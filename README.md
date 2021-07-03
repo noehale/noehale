@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Bandit laughing because Im tickling her bum : ferrets](https://come-forth-into-the-light.tumblr.com/post/655681355256070144)
 - [glitchicorn:
 
 ](https://come-forth-into-the-light.tumblr.com/post/655636056036769794)
@@ -66,7 +67,6 @@ hydrolize:
 Someone left their dogs outside the cafe
 
 pug...](https://come-forth-into-the-light.tumblr.com/post/655545673610051584)
-- [今日は帰りに忘れずローソンさんで当選したどらもっち交換してこなければ・・・(...](https://come-forth-into-the-light.tumblr.com/post/655522885188894720)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
