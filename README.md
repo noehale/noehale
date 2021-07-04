@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [I hate pet stores these poor babies : ferrets](https://come-forth-into-the-light.tumblr.com/post/655771935869976576)
 - [juelzsantanabandana:
 joshsundquist:
 The day I met my...](https://come-forth-into-the-light.tumblr.com/post/655726676119109632)
@@ -56,14 +57,6 @@ The day I met my...](https://come-forth-into-the-light.tumblr.com/post/655726676
 - [glitchicorn:
 
 ](https://come-forth-into-the-light.tumblr.com/post/655636056036769794)
-- [disgustinganimals:
-jennamoreci:
-
-beanstalkofsins:
-
-m86:
-
-hazycapi...](https://come-forth-into-the-light.tumblr.com/post/655613440233259008)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
