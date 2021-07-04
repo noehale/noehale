@@ -62,9 +62,9 @@ The day I met my...](https://come-forth-into-the-light.tumblr.com/post/655726676
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediaseerofsarcasm:satamoru:plintoon:satamoru:zoann:colormecalm:nonimaginaryfriend:americanairliines:Old hag by *veprikovBeing a witch is not the high...](https://t.me/ferretman/3340)
-- [setheverman:disgustinganimals:Don’t hire this cleaning servicei will hire this cleaning service immediately, don’t tell me what to dovia Ferret Stor...](https://t.me/ferretman/3339)
-- [Mediathenatsdorf:Cat meets hedgehog.via Ferret Story https://prettypeterparkr.tumblr.com/post/655639819534385152](https://t.me/ferretman/3338)
-- [MediaBeyoncé’s usually too fast to get a picture of so I had to wait for her to sleep : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/...](https://t.me/ferretman/3337)
-- [MediaMy new baby – still trying to think of the perfect name for her : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/655628604599943168](https://t.me/ferretman/3336)
+- [lesbiandaydream:whatareyoudoingferret:The Money Ferret is here to bring you some change! video via thecomfyferretyour dash has been graced by the jin...](https://t.me/ferretman/3368)
+- [bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.via Ferret Story https://punkrocknat.tumblr.com/post/655738040003...](https://t.me/ferretman/3367)
+- [MediaMediaMediaMediaMediaMediapenllawen:zenpencils:A tribute to ROGER EBERTLovely.via Ferret Story https://just-a-catastrophy.tumblr.com/post/65573423...](https://t.me/ferretman/3366)
+- [jacuwi:we-dont-matteratall:cultivate–saplings:What a year this week has been.It’s Monday.It sure as hell is.via Ferret Story https://falalamingo.tum...](https://t.me/ferretman/3365)
+- [courfeyr:foster-the-morning:i love people who get excited about starsMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/655730423203299328](https://t.me/ferretman/3364)
 <!-- TELEGRAM:END -->
