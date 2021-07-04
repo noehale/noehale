@@ -48,13 +48,21 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [rum:iguanamouth:
+
+strawberryr:
+
+teacupballerina:
+
+strawberryr:
+
+It’s always kind of funny when the...](https://come-forth-into-the-light.tumblr.com/post/655817304856297472)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655794600634679296)
 - [I hate pet stores these poor babies : ferrets](https://come-forth-into-the-light.tumblr.com/post/655771935869976576)
 - [juelzsantanabandana:
 joshsundquist:
 The day I met my...](https://come-forth-into-the-light.tumblr.com/post/655726676119109632)
 - [飼い主の着ている服の襟から侵入、袖からこんにちは、もんたろうさん……このあと服に潜り飼い主の脇腹をぺろぺろ、こしょばいってー！...](https://come-forth-into-the-light.tumblr.com/post/655703985243701248)
-- [Bandit laughing because Im tickling her bum : ferrets](https://come-forth-into-the-light.tumblr.com/post/655681355256070144)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
