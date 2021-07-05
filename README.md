@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [rewelcomed:
+the world was so pink tonight i was in awe
+](https://come-forth-into-the-light.tumblr.com/post/655885214178000896)
 - [sexhilaration:siouxerz:
 
 Milosav Druckmüller is, hands down, the...](https://come-forth-into-the-light.tumblr.com/post/655862596359127040)
@@ -62,9 +65,6 @@ strawberryr:
 It’s always kind of funny when the...](https://come-forth-into-the-light.tumblr.com/post/655817304856297472)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655794600634679296)
 - [I hate pet stores these poor babies : ferrets](https://come-forth-into-the-light.tumblr.com/post/655771935869976576)
-- [juelzsantanabandana:
-joshsundquist:
-The day I met my...](https://come-forth-into-the-light.tumblr.com/post/655726676119109632)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
