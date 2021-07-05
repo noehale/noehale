@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/655907848829714432)
 - [rewelcomed:
 the world was so pink tonight i was in awe
 ](https://come-forth-into-the-light.tumblr.com/post/655885214178000896)
@@ -64,7 +65,6 @@ strawberryr:
 
 It’s always kind of funny when the...](https://come-forth-into-the-light.tumblr.com/post/655817304856297472)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655794600634679296)
-- [I hate pet stores these poor babies : ferrets](https://come-forth-into-the-light.tumblr.com/post/655771935869976576)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
