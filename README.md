@@ -72,9 +72,9 @@ It’s always kind of funny when the...](https://come-forth-into-the-light.tumbl
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [lesbiandaydream:whatareyoudoingferret:The Money Ferret is here to bring you some change! video via thecomfyferretyour dash has been graced by the jin...](https://t.me/ferretman/3368)
-- [bob-artist:I bought this extremely soft mat for the ferrets, and it blew Kit’s mind.via Ferret Story https://punkrocknat.tumblr.com/post/655738040003...](https://t.me/ferretman/3367)
-- [MediaMediaMediaMediaMediaMediapenllawen:zenpencils:A tribute to ROGER EBERTLovely.via Ferret Story https://just-a-catastrophy.tumblr.com/post/65573423...](https://t.me/ferretman/3366)
-- [jacuwi:we-dont-matteratall:cultivate–saplings:What a year this week has been.It’s Monday.It sure as hell is.via Ferret Story https://falalamingo.tum...](https://t.me/ferretman/3365)
-- [courfeyr:foster-the-morning:i love people who get excited about starsMediavia Ferret Story https://prettypeterparkr.tumblr.com/post/655730423203299328](https://t.me/ferretman/3364)
+- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/3402)
+- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/3401)
+- [MediaOooo he doin a Blep! Sokka is so cute : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/655919158260793344](https://t.me/ferretman/3400)
+- [roachpatrol: itchycoil: Whenever you’re feeling sudden calm its because I took your voodoo doll out...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/3399)
+- [bob-artist:Medias…Media…scrEEN????via Ferret Story https://prettypeterparkr.tumblr.com/post/655911610327646208](https://t.me/ferretman/3398)
 <!-- TELEGRAM:END -->
