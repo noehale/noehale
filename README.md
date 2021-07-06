@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [zaynocean:
+
+and the Iraqi people welcomed the Americans with...](https://come-forth-into-the-light.tumblr.com/post/655953168279257088)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655907848829714432)
 - [rewelcomed:
 the world was so pink tonight i was in awe
@@ -64,7 +67,6 @@ teacupballerina:
 strawberryr:
 
 It’s always kind of funny when the...](https://come-forth-into-the-light.tumblr.com/post/655817304856297472)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/655794600634679296)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
