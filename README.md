@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [kateordie:
+thenearsightedmonkey:
+
+By Lynda Barry  May...](https://come-forth-into-the-light.tumblr.com/post/655998453538783232)
 - [annehathawillannehathaway:
 “are you wearing the-”
 “the chanel...](https://come-forth-into-the-light.tumblr.com/post/655975811428564992)
@@ -58,9 +62,6 @@ and the Iraqi people welcomed the Americans with...](https://come-forth-into-the
 - [rewelcomed:
 the world was so pink tonight i was in awe
 ](https://come-forth-into-the-light.tumblr.com/post/655885214178000896)
-- [sexhilaration:siouxerz:
-
-Milosav Druckmüller is, hands down, the...](https://come-forth-into-the-light.tumblr.com/post/655862596359127040)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
