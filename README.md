@@ -67,9 +67,9 @@ the world was so pink tonight i was in awe
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/3402)
-- [bob-artist:plesbian:rivustheferret:m0nster-c00kie:bob-artist:Whenever Tux manages to slip into a forbidden room, he does the most obnoxious victory da...](https://t.me/ferretman/3401)
-- [MediaOooo he doin a Blep! Sokka is so cute : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/655919158260793344](https://t.me/ferretman/3400)
-- [roachpatrol: itchycoil: Whenever you’re feeling sudden calm its because I took your voodoo doll out...via Ferret Story https://just-a-catastrophy.tum...](https://t.me/ferretman/3399)
-- [bob-artist:Medias…Media…scrEEN????via Ferret Story https://prettypeterparkr.tumblr.com/post/655911610327646208](https://t.me/ferretman/3398)
+- [MediaHappy Valentine’s Day from Flapjack! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/656009746100420608](https://t.me/ferretman/3418)
+- [bob-artist:How 3 normal, civilized people share a bed: “Okay, I’ll take the left, you can take the middle, and you can take the right.”How 3 ferre...](https://t.me/ferretman/3417)
+- [MediaMediaMediaMediajihyolegend:✨🌟✨via Ferret Story https://just-a-catastrophy.tumblr.com/post/656006007714152448](https://t.me/ferretman/3416)
+- [MediaI knew better but hoped she wouldn’t… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/655994656967049216](https://t.me/ferretman/3415)
+- [fireleaptfromhousetohouse:krystal-prisms:roseverdict:nentuaby:roseverdict:nentuaby:MediaImage ID: OP's tags, reading "#I am deeply sorry to whoever fi...](https://t.me/ferretman/3414)
 <!-- TELEGRAM:END -->
