@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:artbun:
+beautiful](https://come-forth-into-the-light.tumblr.com/post/656043723394875392)
 - [kateordie:
 thenearsightedmonkey:
 
@@ -59,9 +61,6 @@ By Lynda Barry  May...](https://come-forth-into-the-light.tumblr.com/post/65599
 
 and the Iraqi people welcomed the Americans with...](https://come-forth-into-the-light.tumblr.com/post/655953168279257088)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/655907848829714432)
-- [rewelcomed:
-the world was so pink tonight i was in awe
-](https://come-forth-into-the-light.tumblr.com/post/655885214178000896)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
