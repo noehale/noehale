@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Portrait of my boy Ziggy : ferrets](https://come-forth-into-the-light.tumblr.com/post/656066377659056128)
 - [petaflop:artbun:
 beautiful](https://come-forth-into-the-light.tumblr.com/post/656043723394875392)
 - [kateordie:
@@ -60,7 +61,6 @@ By Lynda Barry  May...](https://come-forth-into-the-light.tumblr.com/post/65599
 - [zaynocean:
 
 and the Iraqi people welcomed the Americans with...](https://come-forth-into-the-light.tumblr.com/post/655953168279257088)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/655907848829714432)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
