@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [おは歌ちゃん！
+相変わらずの忙しさで、平日どっか有給取ってゆっくりも出来なくてモヤモヤするけど、仕事だししゃーないねヾ(⌒(ﾉ'ω...](https://come-forth-into-the-light.tumblr.com/post/656089034824859648)
 - [Portrait of my boy Ziggy : ferrets](https://come-forth-into-the-light.tumblr.com/post/656066377659056128)
 - [petaflop:artbun:
 beautiful](https://come-forth-into-the-light.tumblr.com/post/656043723394875392)
@@ -58,9 +60,6 @@ By Lynda Barry  May...](https://come-forth-into-the-light.tumblr.com/post/65599
 - [annehathawillannehathaway:
 “are you wearing the-”
 “the chanel...](https://come-forth-into-the-light.tumblr.com/post/655975811428564992)
-- [zaynocean:
-
-and the Iraqi people welcomed the Americans with...](https://come-forth-into-the-light.tumblr.com/post/655953168279257088)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
