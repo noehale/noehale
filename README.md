@@ -48,16 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/656156993016512512)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656134323634929664)
 - [おは歌ちゃん！
 相変わらずの忙しさで、平日どっか有給取ってゆっくりも出来なくてモヤモヤするけど、仕事だししゃーないねヾ(⌒(ﾉ'ω...](https://come-forth-into-the-light.tumblr.com/post/656089034824859648)
 - [Portrait of my boy Ziggy : ferrets](https://come-forth-into-the-light.tumblr.com/post/656066377659056128)
 - [petaflop:artbun:
 beautiful](https://come-forth-into-the-light.tumblr.com/post/656043723394875392)
-- [kateordie:
-thenearsightedmonkey:
-
-By Lynda Barry  May...](https://come-forth-into-the-light.tumblr.com/post/655998453538783232)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
