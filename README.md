@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Emptyage: Generation X Doesn't Want to Hear It](https://come-forth-into-the-light.tumblr.com/post/656247624146583552)
 - [petaflop:itscoldasfuckhere:
 
 dutchmandave:
@@ -58,8 +59,6 @@ The hopeless...](https://come-forth-into-the-light.tumblr.com/post/6562249405179
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656179636780335104)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656156993016512512)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656134323634929664)
-- [おは歌ちゃん！
-相変わらずの忙しさで、平日どっか有給取ってゆっくりも出来なくてモヤモヤするけど、仕事だししゃーないねヾ(⌒(ﾉ'ω...](https://come-forth-into-the-light.tumblr.com/post/656089034824859648)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
