@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/656270217106849792)
 - [Emptyage: Generation X Doesn't Want to Hear It](https://come-forth-into-the-light.tumblr.com/post/656247624146583552)
 - [petaflop:itscoldasfuckhere:
 
@@ -58,7 +59,6 @@ GOLD
 The hopeless...](https://come-forth-into-the-light.tumblr.com/post/656224940517982208)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656179636780335104)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656156993016512512)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/656134323634929664)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
