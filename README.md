@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [monica-geller:
+yesterday at target the cashier said ‘your receipt is in the bag’ and i responded...](https://come-forth-into-the-light.tumblr.com/post/656428777615835136)
 - [They are doing really well. Next litter to wean is in a week to...](https://come-forth-into-the-light.tumblr.com/post/656406121192587264)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656360821898772480)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656338203124596736)
@@ -55,7 +57,6 @@
 eevielearnsfrench:
 Can someone just………………. explain French to me?
 its spanish but you...](https://come-forth-into-the-light.tumblr.com/post/656315539006849024)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/656270217106849792)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
