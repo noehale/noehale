@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [ʢ๑‐͈॰̫‐͈̯ʡ](https://come-forth-into-the-light.tumblr.com/post/656519413553594368)
 - [おやつ少し横取りされたもこ嬢、今若干複雑な気分🌀
 #もこ #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/656496720707993600)
 - [僕のインスタも見てほしいでち😍
@@ -57,7 +58,6 @@ https://ift.tt/3fKCqUX...](https://come-forth-into-the-light.tumblr.com/post/656
 - [monica-geller:
 yesterday at target the cashier said ‘your receipt is in the bag’ and i responded...](https://come-forth-into-the-light.tumblr.com/post/656428777615835136)
 - [They are doing really well. Next litter to wean is in a week to...](https://come-forth-into-the-light.tumblr.com/post/656406121192587264)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/656360821898772480)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
