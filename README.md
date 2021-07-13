@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/656609996559335424)
 - [My fursona Vimy, a stripped ferret #oc #fursona #blonde #glasses...](https://come-forth-into-the-light.tumblr.com/post/656587311845376000)
 - [本日のフェレットはこちら。
 (過去に投稿済のもの)
@@ -58,10 +59,6 @@
 - [ʢ๑‐͈॰̫‐͈̯ʡ](https://come-forth-into-the-light.tumblr.com/post/656519413553594368)
 - [おやつ少し横取りされたもこ嬢、今若干複雑な気分🌀
 #もこ #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/656496720707993600)
-- [僕のインスタも見てほしいでち😍
-#フェレット　＃ferret
-【インスタアカウント】
-https://ift.tt/3fKCqUX...](https://come-forth-into-the-light.tumblr.com/post/656451428443930624)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
