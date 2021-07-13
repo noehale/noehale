@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [My fursona Vimy, a stripped ferret #oc #fursona #blonde #glasses...](https://come-forth-into-the-light.tumblr.com/post/656587311845376000)
 - [本日のフェレットはこちら。
 (過去に投稿済のもの)
 
@@ -61,8 +62,6 @@
 #フェレット　＃ferret
 【インスタアカウント】
 https://ift.tt/3fKCqUX...](https://come-forth-into-the-light.tumblr.com/post/656451428443930624)
-- [monica-geller:
-yesterday at target the cashier said ‘your receipt is in the bag’ and i responded...](https://come-forth-into-the-light.tumblr.com/post/656428777615835136)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
