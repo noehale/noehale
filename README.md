@@ -68,9 +68,9 @@ Why did he put on like...](https://come-forth-into-the-light.tumblr.com/post/656
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaHappy Valentine’s Day from Flapjack! : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/656009746100420608](https://t.me/ferretman/3418)
-- [bob-artist:How 3 normal, civilized people share a bed: “Okay, I’ll take the left, you can take the middle, and you can take the right.”How 3 ferre...](https://t.me/ferretman/3417)
-- [MediaMediaMediaMediajihyolegend:✨🌟✨via Ferret Story https://just-a-catastrophy.tumblr.com/post/656006007714152448](https://t.me/ferretman/3416)
-- [MediaI knew better but hoped she wouldn’t… : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/655994656967049216](https://t.me/ferretman/3415)
-- [fireleaptfromhousetohouse:krystal-prisms:roseverdict:nentuaby:roseverdict:nentuaby:MediaImage ID: OP's tags, reading "#I am deeply sorry to whoever fi...](https://t.me/ferretman/3414)
+- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/656643981352058880](https://t.me/ferretman/3538)
+- [MediaGus didn’t know how to feel about the lightsaber. Also ferret math happened and I need name suggestions for my new dude. He’s Gus’ twin : ferr...](https://t.me/ferretman/3537)
+- [MediaHe likes his treats :) : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/656625096689139713](https://t.me/ferretman/3536)
+- [realraccoon:reasons i can relate to a raccoon:dark circles around eyessmall & chubbylives in the trash and eats garbagecute but will fight youstays up...](https://t.me/ferretman/3535)
+- [MediaDidn’t quite make it to bed. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/656625086998183936](https://t.me/ferretman/3534)
 <!-- TELEGRAM:END -->
