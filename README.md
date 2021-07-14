@@ -68,9 +68,9 @@ Why did he put on like...](https://come-forth-into-the-light.tumblr.com/post/656
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaAnd they both have strikingly different personalities. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/656689229415530496](https://t.me/ferretman/3540)
+- [MediaMy babies ❤️ Alice & Jasper : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/656674119377633281](https://t.me/ferretman/3539)
 - [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/656643981352058880](https://t.me/ferretman/3538)
 - [MediaGus didn’t know how to feel about the lightsaber. Also ferret math happened and I need name suggestions for my new dude. He’s Gus’ twin : ferr...](https://t.me/ferretman/3537)
 - [MediaHe likes his treats :) : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/656625096689139713](https://t.me/ferretman/3536)
-- [realraccoon:reasons i can relate to a raccoon:dark circles around eyessmall & chubbylives in the trash and eats garbagecute but will fight youstays up...](https://t.me/ferretman/3535)
-- [MediaDidn’t quite make it to bed. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/656625086998183936](https://t.me/ferretman/3534)
 <!-- TELEGRAM:END -->
