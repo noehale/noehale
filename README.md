@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:🍁](https://come-forth-into-the-light.tumblr.com/post/656677927048593408)
 - [sampsans:
 commiedyke:
 
@@ -62,7 +63,6 @@ Why did he put on like...](https://come-forth-into-the-light.tumblr.com/post/656
 兄弟で話し合い…？
 
 #フェレット #ferret...](https://come-forth-into-the-light.tumblr.com/post/656542035764969472)
-- [ʢ๑‐͈॰̫‐͈̯ʡ](https://come-forth-into-the-light.tumblr.com/post/656519413553594368)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
