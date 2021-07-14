@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [catsbeaversandducks:
+“Just get in the car, Alice. I’ll explain...](https://come-forth-into-the-light.tumblr.com/post/656700594603671552)
 - [petaflop:🍁](https://come-forth-into-the-light.tumblr.com/post/656677927048593408)
 - [sampsans:
 commiedyke:
@@ -57,12 +59,6 @@ This is feminism
 Why did he put on like...](https://come-forth-into-the-light.tumblr.com/post/656632612903895040)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656609996559335424)
 - [My fursona Vimy, a stripped ferret #oc #fursona #blonde #glasses...](https://come-forth-into-the-light.tumblr.com/post/656587311845376000)
-- [本日のフェレットはこちら。
-(過去に投稿済のもの)
-
-兄弟で話し合い…？
-
-#フェレット #ferret...](https://come-forth-into-the-light.tumblr.com/post/656542035764969472)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
