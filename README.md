@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [chicken-buddha:
+you ignorant fool
+](https://come-forth-into-the-light.tumblr.com/post/656813809538826240)
 - [peep-toe-shoes:margoteve:
 
 tobiasxva:
@@ -58,7 +61,6 @@ Roast the fuck out of...](https://come-forth-into-the-light.tumblr.com/post/6567
 Enjoy your #poster with #weaselhugs...](https://come-forth-into-the-light.tumblr.com/post/656723212862980096)
 - [catsbeaversandducks:
 “Just get in the car, Alice. I’ll explain...](https://come-forth-into-the-light.tumblr.com/post/656700594603671552)
-- [petaflop:🍁](https://come-forth-into-the-light.tumblr.com/post/656677927048593408)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
