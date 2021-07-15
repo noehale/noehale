@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [My boy, Eggnog, looking majestic. : ferrets](https://come-forth-into-the-light.tumblr.com/post/656768497049911296)
 - [Thank you dear buyer!
 Enjoy your #poster with #weaselhugs...](https://come-forth-into-the-light.tumblr.com/post/656723212862980096)
 - [catsbeaversandducks:
@@ -59,7 +60,6 @@ commiedyke:
 This is feminism
 
 Why did he put on like...](https://come-forth-into-the-light.tumblr.com/post/656632612903895040)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/656609996559335424)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
