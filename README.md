@@ -66,9 +66,9 @@ Enjoy your #poster with #weaselhugs...](https://come-forth-into-the-light.tumblr
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaAnd they both have strikingly different personalities. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/656689229415530496](https://t.me/ferretman/3540)
-- [MediaMy babies ❤️ Alice & Jasper : ferretsvia Ferret Story https://punkrocknat.tumblr.com/post/656674119377633281](https://t.me/ferretman/3539)
-- [MediaMediaMediaMediaMediaMediaMediaMediaMediaMediavia Ferret Story https://punkrocknat.tumblr.com/post/656643981352058880](https://t.me/ferretman/3538)
-- [MediaGus didn’t know how to feel about the lightsaber. Also ferret math happened and I need name suggestions for my new dude. He’s Gus’ twin : ferr...](https://t.me/ferretman/3537)
-- [MediaHe likes his treats :) : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/656625096689139713](https://t.me/ferretman/3536)
+- [MediaCaught a Chubby Noodle Sunbathingvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/656776093001531393](https://t.me/ferretman/3560)
+- [MediaHere’s my ferret birthday cake! :) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/656776085749612544](https://t.me/ferretman/3559)
+- [judgejudyofficial:notlikingbestgirl:Out of TouchLast Out of Touch Thursday of 2020 ladies and gaysvia Ferret Story https://xxcrybby.tumblr.com/post/65...](https://t.me/ferretman/3558)
+- [MediaRound and round we go : ferretsvia Ferret Story https://redzgn.tumblr.com/post/656776085752676352](https://t.me/ferretman/3557)
+- [MediaTum is off limits : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/656779832777195521](https://t.me/ferretman/3556)
 <!-- TELEGRAM:END -->
