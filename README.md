@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/656881777574608896)
 - [きゅるるん攻撃してもおやつのおかわりはないよおデブちゃん🥺
 #まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/656859081605267456)
 - [chicken-buddha:
@@ -59,8 +60,6 @@ tobiasxva:
 
 Roast the fuck out of...](https://come-forth-into-the-light.tumblr.com/post/656791176576466944)
 - [My boy, Eggnog, looking majestic. : ferrets](https://come-forth-into-the-light.tumblr.com/post/656768497049911296)
-- [Thank you dear buyer!
-Enjoy your #poster with #weaselhugs...](https://come-forth-into-the-light.tumblr.com/post/656723212862980096)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
