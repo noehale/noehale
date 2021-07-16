@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [きゅるるん攻撃してもおやつのおかわりはないよおデブちゃん🥺
+#まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/656859081605267456)
 - [chicken-buddha:
 you ignorant fool
 ](https://come-forth-into-the-light.tumblr.com/post/656813809538826240)
@@ -59,8 +61,6 @@ Roast the fuck out of...](https://come-forth-into-the-light.tumblr.com/post/6567
 - [My boy, Eggnog, looking majestic. : ferrets](https://come-forth-into-the-light.tumblr.com/post/656768497049911296)
 - [Thank you dear buyer!
 Enjoy your #poster with #weaselhugs...](https://come-forth-into-the-light.tumblr.com/post/656723212862980096)
-- [catsbeaversandducks:
-“Just get in the car, Alice. I’ll explain...](https://come-forth-into-the-light.tumblr.com/post/656700594603671552)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
