@@ -60,9 +60,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCaught a Chubby Noodle Sunbathingvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/656776093001531393](https://t.me/ferretman/3560)
-- [MediaHere’s my ferret birthday cake! :) : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/656776085749612544](https://t.me/ferretman/3559)
-- [judgejudyofficial:notlikingbestgirl:Out of TouchLast Out of Touch Thursday of 2020 ladies and gaysvia Ferret Story https://xxcrybby.tumblr.com/post/65...](https://t.me/ferretman/3558)
-- [MediaRound and round we go : ferretsvia Ferret Story https://redzgn.tumblr.com/post/656776085752676352](https://t.me/ferretman/3557)
-- [MediaTum is off limits : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/656779832777195521](https://t.me/ferretman/3556)
+- [MediaWhere is Sassy? Wait for it! 😊 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/656961011004424192](https://t.me/ferretman/3589)
+- [MediaMediaMediaMediawhetstonefires:notenoughtosurvive:unamusedsloth:Nude Portraits series by photographer Trevor ChristensenThis is my new favorite th...](https://t.me/ferretman/3588)
+- [Media“Mom the tv is too bright🙈” : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/656957260006883328](https://t.me/ferretman/3587)
+- [MediaFeeling cute might delete later-Silas : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/656957260031000576](https://t.me/ferretman/3586)
+- [MediaGood morning! -Love, Dean : ferretsvia Ferret Story https://redzgn.tumblr.com/post/656957259998445569](https://t.me/ferretman/3585)
 <!-- TELEGRAM:END -->
