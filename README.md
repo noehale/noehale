@@ -48,15 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/656972364430688257)
 - [Welcome to the family Aspen ❤️ : ferrets](https://come-forth-into-the-light.tumblr.com/post/656949697153515520)
 - [おととが作ってくれたティッシュの箱トンネルが最近のお気に入りな生後3ヶ月すくすく育ち中バブがこちらです。
 とてつもない可愛いの暴力...](https://come-forth-into-the-light.tumblr.com/post/656904409962446848)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/656881777574608896)
 - [きゅるるん攻撃してもおやつのおかわりはないよおデブちゃん🥺
 #まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/656859081605267456)
-- [chicken-buddha:
-you ignorant fool
-](https://come-forth-into-the-light.tumblr.com/post/656813809538826240)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
