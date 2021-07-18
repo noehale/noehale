@@ -59,9 +59,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWhere is Sassy? Wait for it! 😊 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/656961011004424192](https://t.me/ferretman/3589)
-- [MediaMediaMediaMediawhetstonefires:notenoughtosurvive:unamusedsloth:Nude Portraits series by photographer Trevor ChristensenThis is my new favorite th...](https://t.me/ferretman/3588)
-- [Media“Mom the tv is too bright🙈” : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/656957260006883328](https://t.me/ferretman/3587)
-- [MediaFeeling cute might delete later-Silas : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/656957260031000576](https://t.me/ferretman/3586)
-- [MediaGood morning! -Love, Dean : ferretsvia Ferret Story https://redzgn.tumblr.com/post/656957259998445569](https://t.me/ferretman/3585)
+- [MediaCharlie’s gift to me for ferret day was holding still for this picture : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/65699122351...](https://t.me/ferretman/3594)
+- [Mediabearorist:to-heck:daydreamradio:My family is no longer allowed to play Wii bowling.Nintendo boys make doI hate this websitevia Ferret Story https...](https://t.me/ferretman/3593)
+- [Mediateefs : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/656987478670082048](https://t.me/ferretman/3592)
+- [MediaI just wanna do my nails! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/656987471657254913](https://t.me/ferretman/3591)
+- [MediaA GOOD BOY (he got diagnosed with DIM last month and adequate treatment has really made a difference) : ferretsvia Ferret Story https://redzgn.tu...](https://t.me/ferretman/3590)
 <!-- TELEGRAM:END -->
