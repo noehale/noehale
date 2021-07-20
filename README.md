@@ -67,9 +67,9 @@ when u used to be an overachiever but now ur barely running on enough energy to 
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaCharlie’s gift to me for ferret day was holding still for this picture : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/65699122351...](https://t.me/ferretman/3594)
-- [Mediabearorist:to-heck:daydreamradio:My family is no longer allowed to play Wii bowling.Nintendo boys make doI hate this websitevia Ferret Story https...](https://t.me/ferretman/3593)
-- [Mediateefs : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/656987478670082048](https://t.me/ferretman/3592)
-- [MediaI just wanna do my nails! : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/656987471657254913](https://t.me/ferretman/3591)
-- [MediaA GOOD BOY (he got diagnosed with DIM last month and adequate treatment has really made a difference) : ferretsvia Ferret Story https://redzgn.tu...](https://t.me/ferretman/3590)
+- [MediaNibbler just wanted to say “Good morning” : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657232802198274048](https://t.me/ferretman/3641)
+- [MediaDoes anybody else’s ferrets do this? Jerry is a mega-thief who only lives to stash toys in my box spring. When he runs out of treasures to hide,...](https://t.me/ferretman/3640)
+- [MediaBeing crazy is exhausting : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/657229101577469952](https://t.me/ferretman/3639)
+- [MediaRoad trip 💙❤️ just picked up some chicks 🐣 for dinner 😋 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657229101114998784](https://t.me/ferretman/3638)
+- [geekybibliophile:ya-wn:please for the love of god turn ur sound on@zombeesknees @nursemz87via Ferret Story https://falalamingo.tumblr.com/post/6572290...](https://t.me/ferretman/3637)
 <!-- TELEGRAM:END -->
