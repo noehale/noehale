@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/657266817749942272)
 - [c0litasxo:
 trappedblackrose:
 
@@ -61,7 +62,6 @@ happy halloween!...](https://come-forth-into-the-light.tumblr.com/post/657244154
 - [Video](https://come-forth-into-the-light.tumblr.com/post/657176218782810112)
 - [clowncare:
 when u used to be an overachiever but now ur barely running on enough energy to function...](https://come-forth-into-the-light.tumblr.com/post/657153552425304064)
-- [onehumangallery:wut](https://come-forth-into-the-light.tumblr.com/post/657130896478076928)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
