@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [c0litasxo:
+trappedblackrose:
+
+
+everydaylouie:
+happy halloween!...](https://come-forth-into-the-light.tumblr.com/post/657244154793000960)
 - [今日はたくさんお部屋で遊んだね🐱
 朝までゆっくり寝るのかな？？
 
@@ -56,10 +62,6 @@
 - [clowncare:
 when u used to be an overachiever but now ur barely running on enough energy to function...](https://come-forth-into-the-light.tumblr.com/post/657153552425304064)
 - [onehumangallery:wut](https://come-forth-into-the-light.tumblr.com/post/657130896478076928)
-- [earthdad:
-when you’re just having one of those days
-
-](https://come-forth-into-the-light.tumblr.com/post/657085614246789120)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
