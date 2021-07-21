@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [liambringmethepayne:
+liambringmethepayne:
+
+bloodcavern:
+
+what if you went outside and saw slender...](https://come-forth-into-the-light.tumblr.com/post/657334773471150081)
 - [pajamaben:Rules for meeting a dog:
 1) be cool 
 2) pet it 
@@ -64,7 +70,6 @@ happy halloween!...](https://come-forth-into-the-light.tumblr.com/post/657244154
 朝までゆっくり寝るのかな？？
 
 #ferret #フェレット](https://come-forth-into-the-light.tumblr.com/post/657221484155109376)
-- [Video](https://come-forth-into-the-light.tumblr.com/post/657176218782810112)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
