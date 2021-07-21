@@ -48,6 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [pajamaben:Rules for meeting a dog:
+1) be cool 
+2) pet it 
+3) do not steal it 
+4) stop running from...](https://come-forth-into-the-light.tumblr.com/post/657312101689327616)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/657266817749942272)
 - [c0litasxo:
 trappedblackrose:
@@ -60,8 +65,6 @@ happy halloween!...](https://come-forth-into-the-light.tumblr.com/post/657244154
 
 #ferret #フェレット](https://come-forth-into-the-light.tumblr.com/post/657221484155109376)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/657176218782810112)
-- [clowncare:
-when u used to be an overachiever but now ur barely running on enough energy to function...](https://come-forth-into-the-light.tumblr.com/post/657153552425304064)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
