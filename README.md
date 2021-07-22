@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [hurleyquinn:
+pssyriot:
+
+Kinda wanna be kissed kinda wanna be stabbed
+
+While he’s having a smoke and...](https://come-forth-into-the-light.tumblr.com/post/657425345726824448)
 - [Video](https://come-forth-into-the-light.tumblr.com/post/657402691746742272)
 - [petaflop:krudman:
 
@@ -66,7 +72,6 @@ what if you went outside and saw slender...](https://come-forth-into-the-light.t
 2) pet it 
 3) do not steal it 
 4) stop running from...](https://come-forth-into-the-light.tumblr.com/post/657312101689327616)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/657266817749942272)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
