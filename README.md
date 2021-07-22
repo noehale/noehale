@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:krudman:
+
+I could watch this vine all day
+
+
+Simply a...](https://come-forth-into-the-light.tumblr.com/post/657357395564134400)
 - [liambringmethepayne:
 liambringmethepayne:
 
@@ -66,10 +72,6 @@ trappedblackrose:
 
 everydaylouie:
 happy halloween!...](https://come-forth-into-the-light.tumblr.com/post/657244154793000960)
-- [今日はたくさんお部屋で遊んだね🐱
-朝までゆっくり寝るのかな？？
-
-#ferret #フェレット](https://come-forth-into-the-light.tumblr.com/post/657221484155109376)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
