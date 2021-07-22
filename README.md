@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Video](https://come-forth-into-the-light.tumblr.com/post/657402691746742272)
 - [petaflop:krudman:
 
 I could watch this vine all day
@@ -66,12 +67,6 @@ what if you went outside and saw slender...](https://come-forth-into-the-light.t
 3) do not steal it 
 4) stop running from...](https://come-forth-into-the-light.tumblr.com/post/657312101689327616)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/657266817749942272)
-- [c0litasxo:
-trappedblackrose:
-
-
-everydaylouie:
-happy halloween!...](https://come-forth-into-the-light.tumblr.com/post/657244154793000960)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
