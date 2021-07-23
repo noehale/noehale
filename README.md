@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [grimdark:i may not be beautiful but at least i know a lot of useless information](https://come-forth-into-the-light.tumblr.com/post/657538588272132096)
 - [🏵パンジー👅🏵
 
 #ferret #フェレット　#砂良さんちのフェレット](https://come-forth-into-the-light.tumblr.com/post/657515974126419968)
@@ -62,7 +63,6 @@ pssyriot:
 Kinda wanna be kissed kinda wanna be stabbed
 
 While he’s having a smoke and...](https://come-forth-into-the-light.tumblr.com/post/657425345726824448)
-- [Video](https://come-forth-into-the-light.tumblr.com/post/657402691746742272)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
