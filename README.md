@@ -76,9 +76,9 @@ what if you went outside and saw slender...](https://come-forth-into-the-light.t
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaNibbler just wanted to say “Good morning” : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657232802198274048](https://t.me/ferretman/3641)
-- [MediaDoes anybody else’s ferrets do this? Jerry is a mega-thief who only lives to stash toys in my box spring. When he runs out of treasures to hide,...](https://t.me/ferretman/3640)
-- [MediaBeing crazy is exhausting : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/657229101577469952](https://t.me/ferretman/3639)
-- [MediaRoad trip 💙❤️ just picked up some chicks 🐣 for dinner 😋 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657229101114998784](https://t.me/ferretman/3638)
-- [geekybibliophile:ya-wn:please for the love of god turn ur sound on@zombeesknees @nursemz87via Ferret Story https://falalamingo.tumblr.com/post/6572290...](https://t.me/ferretman/3637)
+- [Mediaoh to be in the middle of this weasel cuddle party : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657444221011279872](https://t.me/ferretman/3666)
+- [MediaZzz ☁️🐑☁️ : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/657440474327580672](https://t.me/ferretman/3665)
+- [MediaI think my ferret is broken. Lolvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657440474029817856](https://t.me/ferretman/3664)
+- [MediaTomas snoring (sable) and Reggie (DEW) dreaming.. must be dreaming about eating, because watch his wittle tongue lol he startled himself awake. :...](https://t.me/ferretman/3663)
+- [MediaStuart on a rage! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657440474322337792](https://t.me/ferretman/3662)
 <!-- TELEGRAM:END -->
