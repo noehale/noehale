@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [setheverman:
+disgustinganimals:
+
+Don’t hire this cleaning...](https://come-forth-into-the-light.tumblr.com/post/657447996972253184)
 - [hurleyquinn:
 pssyriot:
 
@@ -67,11 +71,6 @@ liambringmethepayne:
 bloodcavern:
 
 what if you went outside and saw slender...](https://come-forth-into-the-light.tumblr.com/post/657334773471150081)
-- [pajamaben:Rules for meeting a dog:
-1) be cool 
-2) pet it 
-3) do not steal it 
-4) stop running from...](https://come-forth-into-the-light.tumblr.com/post/657312101689327616)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
