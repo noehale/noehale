@@ -68,9 +68,9 @@ While he’s having a smoke and...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaDuke had a stuffy nose last night, if you are unfamiliar that is a SUPER DRAMATIC situation. Tired and covered in Benadryl puke I slept an hour. ...](https://t.me/ferretman/3670)
+- [MediaIs this safe for ferrets to be around? See comments for details : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657500866145894400](https://t.me/ferretman/3669)
+- [MediaMediaMediaidaniify:“In case I don’t see ya—good afternoon, good evening, and good night.”The Truman Show, 1998Dir. Peter Weirvia Ferret Story...](https://t.me/ferretman/3668)
+- [MediaShe’s turning four this year, but still looks like a little baby : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/657500854949150721](https://t.me/ferretman/3667)
 - [Mediaoh to be in the middle of this weasel cuddle party : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657444221011279872](https://t.me/ferretman/3666)
-- [MediaZzz ☁️🐑☁️ : ferretsvia Ferret Story https://falalamingo.tumblr.com/post/657440474327580672](https://t.me/ferretman/3665)
-- [MediaI think my ferret is broken. Lolvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657440474029817856](https://t.me/ferretman/3664)
-- [MediaTomas snoring (sable) and Reggie (DEW) dreaming.. must be dreaming about eating, because watch his wittle tongue lol he startled himself awake. :...](https://t.me/ferretman/3663)
-- [MediaStuart on a rage! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657440474322337792](https://t.me/ferretman/3662)
 <!-- TELEGRAM:END -->
