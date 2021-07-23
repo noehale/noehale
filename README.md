@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [silentstep:from the perspective of persephone trying to eat a...](https://come-forth-into-the-light.tumblr.com/post/657493265221894145)
 - [setheverman:
 disgustinganimals:
 
@@ -65,12 +66,6 @@ I could watch this vine all day
 
 
 Simply a...](https://come-forth-into-the-light.tumblr.com/post/657357395564134400)
-- [liambringmethepayne:
-liambringmethepayne:
-
-bloodcavern:
-
-what if you went outside and saw slender...](https://come-forth-into-the-light.tumblr.com/post/657334773471150081)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
