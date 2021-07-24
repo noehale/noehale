@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [penllawen:Keep watching for The Titanic.](https://come-forth-into-the-light.tumblr.com/post/657583876549607424)
 - [grimdark:i may not be beautiful but at least i know a lot of useless information](https://come-forth-into-the-light.tumblr.com/post/657538588272132096)
 - [🏵パンジー👅🏵
 
@@ -57,12 +58,6 @@
 disgustinganimals:
 
 Don’t hire this cleaning...](https://come-forth-into-the-light.tumblr.com/post/657447996972253184)
-- [hurleyquinn:
-pssyriot:
-
-Kinda wanna be kissed kinda wanna be stabbed
-
-While he’s having a smoke and...](https://come-forth-into-the-light.tumblr.com/post/657425345726824448)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
