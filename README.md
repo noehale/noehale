@@ -48,16 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Cokehead!! When the addiction is strong!! (he’s never allowed to...](https://come-forth-into-the-light.tumblr.com/post/657606538301669376)
 - [penllawen:Keep watching for The Titanic.](https://come-forth-into-the-light.tumblr.com/post/657583876549607424)
 - [grimdark:i may not be beautiful but at least i know a lot of useless information](https://come-forth-into-the-light.tumblr.com/post/657538588272132096)
 - [🏵パンジー👅🏵
 
 #ferret #フェレット　#砂良さんちのフェレット](https://come-forth-into-the-light.tumblr.com/post/657515974126419968)
 - [silentstep:from the perspective of persephone trying to eat a...](https://come-forth-into-the-light.tumblr.com/post/657493265221894145)
-- [setheverman:
-disgustinganimals:
-
-Don’t hire this cleaning...](https://come-forth-into-the-light.tumblr.com/post/657447996972253184)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
