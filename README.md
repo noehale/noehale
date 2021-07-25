@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [tiny jumps : ferrets](https://come-forth-into-the-light.tumblr.com/post/657697140502626304)
 - [onehumangallery:Those are my fries.](https://come-forth-into-the-light.tumblr.com/post/657674480524623872)
 - [penllawen:stuffparty:
 
@@ -56,7 +57,6 @@ whitewhine:
 I wish whoever submitted...](https://come-forth-into-the-light.tumblr.com/post/657629198788263936)
 - [Cokehead!! When the addiction is strong!! (he’s never allowed to...](https://come-forth-into-the-light.tumblr.com/post/657606538301669376)
 - [penllawen:Keep watching for The Titanic.](https://come-forth-into-the-light.tumblr.com/post/657583876549607424)
-- [grimdark:i may not be beautiful but at least i know a lot of useless information](https://come-forth-into-the-light.tumblr.com/post/657538588272132096)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
