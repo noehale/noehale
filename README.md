@@ -62,9 +62,9 @@ I wish whoever submitted...](https://come-forth-into-the-light.tumblr.com/post/6
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaDuke had a stuffy nose last night, if you are unfamiliar that is a SUPER DRAMATIC situation. Tired and covered in Benadryl puke I slept an hour. ...](https://t.me/ferretman/3670)
-- [MediaIs this safe for ferrets to be around? See comments for details : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657500866145894400](https://t.me/ferretman/3669)
-- [MediaMediaMediaidaniify:“In case I don’t see ya—good afternoon, good evening, and good night.”The Truman Show, 1998Dir. Peter Weirvia Ferret Story...](https://t.me/ferretman/3668)
-- [MediaShe’s turning four this year, but still looks like a little baby : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/657500854949150721](https://t.me/ferretman/3667)
-- [Mediaoh to be in the middle of this weasel cuddle party : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657444221011279872](https://t.me/ferretman/3666)
+- [MediaBBYS : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657685790867046400](https://t.me/ferretman/3690)
+- [MediaWe had to say goodbye to Gene Parmesan today. He was magnificent. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657682023363870720](https://t.me/ferretman/3689)
+- [Mediazackisontumblr:the-mighty-tor:blakegdiamond:easyvirgin:happy Thursday the 20thI’d have to wait months or even years for another chance to reblog...](https://t.me/ferretman/3688)
+- [MediaShe’s so antagonist lol : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657682018694479872](https://t.me/ferretman/3687)
+- [keelychu:this is going to sound dumb but does anyone else feel like they have good and bad face days? like some days i’ll look in the mirror and be l...](https://t.me/ferretman/3686)
 <!-- TELEGRAM:END -->
