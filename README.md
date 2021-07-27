@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [When you need to heal, but the enemies are mercyless](https://come-forth-into-the-light.tumblr.com/post/657855677663002624)
 - [sasshunter:this is the kind of quality content I want to see](https://come-forth-into-the-light.tumblr.com/post/657810393328189440)
 - [engage-with-zorp:*sees dog* nice
 *sees dog wearing a bandana around its neck* nice](https://come-forth-into-the-light.tumblr.com/post/657787729304748032)
@@ -55,7 +56,6 @@
 - [penllawen:huffingtonpost:
 
 The Women’s Bathroom Sign You Can’t...](https://come-forth-into-the-light.tumblr.com/post/657719777146617856)
-- [tiny jumps : ferrets](https://come-forth-into-the-light.tumblr.com/post/657697140502626304)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
