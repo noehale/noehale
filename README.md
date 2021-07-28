@@ -66,9 +66,9 @@ arc...](https://come-forth-into-the-light.tumblr.com/post/657900987120599040)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaBBYS : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657685790867046400](https://t.me/ferretman/3690)
-- [MediaWe had to say goodbye to Gene Parmesan today. He was magnificent. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657682023363870720](https://t.me/ferretman/3689)
-- [Mediazackisontumblr:the-mighty-tor:blakegdiamond:easyvirgin:happy Thursday the 20thI’d have to wait months or even years for another chance to reblog...](https://t.me/ferretman/3688)
-- [MediaShe’s so antagonist lol : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657682018694479872](https://t.me/ferretman/3687)
-- [keelychu:this is going to sound dumb but does anyone else feel like they have good and bad face days? like some days i’ll look in the mirror and be l...](https://t.me/ferretman/3686)
+- [lewisandquark:I’ve been playing around with char-rnn, an open-source torch add-on for character-based neural networks by Andrej Karpathy, using it t...](https://t.me/ferretman/3710)
+- [MediaBeautiful curiosity : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657893427135070208](https://t.me/ferretman/3709)
+- [MediaMy baby in my front garden bed. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657893427129761793](https://t.me/ferretman/3708)
+- [Mediadouglaswolk:elevensies-:they said it couldn’t be donevenn piagramvia Ferret Story https://anasfalhhhs.tumblr.com/post/657866999459987457](https://t.me/ferretman/3707)
+- [MediaSlow mo ferret attack featuring a chonk waddle : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657863258616807424](https://t.me/ferretman/3706)
 <!-- TELEGRAM:END -->
