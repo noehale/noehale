@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/657991596199067648)
 - [penllawen:Tjardiis
 (via frakkincylon: doctorwho)](https://come-forth-into-the-light.tumblr.com/post/657968961717190656)
 - [hitmewithcute:He doesn’t like morning](https://come-forth-into-the-light.tumblr.com/post/657946266881392640)
@@ -60,7 +61,6 @@ crazythingsfromhistory:
 
 arc...](https://come-forth-into-the-light.tumblr.com/post/657900987120599040)
 - [subversiveforth:Bottle Brush Trees | Jian Chong Min](https://come-forth-into-the-light.tumblr.com/post/657878324150976512)
-- [When you need to heal, but the enemies are mercyless](https://come-forth-into-the-light.tumblr.com/post/657855677663002624)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
