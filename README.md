@@ -48,12 +48,19 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [gluklixhe:
+ironbite4:
+
+fluffmugger:
+
+crazythingsfromhistory:
+
+arc...](https://come-forth-into-the-light.tumblr.com/post/657900987120599040)
 - [subversiveforth:Bottle Brush Trees | Jian Chong Min](https://come-forth-into-the-light.tumblr.com/post/657878324150976512)
 - [When you need to heal, but the enemies are mercyless](https://come-forth-into-the-light.tumblr.com/post/657855677663002624)
 - [sasshunter:this is the kind of quality content I want to see](https://come-forth-into-the-light.tumblr.com/post/657810393328189440)
 - [engage-with-zorp:*sees dog* nice
 *sees dog wearing a bandana around its neck* nice](https://come-forth-into-the-light.tumblr.com/post/657787729304748032)
-- [hitmewithcute:Just saw this on r/unexpected and had to share](https://come-forth-into-the-light.tumblr.com/post/657765081324650496)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
