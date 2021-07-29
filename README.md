@@ -48,20 +48,16 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [1000drawings:
+Many Lands Under One Sun  by Rick Crane
+
+](https://come-forth-into-the-light.tumblr.com/post/658059537873584128)
 - [ただいまー。帰宅ってシャワったー。へなほながおうちを守ってたー。
 #ferret #pet #petstagram...](https://come-forth-into-the-light.tumblr.com/post/658036860568977409)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/657991596199067648)
 - [penllawen:Tjardiis
 (via frakkincylon: doctorwho)](https://come-forth-into-the-light.tumblr.com/post/657968961717190656)
 - [hitmewithcute:He doesn’t like morning](https://come-forth-into-the-light.tumblr.com/post/657946266881392640)
-- [gluklixhe:
-ironbite4:
-
-fluffmugger:
-
-crazythingsfromhistory:
-
-arc...](https://come-forth-into-the-light.tumblr.com/post/657900987120599040)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
