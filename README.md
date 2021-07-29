@@ -63,9 +63,9 @@ Many Lands Under One Sun  by Rick Crane
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [lewisandquark:I’ve been playing around with char-rnn, an open-source torch add-on for character-based neural networks by Andrej Karpathy, using it t...](https://t.me/ferretman/3710)
-- [MediaBeautiful curiosity : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657893427135070208](https://t.me/ferretman/3709)
-- [MediaMy baby in my front garden bed. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/657893427129761793](https://t.me/ferretman/3708)
-- [Mediadouglaswolk:elevensies-:they said it couldn’t be donevenn piagramvia Ferret Story https://anasfalhhhs.tumblr.com/post/657866999459987457](https://t.me/ferretman/3707)
-- [MediaSlow mo ferret attack featuring a chonk waddle : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/657863258616807424](https://t.me/ferretman/3706)
+- [gayarsonist:gayarsonist:gayarsonist:being weird together is a love languageme, catching myself sharing something i wouldn’t say to just anyone becaus...](https://t.me/ferretman/3723)
+- [MediaIs 380g too small for a 3 month old female ferret? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/658044439692017664](https://t.me/ferretman/3722)
+- [MediaHey everyone! I shared a picture of my new fuzzbaby Mozzie a few weeks back, and a few of you lovely souls asked for updates on him. Now, both fu...](https://t.me/ferretman/3721)
+- [Mediaferret kisses💕via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/658044428019220480](https://t.me/ferretman/3720)
+- [MediaZiggy isn’t well :( : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657987794695766016](https://t.me/ferretman/3719)
 <!-- TELEGRAM:END -->
