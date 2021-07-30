@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [palmandlaser:Eizin Suzuki (1985)](https://come-forth-into-the-light.tumblr.com/post/658082157358727168)
 - [1000drawings:
 Many Lands Under One Sun  by Rick Crane
 
@@ -57,7 +58,6 @@ Many Lands Under One Sun  by Rick Crane
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/657991596199067648)
 - [penllawen:Tjardiis
 (via frakkincylon: doctorwho)](https://come-forth-into-the-light.tumblr.com/post/657968961717190656)
-- [hitmewithcute:He doesn’t like morning](https://come-forth-into-the-light.tumblr.com/post/657946266881392640)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
