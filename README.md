@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [spent a few minutes looking for her just to see this : ferrets](https://come-forth-into-the-light.tumblr.com/post/658172772130963456)
 - [foxy-mulder:
 thankyu:
 a clownboy (half clown, half cowboy) says yeehonk
@@ -58,8 +59,6 @@ this is it. the worst post...](https://come-forth-into-the-light.tumblr.com/post
 Many Lands Under One Sun  by Rick Crane
 
 ](https://come-forth-into-the-light.tumblr.com/post/658059537873584128)
-- [ただいまー。帰宅ってシャワったー。へなほながおうちを守ってたー。
-#ferret #pet #petstagram...](https://come-forth-into-the-light.tumblr.com/post/658036860568977409)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
