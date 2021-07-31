@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [attractiveblogger:
+i may be ugly but at least i have an ugly personality too. consistency is key.
+](https://come-forth-into-the-light.tumblr.com/post/658240720244768768)
 - [onehumangallery:babyanimalgifs:You ever seen a cat with a deep...](https://come-forth-into-the-light.tumblr.com/post/658218106467008512)
 - [spent a few minutes looking for her just to see this : ferrets](https://come-forth-into-the-light.tumblr.com/post/658172772130963456)
 - [foxy-mulder:
@@ -55,7 +58,6 @@ thankyu:
 a clownboy (half clown, half cowboy) says yeehonk
 this is it. the worst post...](https://come-forth-into-the-light.tumblr.com/post/658150120992489472)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658127451323596800)
-- [palmandlaser:Eizin Suzuki (1985)](https://come-forth-into-the-light.tumblr.com/post/658082157358727168)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
