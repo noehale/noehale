@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [sickfake:
+being alive is very………..Not Easy
+](https://come-forth-into-the-light.tumblr.com/post/658444571933540352)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658421933361299456)
 - [Rocket enjoys the cat perch : ferrets](https://come-forth-into-the-light.tumblr.com/post/658399241323102208)
 - [hereafteryyh:prokopetz:
@@ -55,7 +58,6 @@ Today’s aesthetic: keeping the same tab open in your browser for three solid..
 - [pokemonpika77:
 Guys, this is season ONE of the Simpsons.
 ](https://come-forth-into-the-light.tumblr.com/post/658331345921179648)
-- [miguelmarquezoutside:I was sent this GIF version of my last...](https://come-forth-into-the-light.tumblr.com/post/658308675890479104)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
