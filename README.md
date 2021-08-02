@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/658421933361299456)
 - [Rocket enjoys the cat perch : ferrets](https://come-forth-into-the-light.tumblr.com/post/658399241323102208)
 - [hereafteryyh:prokopetz:
 Today’s aesthetic: keeping the same tab open in your browser for three solid...](https://come-forth-into-the-light.tumblr.com/post/658353966839676928)
@@ -55,11 +56,6 @@ Today’s aesthetic: keeping the same tab open in your browser for three solid..
 Guys, this is season ONE of the Simpsons.
 ](https://come-forth-into-the-light.tumblr.com/post/658331345921179648)
 - [miguelmarquezoutside:I was sent this GIF version of my last...](https://come-forth-into-the-light.tumblr.com/post/658308675890479104)
-- [penllawen:everythinginthesky:
-
-new-aesthetic:
-
-World’s first...](https://come-forth-into-the-light.tumblr.com/post/658263383416651776)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
