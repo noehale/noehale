@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Rocket enjoys the cat perch : ferrets](https://come-forth-into-the-light.tumblr.com/post/658399241323102208)
 - [hereafteryyh:prokopetz:
 Today’s aesthetic: keeping the same tab open in your browser for three solid...](https://come-forth-into-the-light.tumblr.com/post/658353966839676928)
 - [pokemonpika77:
@@ -59,9 +60,6 @@ Guys, this is season ONE of the Simpsons.
 new-aesthetic:
 
 World’s first...](https://come-forth-into-the-light.tumblr.com/post/658263383416651776)
-- [attractiveblogger:
-i may be ugly but at least i have an ugly personality too. consistency is key.
-](https://come-forth-into-the-light.tumblr.com/post/658240720244768768)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
