@@ -67,9 +67,9 @@ i may be ugly but at least i have an ugly personality too. consistency is key.
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [gayarsonist:gayarsonist:gayarsonist:being weird together is a love languageme, catching myself sharing something i wouldn’t say to just anyone becaus...](https://t.me/ferretman/3723)
-- [MediaIs 380g too small for a 3 month old female ferret? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/658044439692017664](https://t.me/ferretman/3722)
-- [MediaHey everyone! I shared a picture of my new fuzzbaby Mozzie a few weeks back, and a few of you lovely souls asked for updates on him. Now, both fu...](https://t.me/ferretman/3721)
-- [Mediaferret kisses💕via Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/658044428019220480](https://t.me/ferretman/3720)
-- [MediaZiggy isn’t well :( : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/657987794695766016](https://t.me/ferretman/3719)
+- [MediaGeorge ‘animates’ a dragon. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/658350192582606849](https://t.me/ferretman/3753)
+- [MediaGood morning ☀️ from this sleepy Rocket man 💖 : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/6583465430160015...](https://t.me/ferretman/3752)
+- [MediaLove love love my babies 💗💜🥰🤍💕 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/658346543022211072](https://t.me/ferretman/3751)
+- [Mediapassed out : ferretsvia Ferret Story https://redzgn.tumblr.com/post/658346537550774272](https://t.me/ferretman/3750)
+- [MediaIs this something I should take Peach to a vet right away or just monitor her for a little while : ferretsvia Ferret Story https://anasfalhhhs.tu...](https://t.me/ferretman/3749)
 <!-- TELEGRAM:END -->
