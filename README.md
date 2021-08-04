@@ -48,13 +48,16 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [onehumangallery:64bitwar:
+this is stomp dog it shows up to stomp away sadness
+
+sadness be stomped](https://come-forth-into-the-light.tumblr.com/post/658580429869383680)
 - [petaflop:<3](https://come-forth-into-the-light.tumblr.com/post/658535151942467584)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658512539128381440)
 - [drit-te:me @ everyone on tumblr](https://come-forth-into-the-light.tumblr.com/post/658489839929393152)
 - [sickfake:
 being alive is very………..Not Easy
 ](https://come-forth-into-the-light.tumblr.com/post/658444571933540352)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/658421933361299456)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
