@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [少女漫画のようにお目めキラキラやん……可愛いいいいいいいい！！！！！！！もんたろう大好きいいいいいいい！！！！！！！...](https://come-forth-into-the-light.tumblr.com/post/658671080175697920)
 - [thehappyhooker:
 invaderxan:
 
@@ -65,7 +66,6 @@ this is stomp dog it shows up to stomp away sadness
 
 sadness be stomped](https://come-forth-into-the-light.tumblr.com/post/658580429869383680)
 - [petaflop:<3](https://come-forth-into-the-light.tumblr.com/post/658535151942467584)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/658512539128381440)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
