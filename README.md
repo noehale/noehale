@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/658716340485521408)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658693726121689088)
 - [少女漫画のようにお目めキラキラやん……可愛いいいいいいいい！！！！！！！もんたろう大好きいいいいいいい！！！！！！！...](https://come-forth-into-the-light.tumblr.com/post/658671080175697920)
 - [thehappyhooker:
@@ -62,10 +63,6 @@ justalittlebitwitchy:
 
 
 sushin...](https://come-forth-into-the-light.tumblr.com/post/658603144430977024)
-- [onehumangallery:64bitwar:
-this is stomp dog it shows up to stomp away sadness
-
-sadness be stomped](https://come-forth-into-the-light.tumblr.com/post/658580429869383680)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
