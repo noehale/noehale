@@ -68,9 +68,9 @@ sushin...](https://come-forth-into-the-light.tumblr.com/post/658603144430977024)
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaWe have liftoff 🚀 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/658621955778510848](https://t.me/ferretman/3777)
-- [MediaPost sleeping cat snake : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/658618204474785792](https://t.me/ferretman/3776)
-- [MediaMy boys snuggled : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/658618203459764224](https://t.me/ferretman/3775)
-- [Media✨ just sibling things ✨ : ferretsvia Ferret Story https://redzgn.tumblr.com/post/658618203438792704](https://t.me/ferretman/3774)
-- [MediaAge old question, exotic animal insurance – have you found it useful or not worth it?via Ferret Story https://anasfalhhhs.tumblr.com/post/658591...](https://t.me/ferretman/3773)
+- [MediaMy mama loves me so much : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/658712563618545665](https://t.me/ferretman/3785)
+- [MediaThe Traveling Ferret : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/658708815155462144](https://t.me/ferretman/3784)
+- [MediaMeet my two new ferrets, Nookie and Dilbert! : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/658708815159640064](https://t.me/ferretman/3783)
+- [MediaMy ferret Ren has become quite the cuddle buddy : ferretsvia Ferret Story https://redzgn.tumblr.com/post/658708815169110016](https://t.me/ferretman/3782)
+- [Mediaa pic of Asher’s first time at the beach😁❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/658682371255779328](https://t.me/ferretman/3781)
 <!-- TELEGRAM:END -->
