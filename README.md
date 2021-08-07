@@ -48,11 +48,18 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thewescoast:
+spriit:
+
+lemonyfricket:
+
+internet-legend:
+
+thatfunny...](https://come-forth-into-the-light.tumblr.com/post/658806967630004224)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658784330689232896)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658761628892921856)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658716340485521408)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658693726121689088)
-- [少女漫画のようにお目めキラキラやん……可愛いいいいいいいい！！！！！！！もんたろう大好きいいいいいいい！！！！！！！...](https://come-forth-into-the-light.tumblr.com/post/658671080175697920)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
