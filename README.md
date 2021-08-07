@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [lyingfigure:y’all working from home](https://come-forth-into-the-light.tumblr.com/post/658874911450873856)
 - [DIP my little astronaut. Thank you for everything. We love you...](https://come-forth-into-the-light.tumblr.com/post/658852234711433216)
 - [thewescoast:
 spriit:
@@ -59,7 +60,6 @@ internet-legend:
 thatfunny...](https://come-forth-into-the-light.tumblr.com/post/658806967630004224)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658784330689232896)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658761628892921856)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/658716340485521408)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
