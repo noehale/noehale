@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [DIP my little astronaut. Thank you for everything. We love you...](https://come-forth-into-the-light.tumblr.com/post/658852234711433216)
 - [thewescoast:
 spriit:
 
@@ -59,7 +60,6 @@ thatfunny...](https://come-forth-into-the-light.tumblr.com/post/6588069676300042
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658784330689232896)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658761628892921856)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658716340485521408)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/658693726121689088)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
