@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [person: you're pretty cool!](https://come-forth-into-the-light.tumblr.com/post/659033451566170112)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658988133707317248)
 - [thiefree:
 LEARN SOME PERL BITCH
@@ -55,7 +56,6 @@ LEARN SOME PERL BITCH
 - [今日もおうち守備隊の出動だ！
 #ferret #pet #petstagram #instaferret #ferretgram...](https://come-forth-into-the-light.tumblr.com/post/658942816121176064)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658897552883777536)
-- [lyingfigure:y’all working from home](https://come-forth-into-the-light.tumblr.com/post/658874911450873856)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
