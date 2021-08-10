@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/659169392466198528)
 - [penllawen:zenpencils:
 
 A tribute to ROGER EBERT
@@ -57,7 +58,6 @@ Lovely.](https://come-forth-into-the-light.tumblr.com/post/659146689271201792)
 #まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/659124034959704064)
 - [petaflop:Fashion](https://come-forth-into-the-light.tumblr.com/post/659078739843530752)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659056104047869952)
-- [person: you're pretty cool!](https://come-forth-into-the-light.tumblr.com/post/659033451566170112)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
