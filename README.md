@@ -48,13 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [おやつもらったのに「おかわりはないでちか？」みたいな顔はやめてもろて…😅
+#まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/659124034959704064)
 - [petaflop:Fashion](https://come-forth-into-the-light.tumblr.com/post/659078739843530752)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659056104047869952)
 - [person: you're pretty cool!](https://come-forth-into-the-light.tumblr.com/post/659033451566170112)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/658988133707317248)
-- [thiefree:
-LEARN SOME PERL BITCH
-](https://come-forth-into-the-light.tumblr.com/post/658965504771424256)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
