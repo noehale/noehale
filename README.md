@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [cloritos:
+i said a swear once and next thing you know i was doing meth
+](https://come-forth-into-the-light.tumblr.com/post/659259928064737280)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659237294874755072)
 - [sid-ydg:vegitating:
 
@@ -58,8 +61,6 @@ narcissistic-attitude:The entire internet...](https://come-forth-into-the-light.
 A tribute to ROGER EBERT
 
 Lovely.](https://come-forth-into-the-light.tumblr.com/post/659146689271201792)
-- [おやつもらったのに「おかわりはないでちか？」みたいな顔はやめてもろて…😅
-#まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/659124034959704064)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
