@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/659237294874755072)
 - [sid-ydg:vegitating:
 
 narcissistic-attitude:The entire internet...](https://come-forth-into-the-light.tumblr.com/post/659214617839583232)
@@ -59,7 +60,6 @@ A tribute to ROGER EBERT
 Lovely.](https://come-forth-into-the-light.tumblr.com/post/659146689271201792)
 - [おやつもらったのに「おかわりはないでちか？」みたいな顔はやめてもろて…😅
 #まる #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/659124034959704064)
-- [petaflop:Fashion](https://come-forth-into-the-light.tumblr.com/post/659078739843530752)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
