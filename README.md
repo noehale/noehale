@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [chimericaloutlier:
+autumngracy:
+
+dietcrackcocaine:
+
+hella-gay-tra...](https://come-forth-into-the-light.tumblr.com/post/659441162628759552)
 - [crazycatladyxv:
 grrrlillabiscuits:
 
@@ -61,12 +67,6 @@ markv5:
 День рождения...](https://come-forth-into-the-light.tumblr.com/post/659350540731465728)
 - [magic-spelldust:
 Snowy Pastel Winter Scenes by Katarzyna...](https://come-forth-into-the-light.tumblr.com/post/659327904238452736)
-- [onehumangallery:d3fendpop-punk:
-
-Same.
-
-
-repeat.](https://come-forth-into-the-light.tumblr.com/post/659305221414141953)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
