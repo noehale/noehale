@@ -72,9 +72,9 @@ Snowy Pastel Winter Scenes by Katarzyna...](https://come-forth-into-the-light.tu
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMy mama loves me so much : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/658712563618545665](https://t.me/ferretman/3785)
-- [MediaThe Traveling Ferret : ferretsvia Ferret Story https://somewhere-inthe-deepdetails.tumblr.com/post/658708815155462144](https://t.me/ferretman/3784)
-- [MediaMeet my two new ferrets, Nookie and Dilbert! : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/658708815159640064](https://t.me/ferretman/3783)
-- [MediaMy ferret Ren has become quite the cuddle buddy : ferretsvia Ferret Story https://redzgn.tumblr.com/post/658708815169110016](https://t.me/ferretman/3782)
-- [Mediaa pic of Asher’s first time at the beach😁❤️ : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/658682371255779328](https://t.me/ferretman/3781)
+- [MediaUrsula, let’s pose real cute for an Easter picture! Ursula: : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659407204253941760](https://t.me/ferretman/3860)
+- [MediaMelia showing her talent! ❤️ : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659403410861359105](https://t.me/ferretman/3859)
+- [Mediame & the best girl : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659403408875405312](https://t.me/ferretman/3858)
+- [MediaA Ferret in a Sloth! Featuring Lancelot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659346737670012928](https://t.me/ferretman/3857)
+- [MediaMediaMediaMediaMediaMediadynamite5ftjewishbitch:vetmedirl:God bless nurses foreverMediavia Ferret Story https://xxcrybby.tumblr.com/post/65934304...](https://t.me/ferretman/3856)
 <!-- TELEGRAM:END -->
