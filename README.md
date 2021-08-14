@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [This is Mabel, my favorite old ferret of many I’ve had in the...](https://come-forth-into-the-light.tumblr.com/post/659486444306513921)
 - [chimericaloutlier:
 autumngracy:
 
@@ -65,8 +66,6 @@ incorrigible-ixoreus:
 
 markv5:
 День рождения...](https://come-forth-into-the-light.tumblr.com/post/659350540731465728)
-- [magic-spelldust:
-Snowy Pastel Winter Scenes by Katarzyna...](https://come-forth-into-the-light.tumblr.com/post/659327904238452736)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
