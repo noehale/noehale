@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [setheverman:
+babyanimalgifs:
+why is my pencil talking
+why is...](https://come-forth-into-the-light.tumblr.com/post/659622330408026112)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659599700581859329)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659577027172646912)
 - [carry-on-my-wayward-butt:
@@ -61,7 +65,6 @@ beauty and the beast but reverse, i kiss the...](https://come-forth-into-the-lig
 - [penllawen:maniacalrage:
 
 Tumblr’s New Error Page (View...](https://come-forth-into-the-light.tumblr.com/post/659509141200633856)
-- [This is Mabel, my favorite old ferret of many I’ve had in the...](https://come-forth-into-the-light.tumblr.com/post/659486444306513921)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
