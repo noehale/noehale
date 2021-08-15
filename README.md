@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/659599700581859329)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659577027172646912)
 - [carry-on-my-wayward-butt:
 ysera:
@@ -61,12 +62,6 @@ beauty and the beast but reverse, i kiss the...](https://come-forth-into-the-lig
 
 Tumblr’s New Error Page (View...](https://come-forth-into-the-light.tumblr.com/post/659509141200633856)
 - [This is Mabel, my favorite old ferret of many I’ve had in the...](https://come-forth-into-the-light.tumblr.com/post/659486444306513921)
-- [chimericaloutlier:
-autumngracy:
-
-dietcrackcocaine:
-
-hella-gay-tra...](https://come-forth-into-the-light.tumblr.com/post/659441162628759552)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
