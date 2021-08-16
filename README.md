@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [The End of Gamers](https://come-forth-into-the-light.tumblr.com/post/659667615209472000)
 - [setheverman:
 babyanimalgifs:
 why is my pencil talking
@@ -62,9 +63,6 @@ daredevans:
 ysera:
 
 beauty and the beast but reverse, i kiss the...](https://come-forth-into-the-light.tumblr.com/post/659531737149456384)
-- [penllawen:maniacalrage:
-
-Tumblr’s New Error Page (View...](https://come-forth-into-the-light.tumblr.com/post/659509141200633856)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
