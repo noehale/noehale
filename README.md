@@ -68,9 +68,9 @@ beauty and the beast but reverse, i kiss the...](https://come-forth-into-the-lig
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaUrsula, let’s pose real cute for an Easter picture! Ursula: : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659407204253941760](https://t.me/ferretman/3860)
-- [MediaMelia showing her talent! ❤️ : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659403410861359105](https://t.me/ferretman/3859)
-- [Mediame & the best girl : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659403408875405312](https://t.me/ferretman/3858)
-- [MediaA Ferret in a Sloth! Featuring Lancelot : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659346737670012928](https://t.me/ferretman/3857)
-- [MediaMediaMediaMediaMediaMediadynamite5ftjewishbitch:vetmedirl:God bless nurses foreverMediavia Ferret Story https://xxcrybby.tumblr.com/post/65934304...](https://t.me/ferretman/3856)
+- [MediaHappy National Ferret Day! From Jasper, Lilith, Smokie, and Bandit (can barely see her little nose) : ferretsvia Ferret Story https://anasfalhhhs...](https://t.me/ferretman/3878)
+- [MediaHelping ferrets put on weight. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659614778905493504](https://t.me/ferretman/3877)
+- [MediaLucas the bone cleaner : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659614778902396928](https://t.me/ferretman/3876)
+- [MediaHappy National Ferret Day! From Jasper, Lilith, Smokie, and Bandit (can barely see her little nose) : ferretsvia Ferret Story https://anasfalhhhs...](https://t.me/ferretman/3875)
+- [MediaHelping ferrets put on weight. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659614778905493504](https://t.me/ferretman/3874)
 <!-- TELEGRAM:END -->
