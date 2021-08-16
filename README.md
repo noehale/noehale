@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [whosthisbitch:
+me: well at least my self esteem cant get any lower
+self esteem:
+](https://come-forth-into-the-light.tumblr.com/post/659690342016270336)
 - [The End of Gamers](https://come-forth-into-the-light.tumblr.com/post/659667615209472000)
 - [setheverman:
 babyanimalgifs:
@@ -55,14 +59,6 @@ why is my pencil talking
 why is...](https://come-forth-into-the-light.tumblr.com/post/659622330408026112)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659599700581859329)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659577027172646912)
-- [carry-on-my-wayward-butt:
-ysera:
-
-daredevans:
-
-ysera:
-
-beauty and the beast but reverse, i kiss the...](https://come-forth-into-the-light.tumblr.com/post/659531737149456384)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
