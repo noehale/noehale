@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [localstarboy:Visual representation of over thinking](https://come-forth-into-the-light.tumblr.com/post/659758237134028800)
 - [anders-holmdick:
 god I am so tired of people throwing roses at my feet as I walk by
 ](https://come-forth-into-the-light.tumblr.com/post/659712980422967296)
@@ -60,7 +61,6 @@ self esteem:
 babyanimalgifs:
 why is my pencil talking
 why is...](https://come-forth-into-the-light.tumblr.com/post/659622330408026112)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/659599700581859329)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
