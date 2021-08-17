@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [anders-holmdick:
+god I am so tired of people throwing roses at my feet as I walk by
+](https://come-forth-into-the-light.tumblr.com/post/659712980422967296)
 - [whosthisbitch:
 me: well at least my self esteem cant get any lower
 self esteem:
@@ -58,7 +61,6 @@ babyanimalgifs:
 why is my pencil talking
 why is...](https://come-forth-into-the-light.tumblr.com/post/659622330408026112)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659599700581859329)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/659577027172646912)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
