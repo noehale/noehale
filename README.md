@@ -48,11 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [64bitwar:
+this is stomp dog it shows up to stomp away sadness
+](https://come-forth-into-the-light.tumblr.com/post/659894152873574400)
 - [i made a ferret #Ferret #art #doodle](https://come-forth-into-the-light.tumblr.com/post/659871542049685504)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659848826981597184)
 - [vaginavision:What a sweet little pumpernickel](https://come-forth-into-the-light.tumblr.com/post/659803552481476608)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659780968621686784)
-- [localstarboy:Visual representation of over thinking](https://come-forth-into-the-light.tumblr.com/post/659758237134028800)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
