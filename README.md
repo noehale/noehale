@@ -65,9 +65,9 @@ this is stomp dog it shows up to stomp away sadness
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaPop goes the weasel! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659950735940861952](https://t.me/ferretman/3907)
+- [MediaAnyone want donuts? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659947031355424768](https://t.me/ferretman/3906)
+- [MediaBaby Sharktooth living up to his name : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659946999135813632](https://t.me/ferretman/3905)
 - [MediaMy Little Scoot cuddling after his vet appointment. Boogie was worn out from all the poking and prodding. : ferretsvia Ferret Story https://anasf...](https://t.me/ferretman/3904)
 - [gayarsonist:gayarsonist:gayarsonist:bro quit shielding me from danger with your body you’re going to make the audience think we’re gaybrooooo i’m s...](https://t.me/ferretman/3903)
-- [MediaChillin’ like a villain 😎 watching cartoons with mom. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659886619235614720](https://t.me/ferretman/3902)
-- [MediaAfter 2 months of aggressive lone ferrets, the implants have finally worked! 🥺 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6...](https://t.me/ferretman/3901)
-- [MediaA little outside time for the babies 🥰 : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659856452011393025](https://t.me/ferretman/3900)
 <!-- TELEGRAM:END -->
