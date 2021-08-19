@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:Tell me, what time is it?](https://come-forth-into-the-light.tumblr.com/post/659984739413999616)
 - [seitanickush:
 gqa1:
 
@@ -59,7 +60,6 @@ Reblog In 5 seconds for good luck
 this is stomp dog it shows up to stomp away sadness
 ](https://come-forth-into-the-light.tumblr.com/post/659894152873574400)
 - [i made a ferret #Ferret #art #doodle](https://come-forth-into-the-light.tumblr.com/post/659871542049685504)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/659848826981597184)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
