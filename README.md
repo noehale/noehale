@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [I love these babies so much. Y'all don’t even know....](https://come-forth-into-the-light.tumblr.com/post/660052686017789952)
 - [darrynek:
 what she says: no
 what she really means: no
@@ -60,9 +61,6 @@ Reblog In 5 seconds for good luck
 
 ​this...](https://come-forth-into-the-light.tumblr.com/post/659962152027881472)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/659939433471197184)
-- [64bitwar:
-this is stomp dog it shows up to stomp away sadness
-](https://come-forth-into-the-light.tumblr.com/post/659894152873574400)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
