@@ -65,9 +65,9 @@ this is stomp dog it shows up to stomp away sadness
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaPop goes the weasel! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659950735940861952](https://t.me/ferretman/3907)
-- [MediaAnyone want donuts? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659947031355424768](https://t.me/ferretman/3906)
-- [MediaBaby Sharktooth living up to his name : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659946999135813632](https://t.me/ferretman/3905)
-- [MediaMy Little Scoot cuddling after his vet appointment. Boogie was worn out from all the poking and prodding. : ferretsvia Ferret Story https://anasf...](https://t.me/ferretman/3904)
-- [gayarsonist:gayarsonist:gayarsonist:bro quit shielding me from danger with your body you’re going to make the audience think we’re gaybrooooo i’m s...](https://t.me/ferretman/3903)
+- [MediaMy ferrets have learned to make pretzels! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659980989892870145](https://t.me/ferretman/3913)
+- [MediaSleepy lil catsnakes! Klaus & Luna are warming up to each other. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659977311649660928](https://t.me/ferretman/3912)
+- [MediaPlaytime in the morning with my doodle noodle! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659977282093563904](https://t.me/ferretman/3911)
+- [MediaPop goes the weasel! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659950735940861952](https://t.me/ferretman/3910)
+- [MediaAnyone want donuts? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659947031355424768](https://t.me/ferretman/3909)
 <!-- TELEGRAM:END -->
