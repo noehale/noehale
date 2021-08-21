@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/660143333352652800)
 - [the-old-man-has-the-phonebox:
 furiousqueerious:
 
@@ -64,7 +65,6 @@ blocked
 what she says: no
 what she really means: no
 ](https://come-forth-into-the-light.tumblr.com/post/660030036466909184)
-- [petaflop:Tell me, what time is it?](https://come-forth-into-the-light.tumblr.com/post/659984739413999616)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
