@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [the-old-man-has-the-phonebox:
+furiousqueerious:
+
+phoebebishopwrig...](https://come-forth-into-the-light.tumblr.com/post/660120612958797824)
 - [breastforce:
 wikilifeadvice:
 
@@ -61,12 +65,6 @@ what she says: no
 what she really means: no
 ](https://come-forth-into-the-light.tumblr.com/post/660030036466909184)
 - [petaflop:Tell me, what time is it?](https://come-forth-into-the-light.tumblr.com/post/659984739413999616)
-- [seitanickush:
-gqa1:
-
-Reblog In 5 seconds for good luck
-
-​this...](https://come-forth-into-the-light.tumblr.com/post/659962152027881472)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
