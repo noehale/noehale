@@ -67,9 +67,9 @@ blocked
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaMy ferrets have learned to make pretzels! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659980989892870145](https://t.me/ferretman/3913)
-- [MediaSleepy lil catsnakes! Klaus & Luna are warming up to each other. : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659977311649660928](https://t.me/ferretman/3912)
-- [MediaPlaytime in the morning with my doodle noodle! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/659977282093563904](https://t.me/ferretman/3911)
-- [MediaPop goes the weasel! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/659950735940861952](https://t.me/ferretman/3910)
-- [MediaAnyone want donuts? : ferretsvia Ferret Story https://xxcrybby.tumblr.com/post/659947031355424768](https://t.me/ferretman/3909)
+- [MediaNyx & Marit : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660162134658924544](https://t.me/ferretman/3924)
+- [MediaSome Luna for your dash : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660158428556181504](https://t.me/ferretman/3923)
+- [MediaSome Luna for your dash : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660158428556181504](https://t.me/ferretman/3922)
+- [MediaInstead of drinking water, they gave kisses to each other for half an hour. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6601319...](https://t.me/ferretman/3921)
+- [MediaWas I walking him or was he walking me? We played in the grass, did some sniffing and was very famous with passers by : ferretsvia Ferret Story h...](https://t.me/ferretman/3920)
 <!-- TELEGRAM:END -->
