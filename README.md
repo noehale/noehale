@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:Wave](https://come-forth-into-the-light.tumblr.com/post/660211198908841984)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660165966685208576)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660143333352652800)
 - [the-old-man-has-the-phonebox:
@@ -61,7 +62,6 @@ limit pasta consumption
 
 blocked
 ](https://come-forth-into-the-light.tumblr.com/post/660075338467049472)
-- [I love these babies so much. Y'all don’t even know....](https://come-forth-into-the-light.tumblr.com/post/660052686017789952)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
