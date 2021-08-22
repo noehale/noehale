@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [clayjokes:The police pull my lifeless body from a lake but I’m wearing the funniest hat they’ve ever...](https://come-forth-into-the-light.tumblr.com/post/660233939696435200)
 - [petaflop:Wave](https://come-forth-into-the-light.tumblr.com/post/660211198908841984)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660165966685208576)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660143333352652800)
@@ -55,13 +56,6 @@
 furiousqueerious:
 
 phoebebishopwrig...](https://come-forth-into-the-light.tumblr.com/post/660120612958797824)
-- [breastforce:
-wikilifeadvice:
-
-limit pasta consumption
-
-blocked
-](https://come-forth-into-the-light.tumblr.com/post/660075338467049472)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
