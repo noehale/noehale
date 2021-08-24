@@ -48,11 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [littlelimpstiff14u2:The Atmospheric Animations of  Carl...](https://come-forth-into-the-light.tumblr.com/post/660392406840213504)
 - [Noodle enjoys sliding under this door : ferrets](https://come-forth-into-the-light.tumblr.com/post/660347156788592640)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660324488271052800)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660301871468216320)
 - [Dook in peace my sweet baby girl. : ferrets](https://come-forth-into-the-light.tumblr.com/post/660256548776460288)
-- [clayjokes:The police pull my lifeless body from a lake but I’m wearing the funniest hat they’ve ever...](https://come-forth-into-the-light.tumblr.com/post/660233939696435200)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
