@@ -58,9 +58,9 @@
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaNyx & Marit : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660162134658924544](https://t.me/ferretman/3924)
-- [MediaSome Luna for your dash : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660158428556181504](https://t.me/ferretman/3923)
-- [MediaSome Luna for your dash : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660158428556181504](https://t.me/ferretman/3922)
-- [MediaInstead of drinking water, they gave kisses to each other for half an hour. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6601319...](https://t.me/ferretman/3921)
-- [MediaWas I walking him or was he walking me? We played in the grass, did some sniffing and was very famous with passers by : ferretsvia Ferret Story h...](https://t.me/ferretman/3920)
+- [MediaCuddler alert : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660343312925048832](https://t.me/ferretman/3935)
+- [Mediaanyone have any recommendations for where to get raw? i don’t want pet specific raw patties i just want real raw meat. we have 5 ferrets so some...](https://t.me/ferretman/3934)
+- [MediaKoda aka “Kodiak Bear” going for the remote again. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660313114842152960](https://t.me/ferretman/3933)
+- [MediaIntroducing Regi & Ash (more in comments) : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660309435525300224](https://t.me/ferretman/3932)
+- [MediaKoda aka “Kodiak Bear” going for the remote again. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660313114842152960](https://t.me/ferretman/3931)
 <!-- TELEGRAM:END -->
