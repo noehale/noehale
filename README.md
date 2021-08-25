@@ -69,9 +69,9 @@ how did they learn to translate...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediabowl biting : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660433927523139584](https://t.me/ferretman/3939)
+- [Mediai just spent an hour for the SECOND time cleaning his cage out hosing it down bc he decides to poop LITERALLY EVERYWHERE. (i know this isn’t a g...](https://t.me/ferretman/3938)
+- [MediaHey Ma! I’m on TV! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660403739184775168](https://t.me/ferretman/3937)
+- [MediaToast helped me plant a tree today, much fun was had : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660399989679439872](https://t.me/ferretman/3936)
 - [MediaCuddler alert : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660343312925048832](https://t.me/ferretman/3935)
-- [Mediaanyone have any recommendations for where to get raw? i don’t want pet specific raw patties i just want real raw meat. we have 5 ferrets so some...](https://t.me/ferretman/3934)
-- [MediaKoda aka “Kodiak Bear” going for the remote again. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660313114842152960](https://t.me/ferretman/3933)
-- [MediaIntroducing Regi & Ash (more in comments) : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660309435525300224](https://t.me/ferretman/3932)
-- [MediaKoda aka “Kodiak Bear” going for the remote again. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660313114842152960](https://t.me/ferretman/3931)
 <!-- TELEGRAM:END -->
