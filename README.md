@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [borlax:
+now this is what Im talkin about 
+](https://come-forth-into-the-light.tumblr.com/post/660528321373798400)
 - [petaflop:Art installation: road marking around a...](https://come-forth-into-the-light.tumblr.com/post/660505698416869376)
 - [trust:
 bongfucker:
@@ -73,7 +76,6 @@ brigwife:
 kidouyuuto:
 
 how did they learn to translate...](https://come-forth-into-the-light.tumblr.com/post/660415133832658944)
-- [littlelimpstiff14u2:The Atmospheric Animations of  Carl...](https://come-forth-into-the-light.tumblr.com/post/660392406840213504)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
