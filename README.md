@@ -48,6 +48,10 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [lazybitch:*cringes at 9 year old me*
+*cringes at 13 year old me*
+*cringes at year ago me*
+*cringes...](https://come-forth-into-the-light.tumblr.com/post/660596322654633984)
 - ["Dogs are minor angels, and I don’t mean that facetiously. They love unconditionally, forgive..."](https://come-forth-into-the-light.tumblr.com/post/660573634201534464)
 - [borlax:
 now this is what Im talkin about 
@@ -64,9 +68,6 @@ barbecue sauce
 
 thanks
 ](https://come-forth-into-the-light.tumblr.com/post/660483001956859904)
-- [gnagster:
-i put the :// in http://
-](https://come-forth-into-the-light.tumblr.com/post/660437719341727744)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
