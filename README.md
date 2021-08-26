@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- ["Dogs are minor angels, and I don’t mean that facetiously. They love unconditionally, forgive..."](https://come-forth-into-the-light.tumblr.com/post/660573634201534464)
 - [borlax:
 now this is what Im talkin about 
 ](https://come-forth-into-the-light.tumblr.com/post/660528321373798400)
@@ -66,16 +67,6 @@ thanks
 - [gnagster:
 i put the :// in http://
 ](https://come-forth-into-the-light.tumblr.com/post/660437719341727744)
-- [squidpop:
-thejazzykittykat:
-
-verbivore8642:
-
-brigwife:
-
-kidouyuuto:
-
-how did they learn to translate...](https://come-forth-into-the-light.tumblr.com/post/660415133832658944)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
