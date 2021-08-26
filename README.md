@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [wayneradiotv:i think of this every time I drink coffee](https://come-forth-into-the-light.tumblr.com/post/660618908877897728)
 - [lazybitch:*cringes at 9 year old me*
 *cringes at 13 year old me*
 *cringes at year ago me*
@@ -57,17 +58,6 @@
 now this is what Im talkin about 
 ](https://come-forth-into-the-light.tumblr.com/post/660528321373798400)
 - [petaflop:Art installation: road marking around a...](https://come-forth-into-the-light.tumblr.com/post/660505698416869376)
-- [trust:
-bongfucker:
-
-trust:
-
-compliment me
-
-barbecue sauce
-
-thanks
-](https://come-forth-into-the-light.tumblr.com/post/660483001956859904)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
