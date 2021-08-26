@@ -73,9 +73,9 @@ thanks
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediabowl biting : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660433927523139584](https://t.me/ferretman/3939)
-- [Mediai just spent an hour for the SECOND time cleaning his cage out hosing it down bc he decides to poop LITERALLY EVERYWHERE. (i know this isn’t a g...](https://t.me/ferretman/3938)
-- [MediaHey Ma! I’m on TV! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660403739184775168](https://t.me/ferretman/3937)
-- [MediaToast helped me plant a tree today, much fun was had : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660399989679439872](https://t.me/ferretman/3936)
-- [MediaCuddler alert : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660343312925048832](https://t.me/ferretman/3935)
+- [MediaFerret has snots? She has weird little breathing fits sometimes and I don’t know if she has snots or if it’s a more serious problem. She’s 2 y...](https://t.me/ferretman/3945)
+- [MediaFinally managed to capture her being still! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660581239131111424](https://t.me/ferretman/3944)
+- [MediaBeach boi 🏝 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660524519906279424](https://t.me/ferretman/3943)
+- [MediaLoved her so much we had to go back and get her brother. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660520806067126273](https://t.me/ferretman/3942)
+- [MediaTiva’s so beautiful🥰The best girl : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660494344484192257](https://t.me/ferretman/3941)
 <!-- TELEGRAM:END -->
