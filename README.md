@@ -48,6 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:danielodowd:
+
+Mark Wheeler
+
+Pink wall and traffic light...](https://come-forth-into-the-light.tumblr.com/post/660686888932376576)
 - [burritwo:
 adrians:
 
@@ -62,9 +67,6 @@ I had 3 stitches in my ear today and now my ear...](https://come-forth-into-the-
 *cringes at year ago me*
 *cringes...](https://come-forth-into-the-light.tumblr.com/post/660596322654633984)
 - ["Dogs are minor angels, and I don’t mean that facetiously. They love unconditionally, forgive..."](https://come-forth-into-the-light.tumblr.com/post/660573634201534464)
-- [borlax:
-now this is what Im talkin about 
-](https://come-forth-into-the-light.tumblr.com/post/660528321373798400)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
