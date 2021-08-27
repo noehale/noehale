@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [ʢ๑•͈̯॰̫•͈̯ʡ](https://come-forth-into-the-light.tumblr.com/post/660709495092248576)
 - [petaflop:danielodowd:
 
 Mark Wheeler
@@ -66,7 +67,6 @@ I had 3 stitches in my ear today and now my ear...](https://come-forth-into-the-
 *cringes at 13 year old me*
 *cringes at year ago me*
 *cringes...](https://come-forth-into-the-light.tumblr.com/post/660596322654633984)
-- ["Dogs are minor angels, and I don’t mean that facetiously. They love unconditionally, forgive..."](https://come-forth-into-the-light.tumblr.com/post/660573634201534464)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
