@@ -48,6 +48,14 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [burritwo:
+adrians:
+
+a-creepy-weirdo-has:
+
+adrians:
+
+I had 3 stitches in my ear today and now my ear...](https://come-forth-into-the-light.tumblr.com/post/660664196640522241)
 - [wayneradiotv:i think of this every time I drink coffee](https://come-forth-into-the-light.tumblr.com/post/660618908877897728)
 - [lazybitch:*cringes at 9 year old me*
 *cringes at 13 year old me*
@@ -57,7 +65,6 @@
 - [borlax:
 now this is what Im talkin about 
 ](https://come-forth-into-the-light.tumblr.com/post/660528321373798400)
-- [petaflop:Art installation: road marking around a...](https://come-forth-into-the-light.tumblr.com/post/660505698416869376)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
