@@ -48,6 +48,9 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [起きなそうなので、しもべはご飯を置いてお仕事に戻りますね(ｿｯ…
+
+#フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/660800109103185920)
 - [sissyhiyah:
 shirosredknight:
 
@@ -61,14 +64,6 @@ officialmickroc...](https://come-forth-into-the-light.tumblr.com/post/6607774889
 Mark Wheeler
 
 Pink wall and traffic light...](https://come-forth-into-the-light.tumblr.com/post/660686888932376576)
-- [burritwo:
-adrians:
-
-a-creepy-weirdo-has:
-
-adrians:
-
-I had 3 stitches in my ear today and now my ear...](https://come-forth-into-the-light.tumblr.com/post/660664196640522241)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
