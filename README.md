@@ -74,9 +74,9 @@ I had 3 stitches in my ear today and now my ear...](https://come-forth-into-the-
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaJust picked up this sweetie today! Meet Lavender. Finally completed our little ferret family. (She was only held like this for like 15 seconds) :...](https://t.me/ferretman/3955)
+- [MediaBaby Sitting ferrets, I’m babysitting 2 ferrets while their mom is away and today I noticed one of them looking like it has a rash, does anyone ...](https://t.me/ferretman/3954)
 - [MediaJust picked up this sweetie today! Meet Lavender. Finally completed our little ferret family. (She was only held like this for like 15 seconds) :...](https://t.me/ferretman/3953)
 - [MediaBaby Sitting ferrets, I’m babysitting 2 ferrets while their mom is away and today I noticed one of them looking like it has a rash, does anyone ...](https://t.me/ferretman/3952)
 - [MediaDinner tastes better on faces apparently : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660675531422957568](https://t.me/ferretman/3951)
-- [MediaHe’s fashion… : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660671734257762304](https://t.me/ferretman/3950)
-- [MediaFound this gem in my ferret group! 😂 : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660615100519137280](https://t.me/ferretman/3949)
 <!-- TELEGRAM:END -->
