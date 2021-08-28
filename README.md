@@ -48,6 +48,12 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [sissyhiyah:
+shirosredknight:
+
+thesoundofawesome:
+
+officialmickroc...](https://come-forth-into-the-light.tumblr.com/post/660777488929128448)
 - [BBQ](https://come-forth-into-the-light.tumblr.com/post/660754769418338304)
 - [ʢ๑•͈̯॰̫•͈̯ʡ](https://come-forth-into-the-light.tumblr.com/post/660709495092248576)
 - [petaflop:danielodowd:
@@ -63,7 +69,6 @@ a-creepy-weirdo-has:
 adrians:
 
 I had 3 stitches in my ear today and now my ear...](https://come-forth-into-the-light.tumblr.com/post/660664196640522241)
-- [wayneradiotv:i think of this every time I drink coffee](https://come-forth-into-the-light.tumblr.com/post/660618908877897728)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
