@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [hitmewithcute:Heart shaped eyes](https://come-forth-into-the-light.tumblr.com/post/660868073495117824)
 - [theheartbrokenlibertarian:
 twocubes:
 
@@ -62,7 +63,6 @@ thesoundofawesome:
 
 officialmickroc...](https://come-forth-into-the-light.tumblr.com/post/660777488929128448)
 - [BBQ](https://come-forth-into-the-light.tumblr.com/post/660754769418338304)
-- [ʢ๑•͈̯॰̫•͈̯ʡ](https://come-forth-into-the-light.tumblr.com/post/660709495092248576)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
