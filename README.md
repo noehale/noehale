@@ -69,9 +69,9 @@ Pink wall and traffic light...](https://come-forth-into-the-light.tumblr.com/pos
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaFerret and the Vacuum Cleaner. Cinnamon and Sassy in the Kitchen. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/66079629318735462...](https://t.me/ferretman/3959)
+- [MediaUnder attack!!!!!! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660792553070837760](https://t.me/ferretman/3958)
+- [MediaMeet George. After 18 years of wanting a ferret, I finally got one. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660766101709504...](https://t.me/ferretman/3957)
+- [MediaJust got him about a week ago (blaze) he does this all day during play. Is he deaf? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/6607...](https://t.me/ferretman/3956)
 - [MediaJust picked up this sweetie today! Meet Lavender. Finally completed our little ferret family. (She was only held like this for like 15 seconds) :...](https://t.me/ferretman/3955)
-- [MediaBaby Sitting ferrets, I’m babysitting 2 ferrets while their mom is away and today I noticed one of them looking like it has a rash, does anyone ...](https://t.me/ferretman/3954)
-- [MediaJust picked up this sweetie today! Meet Lavender. Finally completed our little ferret family. (She was only held like this for like 15 seconds) :...](https://t.me/ferretman/3953)
-- [MediaBaby Sitting ferrets, I’m babysitting 2 ferrets while their mom is away and today I noticed one of them looking like it has a rash, does anyone ...](https://t.me/ferretman/3952)
-- [MediaDinner tastes better on faces apparently : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660675531422957568](https://t.me/ferretman/3951)
 <!-- TELEGRAM:END -->
