@@ -48,6 +48,8 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [underbellamy:
+me: fIGHT ME (ง︡’-‘︠)งme: *is afraid to ask people for help at stores* *stutters when...](https://come-forth-into-the-light.tumblr.com/post/660890699511873536)
 - [hitmewithcute:Heart shaped eyes](https://come-forth-into-the-light.tumblr.com/post/660868073495117824)
 - [theheartbrokenlibertarian:
 twocubes:
@@ -62,7 +64,6 @@ shirosredknight:
 thesoundofawesome:
 
 officialmickroc...](https://come-forth-into-the-light.tumblr.com/post/660777488929128448)
-- [BBQ](https://come-forth-into-the-light.tumblr.com/post/660754769418338304)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
