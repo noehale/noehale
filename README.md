@@ -48,6 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [petaflop:troyler-phancake:
+
+hamm1babe:
+
+cookienun:
+
+avraham-chaim...](https://come-forth-into-the-light.tumblr.com/post/660958715481079808)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660935955333693440)
 - [underbellamy:
 me: fIGHT ME (ง︡’-‘︠)งme: *is afraid to ask people for help at stores* *stutters when...](https://come-forth-into-the-light.tumblr.com/post/660890699511873536)
@@ -56,9 +63,6 @@ me: fIGHT ME (ง︡’-‘︠)งme: *is afraid to ask people for help at stor
 twocubes:
 
 she knocked that smug look off my face but luckily i was...](https://come-forth-into-the-light.tumblr.com/post/660845405948526592)
-- [起きなそうなので、しもべはご飯を置いてお仕事に戻りますね(ｿｯ…
-
-#フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/660800109103185920)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
