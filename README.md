@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/660935955333693440)
 - [underbellamy:
 me: fIGHT ME (ง︡’-‘︠)งme: *is afraid to ask people for help at stores* *stutters when...](https://come-forth-into-the-light.tumblr.com/post/660890699511873536)
 - [hitmewithcute:Heart shaped eyes](https://come-forth-into-the-light.tumblr.com/post/660868073495117824)
@@ -58,12 +59,6 @@ she knocked that smug look off my face but luckily i was...](https://come-forth-
 - [起きなそうなので、しもべはご飯を置いてお仕事に戻りますね(ｿｯ…
 
 #フェレット #ferret](https://come-forth-into-the-light.tumblr.com/post/660800109103185920)
-- [sissyhiyah:
-shirosredknight:
-
-thesoundofawesome:
-
-officialmickroc...](https://come-forth-into-the-light.tumblr.com/post/660777488929128448)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
