@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [thestateonmtv:this is still the funniest fucking thing i...](https://come-forth-into-the-light.tumblr.com/post/661071886203142144)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/661049286121996288)
 - [penllawen:literallyunbelievable:
 
@@ -67,7 +68,6 @@ hamm1babe:
 cookienun:
 
 avraham-chaim...](https://come-forth-into-the-light.tumblr.com/post/660958715481079808)
-- [Photo](https://come-forth-into-the-light.tumblr.com/post/660935955333693440)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
