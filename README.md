@@ -48,6 +48,11 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [penllawen:literallyunbelievable:
+
+What a waste of cash
+
+“London...](https://come-forth-into-the-light.tumblr.com/post/661026636825788416)
 - [bloodphoenix:
 piscesqueeen:
 
@@ -64,7 +69,6 @@ avraham-chaim...](https://come-forth-into-the-light.tumblr.com/post/660958715481
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660935955333693440)
 - [underbellamy:
 me: fIGHT ME (ง︡’-‘︠)งme: *is afraid to ask people for help at stores* *stutters when...](https://come-forth-into-the-light.tumblr.com/post/660890699511873536)
-- [hitmewithcute:Heart shaped eyes](https://come-forth-into-the-light.tumblr.com/post/660868073495117824)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
