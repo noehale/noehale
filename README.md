@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [Photo](https://come-forth-into-the-light.tumblr.com/post/661049286121996288)
 - [penllawen:literallyunbelievable:
 
 What a waste of cash
@@ -67,8 +68,6 @@ cookienun:
 
 avraham-chaim...](https://come-forth-into-the-light.tumblr.com/post/660958715481079808)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/660935955333693440)
-- [underbellamy:
-me: fIGHT ME (ง︡’-‘︠)งme: *is afraid to ask people for help at stores* *stutters when...](https://come-forth-into-the-light.tumblr.com/post/660890699511873536)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
