@@ -70,9 +70,9 @@ me: fIGHT ME (ง︡’-‘︠)งme: *is afraid to ask people for help at stor
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFerret and the Vacuum Cleaner. Cinnamon and Sassy in the Kitchen. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/66079629318735462...](https://t.me/ferretman/3959)
-- [MediaUnder attack!!!!!! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660792553070837760](https://t.me/ferretman/3958)
-- [MediaMeet George. After 18 years of wanting a ferret, I finally got one. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660766101709504...](https://t.me/ferretman/3957)
-- [MediaJust got him about a week ago (blaze) he does this all day during play. Is he deaf? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/6607...](https://t.me/ferretman/3956)
-- [MediaJust picked up this sweetie today! Meet Lavender. Finally completed our little ferret family. (She was only held like this for like 15 seconds) :...](https://t.me/ferretman/3955)
+- [MediaFree Boops! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660977530999865344](https://t.me/ferretman/3967)
+- [MediaIdk who needs to see this- but can we talk about his lil teef 🥺 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660973772192579584](https://t.me/ferretman/3966)
+- [MediaFlower ferret : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660947290243153920](https://t.me/ferretman/3965)
+- [Mediaany thoughts on this ferret food brand? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660943566685798400](https://t.me/ferretman/3964)
+- [MediaHappy Monday! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660886908790030336](https://t.me/ferretman/3963)
 <!-- TELEGRAM:END -->
