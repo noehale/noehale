@@ -48,6 +48,13 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [lyndsayfaye:
+roane72:
+
+I have one of these!
+
+
+This is precious...](https://come-forth-into-the-light.tumblr.com/post/661140007181058048)
 - [setheverman:jaegerdom:
 
 No one man should have all that...](https://come-forth-into-the-light.tumblr.com/post/661117175770300416)
@@ -58,12 +65,6 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 What a waste of cash
 
 “London...](https://come-forth-into-the-light.tumblr.com/post/661026636825788416)
-- [bloodphoenix:
-piscesqueeen:
-
-weloveshortvideos:
-
-When you’re...](https://come-forth-into-the-light.tumblr.com/post/660981358541373440)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
