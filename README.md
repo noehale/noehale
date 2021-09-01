@@ -48,6 +48,7 @@
 ### 📝Latest Tumblr Posts
 
 <!-- TUMBLR:START -->
+- [休日を謳歌 #ferret](https://come-forth-into-the-light.tumblr.com/post/661162572853149696)
 - [lyndsayfaye:
 roane72:
 
@@ -60,11 +61,6 @@ This is precious...](https://come-forth-into-the-light.tumblr.com/post/661140007
 No one man should have all that...](https://come-forth-into-the-light.tumblr.com/post/661117175770300416)
 - [thestateonmtv:this is still the funniest fucking thing i...](https://come-forth-into-the-light.tumblr.com/post/661071886203142144)
 - [Photo](https://come-forth-into-the-light.tumblr.com/post/661049286121996288)
-- [penllawen:literallyunbelievable:
-
-What a waste of cash
-
-“London...](https://come-forth-into-the-light.tumblr.com/post/661026636825788416)
 <!-- TUMBLR:END -->
 ---
 ### 📝Latest Telegram Channel Posts
