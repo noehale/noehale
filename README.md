@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaFree Boops! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660977530999865344](https://t.me/ferretman/3967)
-- [MediaIdk who needs to see this- but can we talk about his lil teef 🥺 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660973772192579584](https://t.me/ferretman/3966)
-- [MediaFlower ferret : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660947290243153920](https://t.me/ferretman/3965)
-- [Mediaany thoughts on this ferret food brand? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/660943566685798400](https://t.me/ferretman/3964)
-- [MediaHappy Monday! : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/660886908790030336](https://t.me/ferretman/3963)
+- [MediaWe had to trim Zelda’s nails and she made this face. Enjoy. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/661339939378757632](https://t.me/ferretman/3987)
+- [MediaThis is what I call his “Up to No Good” stance : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661336237706199040](https://t.me/ferretman/3986)
+- [MediaI was waking up as she was deciding to call it a day😂 bonus toe bean porn : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/661309...](https://t.me/ferretman/3985)
+- [MediaSuch a gooood stretch. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661306061422297088](https://t.me/ferretman/3984)
+- [MediaHaven’t shared a #toastpost in a few days. She’s been busy sleeping and GROWING : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6...](https://t.me/ferretman/3983)
 <!-- TELEGRAM:END -->
