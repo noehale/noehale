@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaYin yang : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661426770671730688](https://t.me/ferretman/3990)
+- [MediaThe little bean toes and tush😭😍 featuring his brother’s head lol : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/66140032153...](https://t.me/ferretman/3989)
+- [MediaSuccess! I finally got a picture holding my three cinnamons while they were awake! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/66139...](https://t.me/ferretman/3988)
 - [MediaWe had to trim Zelda’s nails and she made this face. Enjoy. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/661339939378757632](https://t.me/ferretman/3987)
 - [MediaThis is what I call his “Up to No Good” stance : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661336237706199040](https://t.me/ferretman/3986)
-- [MediaI was waking up as she was deciding to call it a day😂 bonus toe bean porn : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/661309...](https://t.me/ferretman/3985)
-- [MediaSuch a gooood stretch. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661306061422297088](https://t.me/ferretman/3984)
-- [MediaHaven’t shared a #toastpost in a few days. She’s been busy sleeping and GROWING : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/6...](https://t.me/ferretman/3983)
 <!-- TELEGRAM:END -->
