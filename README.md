@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [kiwi:realest-asami-requiem:Snowball fight 124 years ago. Lyon, France, 1896. Colorized and speed adjusted. Original in black and white by Louis Lumier...](https://t.me/ferretman/3994)
+- [MediaMotivated by the 11 ferrets having a bath, I decided to give 12 ferrets a shower! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661577...](https://t.me/ferretman/3993)
+- [MediaRuby be like WAKE UP and play with meeeeeee, you grump! Tipsy be like go away you pest, I’m trying to sleep here in the middle of the living roo...](https://t.me/ferretman/3992)
+- [MediaThey cloned a black footed ferret! (CNN – Feb 2021)via Ferret Story https://redzgn.tumblr.com/post/661487263323242497](https://t.me/ferretman/3991)
 - [MediaYin yang : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661426770671730688](https://t.me/ferretman/3990)
-- [MediaThe little bean toes and tush😭😍 featuring his brother’s head lol : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/66140032153...](https://t.me/ferretman/3989)
-- [MediaSuccess! I finally got a picture holding my three cinnamons while they were awake! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/66139...](https://t.me/ferretman/3988)
-- [MediaWe had to trim Zelda’s nails and she made this face. Enjoy. : ferretsvia Ferret Story https://anasfalhhhs.tumblr.com/post/661339939378757632](https://t.me/ferretman/3987)
-- [MediaThis is what I call his “Up to No Good” stance : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661336237706199040](https://t.me/ferretman/3986)
 <!-- TELEGRAM:END -->
