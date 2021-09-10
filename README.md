@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediashe was so tired she didn’t even notice me picking her up 🥺 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661879891751583744](https://t.me/ferretman/4000)
+- [MediaI’ve been swindled! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661849593439567872](https://t.me/ferretman/3999)
+- [MediaThe dragon awakes in his lair : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661789296577134592](https://t.me/ferretman/3998)
+- [MediaCat snake : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661758984804548608](https://t.me/ferretman/3997)
 - [MediaNoodles : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661698672969564160](https://t.me/ferretman/3996)
-- [MediaCoconut oil kisses : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661668406824779776](https://t.me/ferretman/3995)
-- [kiwi:realest-asami-requiem:Snowball fight 124 years ago. Lyon, France, 1896. Colorized and speed adjusted. Original in black and white by Louis Lumier...](https://t.me/ferretman/3994)
-- [MediaMotivated by the 11 ferrets having a bath, I decided to give 12 ferrets a shower! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661577...](https://t.me/ferretman/3993)
-- [MediaRuby be like WAKE UP and play with meeeeeee, you grump! Tipsy be like go away you pest, I’m trying to sleep here in the middle of the living roo...](https://t.me/ferretman/3992)
 <!-- TELEGRAM:END -->
