@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [MediaRuby, Rupert, and Tipsy Nibbler. We ❤️ our ferrets! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662030720341082112](https://t.me/ferretman/4004)
+- [MediaMy mommy bought me new toys! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661970415384674304](https://t.me/ferretman/4003)
+- [MediaMy mommy bought me new toys! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661970415384674304](https://t.me/ferretman/4002)
+- [MediaThis is Cotton! He is best ferret. Sorry other ferrets. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661940258601074688](https://t.me/ferretman/4001)
 - [Mediashe was so tired she didn’t even notice me picking her up 🥺 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661879891751583744](https://t.me/ferretman/4000)
-- [MediaI’ve been swindled! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661849593439567872](https://t.me/ferretman/3999)
-- [MediaThe dragon awakes in his lair : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661789296577134592](https://t.me/ferretman/3998)
-- [MediaCat snake : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661758984804548608](https://t.me/ferretman/3997)
-- [MediaNoodles : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661698672969564160](https://t.me/ferretman/3996)
 <!-- TELEGRAM:END -->
