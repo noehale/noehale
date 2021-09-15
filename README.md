@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaRuby, Rupert, and Tipsy Nibbler. We ❤️ our ferrets! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662030720341082112](https://t.me/ferretman/4004)
-- [MediaMy mommy bought me new toys! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661970415384674304](https://t.me/ferretman/4003)
-- [MediaMy mommy bought me new toys! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661970415384674304](https://t.me/ferretman/4002)
-- [MediaThis is Cotton! He is best ferret. Sorry other ferrets. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661940258601074688](https://t.me/ferretman/4001)
-- [Mediashe was so tired she didn’t even notice me picking her up 🥺 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/661879891751583744](https://t.me/ferretman/4000)
+- [MediaLife is tuff for this little woozle lady : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662332849623629824](https://t.me/ferretman/4010)
+- [MediaStarted making little animated films about my two ferrets!! Tell me what you think! <3via Ferret Story https://redzgn.tumblr.com/post/66230255015...](https://t.me/ferretman/4009)
+- [MediaThe prettiest ferret in the world : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662242113691500544](https://t.me/ferretman/4008)
+- [MediaIt’s my cakeday, so enjoy a pic of our ridiculously photogenic ferbo. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/66221209552961536...](https://t.me/ferretman/4007)
+- [MediaWhen tomorrow is Monday… : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662151695321726977](https://t.me/ferretman/4006)
 <!-- TELEGRAM:END -->
