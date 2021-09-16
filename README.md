@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
+- [Mediastinky woke up from his nap just to give a cute pose : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662423364737089536](https://t.me/ferretman/4012)
+- [MediaAppa is a goof. Playing in the the (empty) poop bin : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662393124366286848](https://t.me/ferretman/4011)
 - [MediaLife is tuff for this little woozle lady : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662332849623629824](https://t.me/ferretman/4010)
 - [MediaStarted making little animated films about my two ferrets!! Tell me what you think! <3via Ferret Story https://redzgn.tumblr.com/post/66230255015...](https://t.me/ferretman/4009)
 - [MediaThe prettiest ferret in the world : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662242113691500544](https://t.me/ferretman/4008)
-- [MediaIt’s my cakeday, so enjoy a pic of our ridiculously photogenic ferbo. : ferretsvia Ferret Story https://redzgn.tumblr.com/post/66221209552961536...](https://t.me/ferretman/4007)
-- [MediaWhen tomorrow is Monday… : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662151695321726977](https://t.me/ferretman/4006)
 <!-- TELEGRAM:END -->
