@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [Mediastinky woke up from his nap just to give a cute pose : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662423364737089536](https://t.me/ferretman/4012)
-- [MediaAppa is a goof. Playing in the the (empty) poop bin : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662393124366286848](https://t.me/ferretman/4011)
-- [MediaLife is tuff for this little woozle lady : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662332849623629824](https://t.me/ferretman/4010)
-- [MediaStarted making little animated films about my two ferrets!! Tell me what you think! <3via Ferret Story https://redzgn.tumblr.com/post/66230255015...](https://t.me/ferretman/4009)
-- [MediaThe prettiest ferret in the world : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662242113691500544](https://t.me/ferretman/4008)
+- [MediaIs this what a normal sleeping eye looks like or does he have an eye infection? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/66278578...](https://t.me/ferretman/4047)
+- [MediaG’night : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662755567977316352](https://t.me/ferretman/4046)
+- [MediaOh her way for some cuddles! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662695156722647040](https://t.me/ferretman/4045)
+- [MediaPeople seemed to like Chopper’s mug. Here’s a better one of him sleeping in it : ferretsvia Ferret Story https://redzgn.tumblr.com/post/6626649...](https://t.me/ferretman/4044)
+- [Mediatook a little walk with queen Nova today. (Yes, her harness is secure. She just gets choked if I use the neck clip.) : ferretsvia Ferret Story ht...](https://t.me/ferretman/4043)
 <!-- TELEGRAM:END -->
