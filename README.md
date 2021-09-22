@@ -72,9 +72,9 @@ No one man should have all that...](https://come-forth-into-the-light.tumblr.com
 ### 📝Latest Telegram Channel Posts
 
 <!-- TELEGRAM:START -->
-- [MediaIs this what a normal sleeping eye looks like or does he have an eye infection? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/66278578...](https://t.me/ferretman/4047)
-- [MediaG’night : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662755567977316352](https://t.me/ferretman/4046)
-- [MediaOh her way for some cuddles! : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662695156722647040](https://t.me/ferretman/4045)
-- [MediaPeople seemed to like Chopper’s mug. Here’s a better one of him sleeping in it : ferretsvia Ferret Story https://redzgn.tumblr.com/post/6626649...](https://t.me/ferretman/4044)
-- [Mediatook a little walk with queen Nova today. (Yes, her harness is secure. She just gets choked if I use the neck clip.) : ferretsvia Ferret Story ht...](https://t.me/ferretman/4043)
+- [MediaThe Semi-Annual Noodle Bath for 11 ferrets! 💦 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662966991719743488](https://t.me/ferretman/4064)
+- [MediaNew enclosure 🤩 : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662936672480215041](https://t.me/ferretman/4063)
+- [MediaIs my ferret a boy? (more info in comments) : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662876442473988096](https://t.me/ferretman/4062)
+- [MediaShe’s washing her face : ferretsvia Ferret Story https://redzgn.tumblr.com/post/662846180214112256](https://t.me/ferretman/4061)
+- [MediaIs this what a normal sleeping eye looks like or does he have an eye infection? : ferretsvia Ferret Story https://redzgn.tumblr.com/post/66278578...](https://t.me/ferretman/4060)
 <!-- TELEGRAM:END -->
