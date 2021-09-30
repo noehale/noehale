@@ -13,4 +13,4 @@ jobs:
       
         with:
           comment_tag_name: PODCAST
-          feed_list: "https://noehale.github.io/podcast/podcast.xml"
+          feed_list: ""
