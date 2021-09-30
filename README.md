@@ -41,8 +41,11 @@
 ### 📫Latest Podcast
 
 <!-- PODCAST:START -->
-- [Where to Get a Ferret?](https://anchor.fm/ferretvoice/episodes/Where-to-Get-a-Ferret-erurfu)
-- [Where Did Ferrets Come From?](https://anchor.fm/ferretvoice/episodes/Where-Did-Ferrets-Come-From-eruq8g)
+- [How to Train a Ferret Not to Bite?](https://ferretvoice.com/ferret-bite/)
+- [The Definitive Guide to Types of Ferrets](https://ferretvoice.com/ferrets-types-guide/)
+- [10 Best Ferret Foods](https://ferretvoice.com/best-ferret-foods/)
+- [Ferret Flea Treatment (A Complete Guide)](https://ferretvoice.com/ferret-flea-treatment/)
+- [How To Get Rid Of Ferret Smell In House](https://ferretvoice.com/ferrets-odor/)
 <!-- PODCAST:END -->
 ---
 ### 📝Latest Tumblr Posts
