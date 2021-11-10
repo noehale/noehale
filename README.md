@@ -20,11 +20,11 @@
 ---
 ### 🔭Latest Github Blog Posts
 <!-- GITHUB:START -->
-- [How to Tame and Train Your New Ferret?](http://noehale.github.io/how-to-tame-and-train-your-new-ferret/)
-- [What Kind of Toys Do Ferrets Like to Play With?](http://noehale.github.io/what-kind-of-toys-do-ferrets-like-to-play-with/)
-- [Things to Know Before Adopting a Pet As Pet](http://noehale.github.io/things-to-know-before-adopting-a-pet-as-pet/)
-- [Ferret Quiz and Name Game](http://noehale.github.io/ferret-quiz/)
-- [Fun Ferret Games](http://noehale.github.io/fun-ferret-games/)
+- [How to Tame and Train Your New Ferret?](https://noehale.github.io/how-to-tame-and-train-your-new-ferret/)
+- [What Kind of Toys Do Ferrets Like to Play With?](https://noehale.github.io/what-kind-of-toys-do-ferrets-like-to-play-with/)
+- [Things to Know Before Adopting a Pet As Pet](https://noehale.github.io/things-to-know-before-adopting-a-pet-as-pet/)
+- [Ferret Quiz and Name Game](https://noehale.github.io/ferret-quiz/)
+- [Fun Ferret Games](https://noehale.github.io/fun-ferret-games/)
 <!-- GITHUB:END -->
 ---
 ### 📫Latest YouTube Videos
