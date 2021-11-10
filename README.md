@@ -30,11 +30,11 @@
 ### 📫Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Make Your Ferret the Happiest Pet in the World!](https://www.youtube.com/watch?v=8I3b0Vu6Cog)
 - [How to Double Your Ferret's Lifespan](https://www.youtube.com/watch?v=k3jmqitGihI)
 - [What is ferret proofing and how do you do it?](https://www.youtube.com/watch?v=81Syh_DJBQQ)
 - [I love how in sync the last bit is to the audio😂](https://www.youtube.com/watch?v=WHBeGHwSlGY)
 - [What are good ferret toys?](https://www.youtube.com/watch?v=tPxRilBzc0s)
-- [What kind of cage do ferrets need?](https://www.youtube.com/watch?v=xzz6hC3sR5A)
 <!-- YOUTUBE:END -->
 
 ---
